@@ -14,12 +14,11 @@
       </button>
       <div class="collapse navbar-collapse" id="navbarNavAltMarkup">
         <div class="navbar-nav">
-          <a class="nav-item nav-link active" href="#">Főoldal</a>
-          <a class="nav-item nav-link disabled" href="#">Templomunk története</a>
-          <a class="nav-item nav-link disabled" href="#">Betlehem</a>
-          <a class="nav-item nav-link disabled" href="#">Képek</a>
-          <a class="nav-item nav-link disabled" href="#">Hivatal nyitvatartása</a>
-          <a class="nav-item nav-link disabled" href="#">Miserend</a>
+          {% for item in site.data.menu.items %}
+            <a class="nav-item nav-link{% if item.url == page.url %} active{% endif %}" href="{{ item.url }}">
+              {{ item.title }}
+            </a>
+          {% endfor %}
         </div>
       </div>
     </div>
