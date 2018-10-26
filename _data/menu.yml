@@ -2,12 +2,13 @@ items:
 - title: Főoldal
   url: /
 - title: Templomunk története
-  url: '#'
+  url: /tortenet
 - title: Betlehem
-  url: '#'
-- title: Képek
-  url: '#'
-- title: Hivatal nyitvatartása
-  url: '#'
+  url: /betlehem
 - title: Miserend
-  url: '#'
+  url: /miserend
+- title: Hivatal nyitvatartása
+  url: /nyitvatartas
+- title: Képek
+  url: http://www.templom.hu/phpwcms/index.php?id=14,555,0,0,1,0
+  target: _blank

@@ -15,7 +15,7 @@
       <div class="collapse navbar-collapse" id="navbarNavAltMarkup">
         <div class="navbar-nav">
           {% for item in site.data.menu.items %}
-            <a class="nav-item nav-link{% if item.url == page.url %} active{% endif %}" href="{{ item.url }}">
+            <a class="nav-item nav-link{% if item.url == page.url %} active{% endif %}" href="{{ item.url }}"{% if item.target %} target="{{ item.target }}"{% endif %}>
               {{ item.title }}
             </a>
           {% endfor %}
@@ -23,7 +23,7 @@
       </div>
     </div>
   </nav>
-  <div class="container pt-4">
+  <div class="container py-4">
     {{ content }}
   </div>
   <script src="https://code.jquery.com/jquery-3.2.1.slim.min.js" integrity="sha384-KJ3o2DKtIkvYIK3UENzmM7KCkRr/rE9/Qpg6aAZGJwFDMVNA/GpGFF93hXpG5KkN" crossorigin="anonymous"></script>
