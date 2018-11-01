@@ -7,7 +7,6 @@ sections:
 - type: jekyll-pages
   label: Pages
   create: documents
-  match: "**/*"
 - type: document
   path: hirdeteseink.html
   label: Hirdetéseink
