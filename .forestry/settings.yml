@@ -5,8 +5,8 @@ admin_path:
 webhook_url: 
 sections:
 - type: document
-  path: hirdeteseink.html
-  label: Hirdeteseink
+  path: hirdeteseink.md
+  label: Hirdetéseink
   match: "**/*"
 - type: jekyll-pages
   label: Pages
