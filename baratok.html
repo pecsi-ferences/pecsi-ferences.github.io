@@ -1,0 +1,11 @@
+---
+layout: default
+title: Barátok lapja
+---
+{% assign pdfs = site.static_files | where: "type", "pdf" | sort: "modified_time" | reverse %}
+<h1>Barátok lapja</h1>
+<ul>
+  {% for pdf in pdfs %}
+    <li><a href="{{ pdf.path }}">{{ pdf.basename | replace: '_', ' ' }}</a></li>
+  {% endfor %}
+</ul>
