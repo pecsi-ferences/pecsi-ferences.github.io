@@ -7,8 +7,8 @@ sections:
 - type: document
   path: hirdeteseink.md
   label: Hirdetéseink
-upload_dir: uploads
-public_path: "/uploads"
+upload_dir: assets/pdfs
+public_path: "/assets/pdfs"
 front_matter_path: ''
 use_front_matter_path: false
 file_template: ":filename:"
