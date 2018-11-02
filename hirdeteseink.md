@@ -25,4 +25,4 @@ Aki a temetőt ájtatos lélekkel látogatja, és legalább lélekben imádkozi
 
 Feltételek: gyónás, áldozás, imádság a pápa szándékára. Az év többi napján részleges búcsút lehet nyerni a temető meglátogatásakor.
 
-Akik halottak napján (vagyis az azt megelőző nap delétől a halottak napját követő éjfélig) meglátogatnak egy templomot, vagy nyilvános kápolnát, teljes búcsút nyerhetnek a szokott feltételekkel. A látogatáskor egy Miatyánkot és egy Hiszekegyet kell imádkozni. Ez a búcsú elnyerhető a megelőző, vagy következő vasárnapon és Mindenszentek ünnepén is.
+Akik halottak napján (vagyis az azt megelőző nap delétől a halottak napját követő éjfélig) meglátogatnak egy templomot, vagy nyilvános kápolnát, teljes búcsút nyerhetnek a szokott feltételekkel. A látogatáskor egy Miatyánkot és egy Hiszekegyet kell imádkozni. Ez a búcsú elnyerhető a megelőző, vagy következő vasárnapon és Mindenszentek ünnepén is. aaaa
