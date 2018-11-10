@@ -9,6 +9,38 @@ title: Hirdetéseink
 
 HIRDETÉSEINK
 
+Évközi 32. Vasárnap
+
+2018\. november 11-18.
+
+Ma - a hónap második vasárnapján- 16 órától szentségimádás lesz templomunkban.
+
+Ma a Házas Hétvége mozgalom tagjai is velünk imádkoznak az esti szentmisében.
+
+Ma az esti szentmisében a Szeráfi kórus teljesít zenei szolgálatot.
+
+A Pécsi Egyházmegye központi iskolája a Szent Mór Iskolaközpont a leendő első osztályosok szülei számára „Nyílt napot” tart. Időpont:2018.november 13. (kedd) 7.50-10.00 Pécs, Hunyadi u. 9.  
+
+Ugyanezen a napon lesz „Nyílt nap” a gimnáziumba jelentkezők számára. 7.45-11.30 Pécs, Papnövelde u. 1.
+
+Bővebb információ a templom hirdetőjén elhelyezett plakáton, és a [www.szentmor.hu](http://www.szentmor.hu) honlapon.
+
+Kedden 17 óra 45 perctől hitoktatói megbeszélés lesz a plébánián.
+
+Csütörtökön 17 óra 45 perctől filmvetítést tartunk a plébánián. A szeretet gyógyít című játékfilmet tekintjük meg. A film Szent Giuseppe Moscatti életét mutatja be. Játékidő 103 perc.
+
+Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kapható. A karácsonyi képeslap templomunk Betleheméről készült.
+
+A Magyar Kurír gondozásában, az Új Ember kiadványok sorozatban idén novemberben is megjelenik az „Isten szava minden napra” című könyv. Értékes olvasmány, szép ajándék karácsonyra! A szerző, Vincenzo Paglia püspök, a Sant'Egidio közösség (Szent Egyed Közösség) tagja, a nemzetközi katolikus Bibliaszövetség elnöke.
+
+Az „Isten szava minden napra” kötet napról napra vezeti azokat, akik a Bibliában el szeretnének mélyülni. Értékes gondolatai segítenek az imádságban. Minden napra egy bibliai részt és egy ahhoz kapcsolódó elmélkedést tartalmaz, amely hétköznapi életünk konkrét valóságához kapcsolja Isten szavát, evilági dolgaink új fényben tűnhetnek fel. Kapaszkodó lehet a mindennapokban, iránytű bonyolult világunkban. Tekintetünket, gondolatainkat, érzéseinket Isten országa felé irányítja.
+
+A megrendeléseket, megrendelő nevét, elérhetőségét a sekrestyében lehet leadni, vagy a [santegidio.pecs@gmail.com](mailto:santegidio.pecs@gmail.com) e-mail címre lehet elküldeni.
+
+Egy kötet ára 4000 Ft.
+
+HIRDETÉSEINK
+
 Évközi 31. Vasárnap
 
 2018\. november 4-11.
@@ -35,29 +67,8 @@ Akik **halottak napján** (vagyis az azt megelőző nap delétől a halottak n
 
 A Magyar Kurír gondozásában, az Új Ember kiadványok sorozatban idén novemberben is megjelenik az „Isten szava minden napra” című könyv. Értékes olvasmány, szép ajándék karácsonyra! A szerző, Vincenzo Paglia püspök, a Sant'Egidio közösség (Szent Egyed Közösség) tagja, a nemzetközi katolikus Bibliaszövetség elnöke.
 
-  
- Az „Isten szava minden napra” kötet napról napra vezeti azokat, akik a Bibliában el szeretnének mélyülni. Értékes gondolatai segítenek az imádságban. Minden napra egy bibliai részt és egy ahhoz kapcsolódó elmélkedést tartalmaz, amely hétköznapi életünk konkrét valóságához kapcsolja Isten szavát, evilági dolgaink új fényben tűnhetnek fel. Kapaszkodó lehet a mindennapokban, iránytű bonyolult világunkban. Tekintetünket, gondolatainkat, érzéseinket Isten országa felé irányítja.
+Az „Isten szava minden napra” kötet napról napra vezeti azokat, akik a Bibliában el szeretnének mélyülni. Értékes gondolatai segítenek az imádságban. Minden napra egy bibliai részt és egy ahhoz kapcsolódó elmélkedést tartalmaz, amely hétköznapi életünk konkrét valóságához kapcsolja Isten szavát, evilági dolgaink új fényben tűnhetnek fel. Kapaszkodó lehet a mindennapokban, iránytű bonyolult világunkban. Tekintetünket, gondolatainkat, érzéseinket Isten országa felé irányítja.
 
- 
-
-A megrendeléseket, megrendelő nevét, elérhetőségét a sekrestyében lehet leadni, vagy a [santegidio.pecs@gmail.com](mailto:santegidio.pecs@gmail.com) e-mail címre lehet elküldeni. 
+A megrendeléseket, megrendelő nevét, elérhetőségét a sekrestyében lehet leadni, vagy a [santegidio.pecs@gmail.com](mailto:santegidio.pecs@gmail.com) e-mail címre lehet elküldeni.
 
 Egy kötet ára 4000 Ft.
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
