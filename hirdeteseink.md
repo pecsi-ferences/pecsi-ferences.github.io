@@ -3,7 +3,25 @@ layout: default
 title: Hirdetéseink
 
 ---
- 
+HIRDETÉSEINK
+
+Évközi 33. Vasárnap
+
+2018\. november 18-25.
+
+Csütörtökön reggel 8 órától nyílt nap lesz az Árpád-házi Szent Margit Iskolában. (Első osztályba készülők számára.)
+
+Pénteken a Szent Mór Iskolaközpontban leendő első osztályosok számára „Iskolanyitogató” program lesz. 15 óra 30 perctől-16 óra 30 percig Pécs, Hunyadi u.9.
+
+Jövő vasárnap lesz Krisztus Király Vasárnapja.
+
+Jövő vasárnap országos templomi gyűjtés lesz a Karitász javára.
+
+Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kapható. A karácsonyi képeslap templomunk Betleheméről készült.
+
+A Magyar Kurír gondozásában, az Új Ember kiadványok sorozatban idén novemberben is megjelenik az „Isten szava minden napra” című könyv. Értékes olvasmány, szép ajándék karácsonyra! A szerző, Vincenzo Paglia püspök, a Sant'Egidio közösség (Szent Egyed Közösség) tagja, a nemzetközi katolikus Bibliaszövetség elnöke. A megrendeléseket, megrendelő nevét, elérhetőségét a sekrestyében lehet leadni, vagy a [santegidio.pecs@gmail.com](mailto:santegidio.pecs@gmail.com) e-mail címre lehet elküldeni.
+
+Egy kötet ára 4000 Ft.
 
  
 
@@ -19,7 +37,7 @@ Ma a Házas Hétvége mozgalom tagjai is velünk imádkoznak az esti szentmiséb
 
 Ma az esti szentmisében a Szeráfi kórus teljesít zenei szolgálatot.
 
-A Pécsi Egyházmegye központi iskolája a Szent Mór Iskolaközpont a leendő első osztályosok szülei számára „Nyílt napot” tart. Időpont:2018.november 13. (kedd) 7.50-10.00 Pécs, Hunyadi u. 9.  
+A Pécsi Egyházmegye központi iskolája a Szent Mór Iskolaközpont a leendő első osztályosok szülei számára „Nyílt napot” tart. Időpont:2018.november 13. (kedd) 7.50-10.00 Pécs, Hunyadi u. 9.
 
 Ugyanezen a napon lesz „Nyílt nap” a gimnáziumba jelentkezők számára. 7.45-11.30 Pécs, Papnövelde u. 1.
 
