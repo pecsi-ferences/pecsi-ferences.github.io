@@ -5,6 +5,28 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+Évközi 34. Vasárnap
+
+Krisztus Király Főünnepe
+
+2018\. november 25-december 2.
+
+ Ma országos templomi gyűjtés van a Karitász javára.
+
+Pénteken 18 órától Bibliaóra lesz a plébánián. Az alkalmat Máger Róbert püspöki irodaigazgató-helyettes vezeti.
+
+Jövő vasárnap advent első vasárnapja. A vasárnap esti szentmisén Barics Gábriel Bicsérdi Plébániai Kormányzó lesz a vendégünk.
+
+Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kapható. A karácsonyi képeslap templomunk Betleheméről készült.
+
+Már most lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
+
+A Magyar Kurír gondozásában, az Új Ember kiadványok sorozatban idén novemberben is megjelenik az „Isten szava minden napra” című könyv. Értékes olvasmány, szép ajándék karácsonyra! A szerző, Vincenzo Paglia püspök, a Sant'Egidio közösség (Szent Egyed Közösség) tagja, a nemzetközi katolikus Bibliaszövetség elnöke. A megrendeléseket, megrendelő nevét, elérhetőségét a sekrestyében lehet leadni, vagy a [santegidio.pecs@gmail.com](mailto:santegidio.pecs@gmail.com) e-mail címre lehet elküldeni.
+
+Egy kötet ára 4000 Ft.
+
+HIRDETÉSEINK
+
 Évközi 33. Vasárnap
 
 2018\. november 18-25.
@@ -22,8 +44,6 @@ Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kaph
 A Magyar Kurír gondozásában, az Új Ember kiadványok sorozatban idén novemberben is megjelenik az „Isten szava minden napra” című könyv. Értékes olvasmány, szép ajándék karácsonyra! A szerző, Vincenzo Paglia püspök, a Sant'Egidio közösség (Szent Egyed Közösség) tagja, a nemzetközi katolikus Bibliaszövetség elnöke. A megrendeléseket, megrendelő nevét, elérhetőségét a sekrestyében lehet leadni, vagy a [santegidio.pecs@gmail.com](mailto:santegidio.pecs@gmail.com) e-mail címre lehet elküldeni.
 
 Egy kötet ára 4000 Ft.
-
- 
 
 HIRDETÉSEINK
 
