@@ -7,6 +7,46 @@ title: Hirdetéseink
 
  
 
+AKTUÁLIS  GYÓNTATÁSI  REND TEMPLOMUNKBAN
+
+ 
+
+2018\. december 3-9 
+
+ 
+
+2018\. december 3. Hétfő         16 óra 30 perctől- 17 óra 30 percig  gyóntat
+
+  DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. december 4. Kedd            16 óra 30 perctől-17 óráig gyóntat
+
+  DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 5. Szerda           16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+    DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 6. Csütörtök       16 óra 30 perctől-17 óra 30 percig gyóntat
+
+   DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2018\.december 7. Péntek             16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+  DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 8. Szombat          16 óra 30 perctől-17 óra 30 percig gyóntat
+
+   DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. december 9. Vasárnap        8 órától-9 óráig gyóntat
+
+           DOHÁNY ZOLTÁN PLÉBÁNOS
+
+                              16 óra 30 perctől-17 óra 30 percig
+
+           DR. VARGA LÁSZLÓ KANONOK ÚR
+
 HIRDETÉSEINK
 
 Advent 1. Vasárnapján
@@ -29,33 +69,33 @@ Már most lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
 
 A GYÓNTATÁS RENDJE TEMPLOMUNKBAN
 
- 2018. december 3-9. 
+2018\. december 3-9.
 
- 2018. december 3. Hétfő 
+2018\. december 3. Hétfő
 
- 16  óra 30 perctől- 17 óra 30 percig  gyóntat
+16  óra 30 perctől- 17 óra 30 percig  gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\. december 4. Kedd 
+2018\. december 4. Kedd
 
 16 óra 30 perctől-17 óráig gyóntat
 
 DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\.december 5. Szerda  
+2018\.december 5. Szerda
 
- 16 óra 30 perctől- 17 óra 30 percig gyóntat
+16 óra 30 perctől- 17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\.december 6. Csütörtök  
+2018\.december 6. Csütörtök
 
-16 óra 30 perctől-17 óra 30 percig gyóntat    
+16 óra 30 perctől-17 óra 30 percig gyóntat
 
 DOHÁNY ZOLTÁN PLÉBÁNOS
 
-2018\.december 7. Péntek   
+2018\.december 7. Péntek
 
 16 óra 30 perctől- 17 óra 30 percig gyóntat
 
@@ -63,23 +103,21 @@ DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
 
 DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\.december 8. Szombat   
+2018\.december 8. Szombat
 
 16 óra 30 perctől-17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\. december 9. Vasárnap 
+2018\. december 9. Vasárnap
 
- 8 órától-9 óráig gyóntat
+8 órától-9 óráig gyóntat
 
- DOHÁNY ZOLTÁN PLÉBÁNOS
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
-16 óra 30 perctől-17 óra 30 percig   
+16 óra 30 perctől-17 óra 30 percig
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
-
- 
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 HIRDETÉSEINK
 
