@@ -3,6 +3,67 @@ layout: default
 title: Hirdetéseink
 
 ---
+  
+
+ 
+
+HIRDETÉSEINK
+
+Advent 2. Vasárnapján
+
+2018\.december 9-16.
+
+Ma 16 órától szentségimádás lesz templomunkban.
+
+Ma az esti szentmisén Zajácz Gábor görög katolikus parókus úr lesz a vendégünk.
+
+Ma az esti szentmise után ellátogat hozzánk Szent Miklós püspök megkésett követe. Szeretettel várjuk a gyerekeket!
+
+Pénteken 17 óra 45 perctől filmvetítés lesz a plébánián. A film Szent Giuseppe Moscatti életét mutatja be. Játékidő 99 perc.
+
+Jövő vasárnap az esti szentmisén Dallos Tamás püspöki szertartó, egyházmegyei jegyző lesz a vendégünk.
+
+Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kapható. A karácsonyi képeslap templomunk Betleheméről készült.
+
+Már most lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
+
+ AKTUÁLIS  GYÓNTATÁSI  REND TEMPLOMUNKBAN
+
+ 2018. december 10-16.
+
+ 2018. december 10. Hétfő         16 óra 30 perctől- 17 óra 30 percig  gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. december 11. Kedd            16 óra 30 perctől-17 óráig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 12. Szerda  16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 13. Csütörtök       16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2018\.december 14. Péntek             16 óra 30 perctől- 17 óra 30 percig gyóntat 
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 15. Szombat          16 óra 30 perctől-17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. december 16. Vasárnap        8 órától-9 óráig gyóntat
+
+ DOHÁNY ZOLTÁN PLÉBÁNOS
+
+ 16 óra 30 perctől-17 óra 30 percig gyóntat
+
+ DOHÁNY ZOLTÁN PLÉBÁNOS
+
+ 
 
 AKTUÁLIS  GYÓNTATÁSI  REND TEMPLOMUNKBAN
 
