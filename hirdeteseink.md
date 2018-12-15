@@ -3,6 +3,65 @@ layout: default
 title: Hirdetéseink
 
 ---
+HIRDETÉSEINK
+
+Advent 3. Vasárnapján
+
+2018\.december 16-23.
+
+Ma az esti szentmisén Dallos Tamás püspöki szertartó, egyházmegyei jegyző lesz a vendégünk.
+
+Jövő szombaton 18 órakor a Szeráfi kórus karácsonyi koncertje lesz templomunkban.
+
+Jövő vasárnap az esti szentmisén Lápossy Péter székesegyházi káplán úr lesz a vendégünk.
+
+Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kapható. A karácsonyi képeslap templomunk Betleheméről készült.
+
+Továbbra is lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
+
+AKTUÁLIS GYÓNTATÁSI  REND TEMPLOMUNKBAN
+
+ 
+
+2018\. december 17-23.
+
+ 
+
+2018\. december 17. Hétfő         16 óra 30 perctől- 17 óra 30 percig  gyóntat
+
+                                                          DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. december 18. Kedd            16 óra 30 perctől-17 óráig gyóntat
+
+                                                           DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 19. Szerda           16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+                                                            DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 20. Csütörtök       16 óra 30 perctől-17 óra 30 percig gyóntat
+
+                                                            DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2018\.december 21. Péntek             16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+                                                             DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.december 22. Szombat          16 óra 30perctől-17 óra 30 percig gyóntat
+
+                                                             DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\. december 23. Vasárnap        8 órától-9 óráig gyóntat
+
+                                                           DR. VARGA LÁSZLÓ KANONOK ÚR
+
+                                                           16 óra 30 perctől-17 óra 30 percig gyóntat
+
+                                                           DR. VARGA LÁSZLÓ KANONOK ÚR
+
+ 
+
+ 
 
 HIRDETÉSEINK
 
