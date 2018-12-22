@@ -3,7 +3,6 @@ layout: default
 title: Hirdetéseink
 
 ---
-
 HIRDETÉSEINK
 
 Advent 4. Vasárnapján
@@ -24,21 +23,23 @@ Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kaph
 
 Továbbra is lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
 
-2018\. december 24. Hétfő         
+AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN.
 
-16 óra 30 perctől- 17 óra 30   percig  gyóntat            DOHÁNY ZOLTÁN PLÉBÁNOS    
+2018\. december 24. Hétfő
 
- 2018. december 25. Kedd            8 órától- 9 óráig gyóntat                      DR. VARGA LÁSZLÓ KANONOK ÚR                                                       17 órától-18 óráig gyóntat                       DR. VARGA LÁSZLÓ KANONOK   ÚR    
+16 óra 30 perctől- 17 óra 30   percig  gyóntat            DOHÁNY ZOLTÁN PLÉBÁNOS
 
- 2018.december 26. Szerda      8 órától- 9 óráig gyóntat                       DOHÁNY ZOLTÁN PLÉBÁNOS                                                     17 órától-18 óráig gyóntat                        DR. VARGA LÁSZLÓ KANONOK ÚR 
+1. december 25. Kedd            8 órától- 9 óráig gyóntat                      DR. VARGA LÁSZLÓ KANONOK ÚR                                                       17 órától-18 óráig gyóntat                       DR. VARGA LÁSZLÓ KANONOK   ÚR
 
-2018\.december 27. Csütörtök                                                   16 óra 30 perctől-17 óráig  gyóntat                                        DOHÁNY ZOLTÁN PLÉBÁNOS        
+2018\.december 26. Szerda      8 órától- 9 óráig gyóntat                       DOHÁNY ZOLTÁN PLÉBÁNOS                                                     17 órától-18 óráig gyóntat                        DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\.december 28. Péntek                                                     16 óra 30 perctől- 17 óra 30   percig gyóntat               DOHÁNY ZOLTÁN PLÉBÁNOS    
+2018\.december 27. Csütörtök                                                   16 óra 30 perctől-17 óráig  gyóntat                                        DOHÁNY ZOLTÁN PLÉBÁNOS
 
- 2018.december 29. Szombat                                                                 16 óra 30 perctől-17 óra 30 percig   gyóntat                               DR. VARGA LÁSZLÓ KANONOK ÚR    
+2018\.december 28. Péntek                                                     16 óra 30 perctől- 17 óra 30   percig gyóntat               DOHÁNY ZOLTÁN PLÉBÁNOS
 
- 2018. december 30. Vasárnap                                                   8 órától-9 óráig és 17 órától-18 óráig gyóntat           DOHÁNY ZOLTÁN PLÉBÁNOS    
+2018\.december 29. Szombat                                                                 16 óra 30 perctől-17 óra 30 percig   gyóntat                               DR. VARGA LÁSZLÓ KANONOK ÚR
+
+1. december 30. Vasárnap                                                   8 órától-9 óráig és 17 órától-18 óráig gyóntat           DOHÁNY ZOLTÁN PLÉBÁNOS
 
 HIRDETÉSEINK
 
