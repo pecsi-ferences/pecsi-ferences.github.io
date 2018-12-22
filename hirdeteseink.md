@@ -3,6 +3,43 @@ layout: default
 title: Hirdetéseink
 
 ---
+
+HIRDETÉSEINK
+
+Advent 4. Vasárnapján
+
+2018\.december 23-30.
+
+Ma az esti szentmisén Lápossy Péter székesegyházi káplán úr lesz a vendégünk.
+
+Hétfőn 17 órakor és Éjfélkor is lesz szentmise templomunkban.
+
+Kedden és szerdán 8 órakor és 17 órakor lesznek a szentmisék templomunkban.
+
+Pénteken 18 órától Bibliaóra lesz a plébánián. Zajácz Gábor görög katolikus parókus úr és Troszt Máté görög katolikus diákonus jön el hozzánk.
+
+Jövő vasárnap lesz a Szent Család Vasárnapja.  A Pécsi Bazilikában a Püspök Úr megáldja a jelen lévő családokat. Szeretettel várják erre az alkalomra a testvéreket!
+
+Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kapható. A karácsonyi képeslap templomunk Betleheméről készült.
+
+Továbbra is lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
+
+2018\. december 24. Hétfő         
+
+16 óra 30 perctől- 17 óra 30   percig  gyóntat            DOHÁNY ZOLTÁN PLÉBÁNOS    
+
+ 2018. december 25. Kedd            8 órától- 9 óráig gyóntat                      DR. VARGA LÁSZLÓ KANONOK ÚR                                                       17 órától-18 óráig gyóntat                       DR. VARGA LÁSZLÓ KANONOK   ÚR    
+
+ 2018.december 26. Szerda      8 órától- 9 óráig gyóntat                       DOHÁNY ZOLTÁN PLÉBÁNOS                                                     17 órától-18 óráig gyóntat                        DR. VARGA LÁSZLÓ KANONOK ÚR 
+
+2018\.december 27. Csütörtök                                                   16 óra 30 perctől-17 óráig  gyóntat                                        DOHÁNY ZOLTÁN PLÉBÁNOS        
+
+2018\.december 28. Péntek                                                     16 óra 30 perctől- 17 óra 30   percig gyóntat               DOHÁNY ZOLTÁN PLÉBÁNOS    
+
+ 2018.december 29. Szombat                                                                 16 óra 30 perctől-17 óra 30 percig   gyóntat                               DR. VARGA LÁSZLÓ KANONOK ÚR    
+
+ 2018. december 30. Vasárnap                                                   8 órától-9 óráig és 17 órától-18 óráig gyóntat           DOHÁNY ZOLTÁN PLÉBÁNOS    
+
 HIRDETÉSEINK
 
 Advent 3. Vasárnapján
@@ -21,47 +58,39 @@ Továbbra is lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
 
 AKTUÁLIS GYÓNTATÁSI  REND TEMPLOMUNKBAN
 
- 
-
 2018\. december 17-23.
-
- 
 
 2018\. december 17. Hétfő         16 óra 30 perctől- 17 óra 30 percig  gyóntat
 
-                                                          DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\. december 18. Kedd            16 óra 30 perctől-17 óráig gyóntat
 
-                                                           DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\.december 19. Szerda           16 óra 30 perctől- 17 óra 30 percig gyóntat
 
-                                                            DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\.december 20. Csütörtök       16 óra 30 perctől-17 óra 30 percig gyóntat
 
-                                                            DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
 
 2018\.december 21. Péntek             16 óra 30 perctől- 17 óra 30 percig gyóntat
 
-                                                             DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\.december 22. Szombat          16 óra 30perctől-17 óra 30 percig gyóntat
 
-                                                             DOHÁNY ZOLTÁN PLÉBÁNOS
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
 2018\. december 23. Vasárnap        8 órától-9 óráig gyóntat
 
-                                                           DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-                                                           16 óra 30 perctől-17 óra 30 percig gyóntat
+16 óra 30 perctől-17 óra 30 percig gyóntat
 
-                                                           DR. VARGA LÁSZLÓ KANONOK ÚR
-
- 
-
- 
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 HIRDETÉSEINK
 
