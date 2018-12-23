@@ -27,7 +27,7 @@ AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
 
 2018\. december 23-30.
 
-2018\. december 24. Hétfő                                                     16 óra 30 perctől- 17 óra 30 percig  gyóntat                      
+2018\. december 24. Hétfő                                                     16 óra 30 perctől- 17 óra 30 percig  gyóntat
 
 DOHÁNY ZOLTÁN PLÉBÁNOS
 
@@ -51,7 +51,7 @@ DOHÁNY ZOLTÁN PLÉBÁNOS
 
 2018\.december 28. Péntek                                                      16 óra 30 perctől- 17 óra 30 percig gyóntat
 
-DR. VARGA LÁSZLÓ KANONOK ÚR
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
 2018\.december 29. Szombat                                                    16 óra 30 perctől-17 óra 30 percig gyóntat
 
