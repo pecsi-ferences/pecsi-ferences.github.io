@@ -25,35 +25,35 @@ Továbbra is lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
 
 AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
 
- 2018. december 23-30.
+2018\. december 23-30.
 
 2018\. december 24. Hétfő                                                     16 óra 30 perctől- 17 óra 30 percig  gyóntat                      DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\. december 25. Kedd            8 órától- 9 óráig gyóntat DR. VARGA LÁSZLÓ KANONOK ÚR
 
-                                                   17 órától-18 óráig gyóntat
+17 órától-18 óráig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\.december 26. Szerda      8 órától- 9 óráig gyóntat
 
- DOHÁNY ZOLTÁN PLÉBÁNOS
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
-                                                17 órától-18 óráig gyóntat
+17 órától-18 óráig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\.december 27. Csütörtök                                               16 óra 30 perctől-17 óra 30 percig gyóntat
+2018\.december 27. Csütörtök                                               16 óra 30 perctől-17 óráig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
 2018\.december 28. Péntek                                                      16 óra 30 perctől- 17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\.december 29. Szombat                                                    16 óra 30 perctől-17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\. december 30. Vasárnap                                                             8 órától-9 óráig és 17 órától-18 óráig gyóntat            DOHÁNY ZOLTÁN PLÉBÁNOS
 
