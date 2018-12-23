@@ -17,7 +17,7 @@ Kedden és szerdán 8 órakor és 17 órakor lesznek a szentmisék templomunkban
 
 Pénteken 18 órától Bibliaóra lesz a plébánián. Zajácz Gábor görög katolikus parókus úr és Troszt Máté görög katolikus diákonus jön el hozzánk.
 
-Jövő vasárnap lesz a Szent Család Vasárnapja.  A Pécsi Bazilikában a Püspök Úr megáldja a jelen lévő családokat. Szeretettel várják erre az alkalomra a testvéreket!
+Jövő vasárnap lesz a Szent Család Vasárnapja.  A Pécsi Bazilikában- a 18 órakor kezdődő szentmisében- a Püspök Úr megáldja a jelen lévő családokat. Szeretettel várják erre az alkalomra a testvéreket!
 
 Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kapható. A karácsonyi képeslap templomunk Betleheméről készült.
 
