@@ -13,11 +13,11 @@ Ma van a Szent Család Vasárnapja.  A Pécsi Bazilikában- a 18 órakor kezdő
 
 Hétfőn 17 órakor lesz az év végi hálaadás templomunkban.
 
-Kedden Szűz Mária, Isten Anyja Parancsolt Ünnepe lesz egyházunkban.Reggel 8 órakor és 17 órakor is lesz szentmise templomunkban.
+Kedden Szűz Mária, Isten Anyja Parancsolt Főünnepe lesz egyházunkban.Reggel 8 órakor és 17 órakor is lesz szentmise templomunkban.
 
-Ugyancsak kedden, 18 órakor a ferences templomtól (gyalogos) fáklyás zarándoklat-felvonulás indul a Líceum templomhoz, ahol a Szent Egyed közösség Béke Világnapi imaórájára kerül sor.
+Ugyancsak kedden, 18 órakor a ferences templomtól (gyalogos) fáklyás zarándoklat-felvonulás indul a Lyceum templomhoz, ahol a Szent Egyed közösség Béke Világnapi imaórájára kerül sor.
 
-Jövő vasárnap lesz Urunk Megjelenése, Vízkereszt parancsolt ünnepe.
+Jövő vasárnap lesz Urunk Megjelenése, Vízkereszt parancsolt főünnepe.
 
 AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
 
