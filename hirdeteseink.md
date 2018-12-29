@@ -5,6 +5,66 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+Szent Család Vasárnapján
+
+2018\.december 30 - 2019.január 6.
+
+Ma van a Szent Család Vasárnapja.  A Pécsi Bazilikában- a 18 órakor kezdődő szentmisében- a Püspök Úr megáldja a jelen lévő családokat. Szeretettel várják erre az alkalomra a testvéreket!
+
+Hétfőn 17 órakor lesz az év végi hálaadás templomunkban.
+
+Kedden Szűz Mária, Isten Anyja Parancsolt Ünnepe lesz egyházunkban.Reggel 8 órakor és 17 órakor is lesz szentmise templomunkban.
+
+Ugyancsak kedden, 18 órakor a ferences templomtól (gyalogos) fáklyás zarándoklat-felvonulás indul a Líceum templomhoz, ahol a Szent Egyed közösség Béke Világnapi imaórája kerül sor.
+
+Jövő vasárnap lesz Urunk Megjelenése, Vízkereszt parancsolt ünnepe.
+
+ AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+
+ 2018. december 30 -2019.január 6.
+
+ 
+
+2018\. december 30. Hétfő         16 óra 30 perctől- 17 óra 30 percig  gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 1. Kedd                     8 órától- 9 óráig gyóntat
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+                                                      17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 2. Szerda                 16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 3. Csütörtök              16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.január 4. Péntek             16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 5. Szombat           17 órától-18 óráig gyóntat
+
+ DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\. január 6. Vasárnap        8 órától-9 óráig  gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+                                               17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+ 
+
+HIRDETÉSEINK
+
 Advent 4. Vasárnapján
 
 2018\.december 23-30.
