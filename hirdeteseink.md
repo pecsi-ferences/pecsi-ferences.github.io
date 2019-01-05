@@ -5,6 +5,60 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+URUNK MEGJELENÉSE,VÍZKERESZT FŐÜNNEPÉN
+
+2019\.január 6-13.
+
+Ma az esti szentmisében Vízszentelést fogunk végezni.
+
+A Barátok Lapja januári száma a jövő héten fog megjelenni.
+
+Jövő vasárnap lesz Urunk Megkeresztelkedésének Ünnepe. Mivel ez a hónap második vasárnapja 16 órától szentségimádás lesz templomunkban.
+
+Betlehemünk őrzésére még mindig lehet jelentkezni.
+
+ 
+
+ AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+
+ 2019.január 7-13.
+
+ 2019.január 7. Hétfő       16 óra 30 perctől- 17 óra 30 percig  gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 8. Kedd   16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+ 2019.január 9. Szerda       16 óra 30 perctől-17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 10. Csütörtök     16 óra 30 perctől-17 óra 30 percig gyóntat
+
+ DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.január 11. Péntek             16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 12. Szombat           17 órától-18 óráig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. január 13. Vasárnap        8 órától-9 óráig  gyóntat
+
+ DOHÁNY ZOLTÁN PLÉBÁNOS
+
+                                                      17 órától-18 óráig gyóntat
+
+ DOHÁNY ZOLTÁN PLÉBÁNOS
+
+ 
+
+ HIRDETÉSEINK
+
 Szent Család Vasárnapján
 
 2018\.december 30 - 2019.január 6.
