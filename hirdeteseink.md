@@ -5,6 +5,74 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+URUNK MEGKERESZTELKEDÉSÉNEK ÜNNEPÉN
+
+2019\.január 13-20.
+
+Ma 16 órától szentségimádás lesz templomunkban.
+
+Kedden 17 óra 45 perckor filmvetítés lesz a plébánián. A karácsonyi reménysugár című filmet fogjuk megnézni. A film 85 perces.
+
+Szerdán a Pécsi Egyházmegye Ifjúsági Referatúrája (Katifi) szervezésében 19 óra 30 perctől-21 óráig a Művészetek és Irodalom Házában (Széchenyi tér) Párkapcsolati Műhely lesz, melyre mindenkit szeretettel várnak.
+
+Megjelent a Barátok Lapja januári száma. 
+
+Köszönetet mondunk a testvéreknek, hogy az idei évben is vállalták Betlehemünk őrzését. A Gondviselés sokszorosan adja vissza a testvéreknek a felajánlott időt! Köszönjük szépen!
+
+ AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+
+ 2019.január 14-20.
+
+ 
+
+2019\.január 14. Hétfő                  
+
+16 óra 30 perctől- 17 óra 30 percig  gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 15. Kedd                   
+
+                        16 óra 30 perctől- 17 óráig
+
+                         DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 16. Szerda                                                                                             16 óra 30 perctől-17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 17. Csütörtök             
+
+                         16 óra 30 perctől-17 óráig
+
+                          DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 18. Péntek                  
+
+                   16 óra 30 perctől- 17 óráig gyóntat
+
+                   DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 19. Szombat           
+
+                   16 óra 30 perctől-17 óráig
+
+                    DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. január 20. Vasárnap        
+
+                      8 órától-9 óráig  gyóntat
+
+                      DOHÁNY ZOLTÁN PLÉBÁNOS
+
+                        17 órától-18 óráig gyóntat
+
+                       DR. VARGA LÁSZLÓ KANONOK ÚR
+
+ 
+
+HIRDETÉSEINK
+
 URUNK MEGJELENÉSE,VÍZKERESZT FŐÜNNEPÉN
 
 2019\.január 6-13.
@@ -17,47 +85,43 @@ Jövő vasárnap lesz Urunk Megkeresztelkedésének Ünnepe. Mivel ez a hónap m
 
 Betlehemünk őrzésére még mindig lehet jelentkezni.
 
- 
+AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
 
- AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+2019\.január 7-13.
 
- 2019.január 7-13.
+2019\.január 7. Hétfő       16 óra 30 perctől- 17 óra 30 percig  gyóntat
 
- 2019.január 7. Hétfő       16 óra 30 perctől- 17 óra 30 percig  gyóntat
-
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.január 8. Kedd   16 óra 30 perctől- 17 óra 30 percig gyóntat
 
 DOHÁNY ZOLTÁN PLÉBÁNOS
 
- 2019.január 9. Szerda       16 óra 30 perctől-17 óra 30 percig gyóntat
+2019\.január 9. Szerda       16 óra 30 perctől-17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.január 10. Csütörtök     16 óra 30 perctől-17 óra 30 percig gyóntat
 
- DOHÁNY ZOLTÁN PLÉBÁNOS
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
 2019\.január 11. Péntek             16 óra 30 perctől- 17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.január 12. Szombat           17 órától-18 óráig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\. január 13. Vasárnap        8 órától-9 óráig  gyóntat
 
- DOHÁNY ZOLTÁN PLÉBÁNOS
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
-                                                      17 órától-18 óráig gyóntat
+17 órától-18 óráig gyóntat
 
- DOHÁNY ZOLTÁN PLÉBÁNOS
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
- 
-
- HIRDETÉSEINK
+HIRDETÉSEINK
 
 Szent Család Vasárnapján
 
