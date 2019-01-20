@@ -5,6 +5,78 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+Évközi 2. Vasárnap
+
+2019\.január 20-27.
+
+Ma megkezdődik az ökumenikus imahét. Az imahét jövő vasárnapig tart Pécsett. A mai napon 16 órakor a Kertvárosi Református Templomban Nagy Norbert Pécs-Gyárvárosi plébános úr hirdet igét. A hét további programjait a hirdetőtáblán tekinthetjük meg.
+
+Pénteken 18 órakor Bibliafürkésző foglalkozás lesz a plébánián. Barics Gábriel Bicsérdi Plébániai Kormányzó lesz a vendégünk.
+
+Köszönetet mondunk a testvéreknek, hogy az idei évben is vállalták Betlehemünk őrzését. A Gondviselés sokszorosan adja vissza a testvéreknek a felajánlott időt! Köszönjük szépen!
+
+**AZ ÖKUMENIKUS IMAHÉT RÉSZLETES PÉCSI PROGRAMJA:**
+
+ 2019. január 20. vasárnap 16.00 óra, Kertvárosi református templom (Tildy Z. utca 12.)  
+ Igét hirdet Nagy Norbert római katolikus plébános.
+
+ 2019. január 21. hétfő 18.00 óra, Görögkatolikus templom (Alkotmány utca 44.)  
+ Igét hirdet Hajduch-Szmola Patrik evangélikus lelkész.
+
+ 2019. január 22. kedd 18.00 óra, Belvárosi református templom (Szabadság út 35.)  
+ Igét hirdet Büki Gábor, a Sion Gyülekezet lelkésze.
+
+ 2019. január 23. szerda 18.00 óra, Baptista Gyülekezet (Bokor utca 52.)  
+ Igét hirdet Berecz Tibor római katolikus káplán.
+
+ 2019. január 24. csütörtök 18.00 óra, Evangélikus templom (Dischka Győző utca 4-6.)  
+ Igét hirdet Németh Norbert református lelkész.
+
+ 2019. január 25. péntek 18.00 óra, Gyárvárosi római katolikus templom   
+ Igét hirdet Lettner Gábor pünkösdi lelkész.
+
+ 2019. január 26. szombat 18.00 óra, Lyceum katolikus templom (Király utca 36.)  
+ Igét hirdet Macher Tivadar baptista lelkész.
+
+ 2019. január 27. vasárnap 16.00 óra, Székesegyház (Dóm tér 1.)  
+ Igét hirdet Balog Zoltán református lelkész (Németajkú Református Egyházközség, Budapest).
+
+AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+
+ 2019.január 21-27.
+
+2019\.január 21. Hétfő                                                           16 óra 30 perctől- 17 óra 30 percig gyóntat                    DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.január 22. Kedd           16 óra 30 perctől-17 óráig  gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 23. Szerda     16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 24. Csütörtök              16 óra 30 perctől-17 óráig gyóntat
+
+  DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 25. Péntek     16 óra 30 perctől- 17 óra 30 percig gyóntat                                                                               DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 26. Szombat  16 óra 30 perctől- 17 óra 30 percig
+
+gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. január 27. Vasárnap        8 órától-9 óráig  gyóntat
+
+ DOHÁNY ZOLTÁN PLÉBÁNOS                                                      17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+ 
+
+HIRDETÉSEINK
+
 URUNK MEGKERESZTELKEDÉSÉNEK ÜNNEPÉN
 
 2019\.január 13-20.
@@ -15,61 +87,57 @@ Kedden 17 óra 45 perckor filmvetítés lesz a plébánián. A karácsonyi remé
 
 Szerdán a Pécsi Egyházmegye Ifjúsági Referatúrája (Katifi) szervezésében 19 óra 30 perctől-21 óráig a Művészetek és Irodalom Házában (Széchenyi tér) Párkapcsolati Műhely lesz, melyre mindenkit szeretettel várnak.
 
-Megjelent a Barátok Lapja januári száma. 
+Megjelent a Barátok Lapja januári száma.
 
 Köszönetet mondunk a testvéreknek, hogy az idei évben is vállalták Betlehemünk őrzését. A Gondviselés sokszorosan adja vissza a testvéreknek a felajánlott időt! Köszönjük szépen!
 
- AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
 
- 2019.január 14-20.
+2019\.január 14-20.
 
- 
-
-2019\.január 14. Hétfő                  
+2019\.január 14. Hétfő
 
 16 óra 30 perctől- 17 óra 30 percig  gyóntat
 
 DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2019\.január 15. Kedd                   
+2019\.január 15. Kedd
 
                         16 óra 30 perctől- 17 óráig
 
-                         DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.január 16. Szerda                                                                                             16 óra 30 perctől-17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2019\.január 17. Csütörtök             
+2019\.január 17. Csütörtök
 
                          16 óra 30 perctől-17 óráig
 
-                          DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2019\.január 18. Péntek                  
+2019\.január 18. Péntek
 
                    16 óra 30 perctől- 17 óráig gyóntat
 
-                   DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2019\.január 19. Szombat           
+2019\.január 19. Szombat
 
                    16 óra 30 perctől-17 óráig
 
-                    DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\. január 20. Vasárnap        
+2018\. január 20. Vasárnap
 
                       8 órától-9 óráig  gyóntat
 
-                      DOHÁNY ZOLTÁN PLÉBÁNOS
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
-                        17 órától-18 óráig gyóntat
+17 órától-18 óráig gyóntat
 
-                       DR. VARGA LÁSZLÓ KANONOK ÚR
-
- 
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 HIRDETÉSEINK
 
