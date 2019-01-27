@@ -5,6 +5,88 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+Évközi 3. Vasárnap
+
+2019\.január 27-február 3.
+
+Ma fejeződik be az ökumenikus imahét Pécs városában. A záró alkalomra a Székesegyházban kerül sor 16 órakor. Igét hirdet Balog Zoltán református lelkész.
+
+Ma az esti szentmisében a Szeráfi kórus teljesít szolgálatot.
+
+A Pécsi Egyházmegye Ifjúsági Referatúrája (Katifi) két programot hirdet:
+
+1\.     2019.január 28-án Hétfőn 18 órakor Szociopoly interaktív társasjáték lesz a Kulturális Központban.(Uránváros) További információk a  Facebookon.
+
+2\.     2019. január 29-én Kedden 17 órakor a Mindenszentek temploma klubhelyiségében lesz az ÉLŐ PASSIO-PRÓBA.
+
+ Pénteken elkezdjük a Lourdesi kilencedet templomunkban. Hétköznapokon a szentmise után lesz az imádáság, szombaton és vasárnap a szentmise előtt.
+
+ Szombaton lesz Gyertyaszentelő Boldogasszony Ünnepe. Reggel 8 órakor is lesz szentmise templomunkban.
+
+Jövő vasárnap (és szombaton este) Balázsolás lesz templomunkban.
+
+AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+
+ 2019.január 28 - február 3.
+
+2019\.január 28. Hétfő                   
+
+16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 29. Kedd                    
+
+16 óra 30 perctől-17 óráig  gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 30. Szerda                   
+
+16 óra 30 perctől-17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.január 31. Csütörtök              
+
+16 óra 30 perctől-17 óráig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+  16 óra 30 perctől-17 óra 30 percig
+
+  DR. NYÚL VIKTOR HELYNÖK ÚR
+
+2019\.február 1. Péntek            
+
+16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 2. Szombat          
+
+8 órától-9 óráig
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+16 óra 30 perctől- 17 óra 30 percig
+
+ DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.FEBRUÁR 3.  Vasárnap        
+
+8 órától-9 óráig  gyóntat
+
+ DOHÁNY ZOLTÁN PLÉBÁNOS
+
+17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+ 
+
+HIRDETÉSEINK
+
 Évközi 2. Vasárnap
 
 2019\.január 20-27.
@@ -17,33 +99,33 @@ Köszönetet mondunk a testvéreknek, hogy az idei évben is vállalták Betlehe
 
 **AZ ÖKUMENIKUS IMAHÉT RÉSZLETES PÉCSI PROGRAMJA:**
 
- 2019. január 20. vasárnap 16.00 óra, Kertvárosi református templom (Tildy Z. utca 12.)  
- Igét hirdet Nagy Norbert római katolikus plébános.
+2019\. január 20. vasárnap 16.00 óra, Kertvárosi református templom (Tildy Z. utca 12.)  
+Igét hirdet Nagy Norbert római katolikus plébános.
 
- 2019. január 21. hétfő 18.00 óra, Görögkatolikus templom (Alkotmány utca 44.)  
- Igét hirdet Hajduch-Szmola Patrik evangélikus lelkész.
+2019\. január 21. hétfő 18.00 óra, Görögkatolikus templom (Alkotmány utca 44.)  
+Igét hirdet Hajduch-Szmola Patrik evangélikus lelkész.
 
- 2019. január 22. kedd 18.00 óra, Belvárosi református templom (Szabadság út 35.)  
- Igét hirdet Büki Gábor, a Sion Gyülekezet lelkésze.
+2019\. január 22. kedd 18.00 óra, Belvárosi református templom (Szabadság út 35.)  
+Igét hirdet Büki Gábor, a Sion Gyülekezet lelkésze.
 
- 2019. január 23. szerda 18.00 óra, Baptista Gyülekezet (Bokor utca 52.)  
- Igét hirdet Berecz Tibor római katolikus káplán.
+2019\. január 23. szerda 18.00 óra, Baptista Gyülekezet (Bokor utca 52.)  
+Igét hirdet Berecz Tibor római katolikus káplán.
 
- 2019. január 24. csütörtök 18.00 óra, Evangélikus templom (Dischka Győző utca 4-6.)  
- Igét hirdet Németh Norbert református lelkész.
+2019\. január 24. csütörtök 18.00 óra, Evangélikus templom (Dischka Győző utca 4-6.)  
+Igét hirdet Németh Norbert református lelkész.
 
- 2019. január 25. péntek 18.00 óra, Gyárvárosi római katolikus templom   
- Igét hirdet Lettner Gábor pünkösdi lelkész.
+2019\. január 25. péntek 18.00 óra, Gyárvárosi római katolikus templom  
+Igét hirdet Lettner Gábor pünkösdi lelkész.
 
- 2019. január 26. szombat 18.00 óra, Lyceum katolikus templom (Király utca 36.)  
- Igét hirdet Macher Tivadar baptista lelkész.
+2019\. január 26. szombat 18.00 óra, Lyceum katolikus templom (Király utca 36.)  
+Igét hirdet Macher Tivadar baptista lelkész.
 
- 2019. január 27. vasárnap 16.00 óra, Székesegyház (Dóm tér 1.)  
- Igét hirdet Balog Zoltán református lelkész (Németajkú Református Egyházközség, Budapest).
+2019\. január 27. vasárnap 16.00 óra, Székesegyház (Dóm tér 1.)  
+Igét hirdet Balog Zoltán református lelkész (Németajkú Református Egyházközség, Budapest).
 
 AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
 
- 2019.január 21-27.
+2019\.január 21-27.
 
 2019\.január 21. Hétfő                                                           16 óra 30 perctől- 17 óra 30 percig gyóntat                    DOHÁNY ZOLTÁN PLÉBÁNOS
 
@@ -57,7 +139,7 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.január 24. Csütörtök              16 óra 30 perctől-17 óráig gyóntat
 
-  DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.január 25. Péntek     16 óra 30 perctől- 17 óra 30 percig gyóntat                                                                               DR. VARGA LÁSZLÓ KANONOK ÚR
 
@@ -69,11 +151,9 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2018\. január 27. Vasárnap        8 órától-9 óráig  gyóntat
 
- DOHÁNY ZOLTÁN PLÉBÁNOS                                                      17 órától-18 óráig gyóntat
+DOHÁNY ZOLTÁN PLÉBÁNOS                                                      17 órától-18 óráig gyóntat
 
 DR. VARGA LÁSZLÓ KANONOK ÚR
-
- 
 
 HIRDETÉSEINK
 
