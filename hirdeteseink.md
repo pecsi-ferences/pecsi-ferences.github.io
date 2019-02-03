@@ -5,6 +5,72 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+Évközi 4. Vasárnap
+
+2019\.február 3-10.
+
+Ma a szentmisék után Balázs-áldásban részesítjük mindazokat, akik ezt az áldást kérik.
+
+A héten tovább folytatódik a Lourdesi kilenced imádkozása templomunkban.
+
+A Barátok Lapja plébániai tájékoztató a hét folyamán fog megjelenni.
+
+Jövő vasárnap 16 órától szentségimádás lesz templomunkban.
+
+Ugyancsak jövő vasárnap 17 órakor- a Kórházlelkészség szervezésében - Püspöki Szentmise lesz templomunkban.
+
+A Pécsi Egyházmegye zarándoklatot szervez a Szentatya Csíksomlyói látogatásra. Részletesebben ezt a zarándoklatot jövő vasárnaptól hirdetjük.
+
+A Pécsi Egyházmegye Ifjúsági Referatúrájának (KATIFI) hirdetései:
+
+Ma 20 órától a Mindenszentek Templom klubhelyiségében (Pécs,Tettye utca 14.)Kollár Dorottya tart beszámolót a Panamai Világifjúsági találkozóról.
+
+Kedden 17 órától-19 óráig PASSIO PRÓBA lesz a Mindenszentek Temploma klubhelyiségében. Szeretettel várják a szereplőket!
+
+Szerdán 19 óra 30 percől-21 óráig Taize-imaóra lesz a Dzsámiban.
+
+AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+
+2019\.február 4-10.
+
+2019\.február 4. Hétfő 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 5. Kedd 16 óra 30 perctől-17 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 6. Szerda 16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 7. Csütörtök 16 óra 30 perctől-17 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+16 óra 30 perctől-17 óra 30 percig
+
+DR. NYÚL VIKTOR HELYNÖK ÚR
+
+2019\.február 8. Péntek 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 9. Szombat 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\.FEBRUÁR 10. Vasárnap 8 órától-9 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+HIRDETÉSEINK
+
 Évközi 3. Vasárnap
 
 2019\.január 27-február 3.
@@ -19,51 +85,51 @@ A Pécsi Egyházmegye Ifjúsági Referatúrája (Katifi) két programot hirdet:
 
 2\.     2019. január 29-én Kedden 17 órakor a Mindenszentek temploma klubhelyiségében lesz az ÉLŐ PASSIO-PRÓBA.
 
- Pénteken elkezdjük a Lourdesi kilencedet templomunkban. Hétköznapokon a szentmise után lesz az imádáság, szombaton és vasárnap a szentmise előtt.
+Pénteken elkezdjük a Lourdesi kilencedet templomunkban. Hétköznapokon a szentmise után lesz az imádáság, szombaton és vasárnap a szentmise előtt.
 
- Szombaton lesz Gyertyaszentelő Boldogasszony Ünnepe. Reggel 8 órakor is lesz szentmise templomunkban.
+Szombaton lesz Gyertyaszentelő Boldogasszony Ünnepe. Reggel 8 órakor is lesz szentmise templomunkban.
 
 Jövő vasárnap (és szombaton este) Balázsolás lesz templomunkban.
 
 AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
 
- 2019.január 28 - február 3.
+2019\.január 28 - február 3.
 
-2019\.január 28. Hétfő                   
+2019\.január 28. Hétfő
 
 16 óra 30 perctől- 17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2019\.január 29. Kedd                    
+2019\.január 29. Kedd
 
 16 óra 30 perctől-17 óráig  gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2019\.január 30. Szerda                   
+2019\.január 30. Szerda
 
 16 óra 30 perctől-17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2019\.január 31. Csütörtök              
+2019\.január 31. Csütörtök
 
 16 óra 30 perctől-17 óráig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-  16 óra 30 perctől-17 óra 30 percig
+16 óra 30 perctől-17 óra 30 percig
 
-  DR. NYÚL VIKTOR HELYNÖK ÚR
+DR. NYÚL VIKTOR HELYNÖK ÚR
 
-2019\.február 1. Péntek            
+2019\.február 1. Péntek
 
 16 óra 30 perctől- 17 óra 30 percig gyóntat
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2019\.február 2. Szombat          
+2019\.február 2. Szombat
 
 8 órától-9 óráig
 
@@ -71,19 +137,17 @@ DOHÁNY ZOLTÁN PLÉBÁNOS
 
 16 óra 30 perctől- 17 óra 30 percig
 
- DR. VARGA LÁSZLÓ KANONOK ÚR
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\.FEBRUÁR 3.  Vasárnap        
+2018\.FEBRUÁR 3.  Vasárnap
 
 8 órától-9 óráig  gyóntat
 
- DOHÁNY ZOLTÁN PLÉBÁNOS
+DOHÁNY ZOLTÁN PLÉBÁNOS
 
 17 órától-18 óráig gyóntat
 
 DR. VARGA LÁSZLÓ KANONOK ÚR
-
- 
 
 HIRDETÉSEINK
 
