@@ -5,6 +5,76 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+Évközi 5. Vasárnap
+
+2019\.február 10-17.
+
+Ma 16 órától szentségimádás lesz templomunkban.
+
+Ma 17 órakor- a Kórházlelkészség szervezésében - Püspöki Szentmise lesz templomunkban.
+
+Megjelent a Barátok Lapja- plébániai tájékoztató- februári száma.
+
+Megköszönjük a testvéreknek, hogy a héten sokan és kitartóan imádkozták a Lourdesi kilencedet templomunkban.
+
+Hétfőn lesz a Betegek Világnapja, aki az esti szentmisében szeretné felvenni a betegek szentségét, kérem, hogy jelezze a sekrestyében. Egyúttal azt is hirdetjük a testvéreknek, hogy hagyományunk szerint, Szent Anna nap után szolgáltatjuk ki ezt a szentséget közösségileg.
+
+Jövő szombaton 17 órakor Berecz Tibor atya mutat be német nyelvű szentmisét templomunkban.
+
+**A Szentatya** romániai útja alkalmával **2019. június 1-én szentmisét mutat be Csíksomlyón**, ahol a történelem folyamán először tesz látogatást Szent Péter utóda.
+
+A látogatás napját – kiterjesztve rá a hagyományosan pünkösdkor tartott ünnepet – fogadalmi búcsúnak nyilvánították, hogy az arra érkező zarándokok is eleget tehessenek az ősök fogadalmának.
+
+Ez alkalomból a **Pécsi Egyházmegye**, a Misszió Tours Utazási irodával, a hívő közösségei számára **közös zarándoklatot szervez** Csíksomlyóra, melynek időpontja 2019. május 31- június 2. **A részvételi szándékot a plébániákon kell jelezni adatlap kitöltésével**, majd a plébános atyák összesítve továbbítják azt a püspöki hivatalba. A plébániai adatlapok beküldési határideje **legkésőbb 2019. február 25**. Bővebb információ a hirdetőtáblán vagy a sekrestyében.
+
+Szeretettel ajánljuk a kedves testvérek figyelmébe a Házasság Hete színes programjait.
+
+A Pécsi Egyházmegye Ifjúsági Referatúrájának (KATIFI) hirdetése:
+
+Szerdán 19 óra 30 perctől-21 óráig lesz összejövetel a Hittudományi Főiskolán. Az est vendége Lankó József Alsószentmártoni Plébános Úr.
+
+AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+
+2019\.február 11-17.
+
+2019\.február 11. Hétfő 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 12. Kedd 16 óra 30 perctől-17 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 13. Szerda 16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 14. Csütörtök 16 óra 30 perctől-17 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+16 óra 30 perctől-17 óra 30 percig
+
+DR. NYÚL VIKTOR HELYNÖK ÚR
+
+2019\.február 15. Péntek 16 óra 30 perctől- 17 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 16. Szombat 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.FEBRUÁR 17. Vasárnap 7 óra 30 perctől- 8 óráig
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+HIRDETÉSEINK
+
 Évközi 4. Vasárnap
 
 2019\.február 3-10.
