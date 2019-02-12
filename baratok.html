@@ -6,6 +6,6 @@ title: Barátok lapja
 <h1>Barátok lapja</h1>
 <ul>
   {% for pdf in pdfs %}
-    <li><a href="{{ pdf.path }}">{{ pdf.basename | replace: '_', ' ' }}</a></li>
+    <li><a href="{{ pdf.path }}">{{ pdf.basename }}</a></li>
   {% endfor %}
 </ul>
