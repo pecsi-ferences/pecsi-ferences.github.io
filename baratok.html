@@ -2,7 +2,7 @@
 layout: default
 title: Barátok lapja
 ---
-{% assign pdfs = site.static_files | where: "type", "pdf" | sort: "modified_time" | reverse %}
+{% assign pdfs = site.static_files | where: "type", "pdf" | reverse %}
 <h1>Barátok lapja</h1>
 <ul>
   {% for pdf in pdfs %}
