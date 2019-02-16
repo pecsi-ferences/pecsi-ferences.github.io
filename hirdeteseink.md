@@ -5,6 +5,72 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK
 
+Évközi 6. Vasárnap
+
+2019\.február 17-24.
+
+Kedden 17 óra 45 perctől filmvetítés lesz a plébánián. Egy élet a gyermekekért. (Első rész) A film Maria Montessori életéről szól. Játékidő:91 perc
+
+Pénteken 17 óra 45 perctől Bibliafürkésző foglalkozás lesz a plébánián. Vendégünk Kovács József diákonus, aki jelenleg a Székesegyházi Plébánián teljesít szolgálatot.
+
+Szombaton az esti szentmisében a Szeráfi Kórus teljesít zenei szolgálatot.
+
+Jövő vasárnap-február hónap utolsó vasárnapján- a katolikus iskolák javára lesz országos templomi gyűjtés.
+
+**A Szentatya** romániai útja alkalmával **2019. június 1-én szentmisét mutat be Csíksomlyón**, ahol a történelem folyamán először tesz látogatást Szent Péter utóda.
+
+A látogatás napját – kiterjesztve rá a hagyományosan pünkösdkor tartott ünnepet – fogadalmi búcsúnak nyilvánították, hogy az arra érkező zarándokok is eleget tehessenek az ősök fogadalmának.
+
+Ez alkalomból a **Pécsi Egyházmegye**, a Misszió Tours Utazási irodával, a hívő közösségei számára **közös zarándoklatot szervez** Csíksomlyóra, melynek időpontja 2019. május 31- június 2. **A részvételi szándékot a plébániákon kell jelezni adatlap kitöltésével**, majd a plébános atyák összesítve továbbítják azt a püspöki hivatalba. A plébániai adatlapok beküldési határideje **legkésőbb 2019. február 25**. Bővebb információ a hirdetőtáblán vagy a sekrestyében.
+
+A Pécsi Egyházmegye Ifjúsági Referatúrájának(Katafi) hirdetései:
+
+**Szerdán 19:30-21:00 Párkapcsolati Műhely lesz, a meghívott vendég Krúdy Tamás és felesége**. Helyszín: Művészetek és Irodalom Háza
+
+**2019**.**március 14-17. között Nagyböjti Ifjúsági Lelkigyakorlat lesz Püspökszentlászlón a plébániaépületben 18-35 éveseknek. További információk az Ifjúsági Referatúra Facebook oldalain:** [https://www.facebook.com/events/378423199634862/](https://www.facebook.com/events/378423199634862/ "https://www.facebook.com/events/378423199634862/"). (figyelem! az Életrendezés Házában csak többágyas szobák vannak. A férőhelyek korlátozott száma miatt érdemes hamar jelentkezni. )
+
+AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN
+
+2019\.február 18-24.
+
+2019\.február 18. Hétfő 16 óra 30 perctől- 16 óra 50 percig gyóntat
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.február 19. Kedd 16 óra 30 perctől-17 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 20. Szerda 16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 21. Csütörtök 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+16 óra 30 perctől-17 óra 30 percig
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.február 22. Péntek 16 óra 30 perctől- 17 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.február 23. Szombat 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.FEBRUÁR 24. Vasárnap 7 óra 30 perctől- 8 óráig
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+HIRDETÉSEINK
+
 Évközi 5. Vasárnap
 
 2019\.február 10-17.
