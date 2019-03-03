@@ -15,7 +15,7 @@ Szerdán lesz hamvazószerda. Ez a nap a nagyböjti időszak kezdete. Ezen a nap
 
 Pénteken a szentmise után keresztutat végzünk a templomban.
 
-Jövő vasárnap a 17 órai szentmisében bemutatkozik idei elsőáldozóink egy csoportja.
+Jövő vasárnap 16 órától szentségimádás lesz templomunkban, majd a 17 órai szentmisében bemutatkozik idei elsőáldozóink egy csoportja. A zenei szolgálatban a Szeráfi kórus lesz segítségünkre.
 
 **A Szentatya** romániai útja alkalmával **2019. június 1-én szentmisét mutat be Csíksomlyón**, ahol a történelem folyamán először tesz látogatást Szent Péter utóda. A látogatás napját – kiterjesztve rá a hagyományosan pünkösdkor tartott ünnepet – fogadalmi búcsúnak nyilvánították, hogy az arra érkező zarándokok is eleget tehessenek az ősök fogadalmának. Ez alkalomból a **Pécsi Egyházmegye**, a Misszió Tours Utazási irodával, a hívő közösségei számára **közös zarándoklatot szervez** Csíksomlyóra, melynek időpontja
 
