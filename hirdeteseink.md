@@ -5,6 +5,74 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**Nagyböjt 1. Vasárnapján**
+
+**2019.március 10-17.**
+
+Ma a szentmisék után hamvazás lesz templomunkban.
+
+Ma 16 órától szentségimádás lesz templomunkban, majd a 17 órai szentmisében bemutatkozik idei elsőáldozóink egy csoportja. A zenei szolgálatban a Szeráfi kórus lesz segítségünkre.
+
+Pénteken a szentmise után keresztutat végzünk a templomban.
+
+Szombaton 17 órakor Lápossy Péter székesegyházi karkáplán úr mutat be német-magyar nyelvű szentmisét templomunkban.
+
+Legutóbb két héttel ezelőtt volt országos templomi gyűjtés a katolikus iskolák javára. Templomunkban      101 000 forint gyűlt össze erre a célra. Ezt az összeget továbbítottuk az egyházmegyei központban. Isten fizesse meg a hívek jóságát, nagylelkűségét!
+
+**A Szentatya** romániai útja alkalmával **2019. június 1-én szentmisét mutat be Csíksomlyón**, ahol a történelem folyamán először tesz látogatást Szent Péter utóda. Ez alkalomból a **Pécsi Egyházmegye**, a Misszió Tours Utazási irodával, a hívő közösségei számára **közös zarándoklatot szervez** Csíksomlyóra, melynek időpontja 2019. május 31- június 2. **A részvételi szándékot a plébániákon kell jelezni adatlap kitöltésével**, majd a plébános atyák összesítve továbbítják azt a püspöki hivatalba. A plébániai adatlapok beküldési határideje **legkésőbb 2019. március 15**. Bővebb információ a hirdetőtáblán vagy a sekrestyében.
+
+**A Pécsi Egyházmegye Ifjúsági Referatúrájának (Katifi) hirdetései:**
+
+Már csak vasárnap estig (10-e) lehet jelentkezni a püspökszentlászlói egyetemista nagyböjti lelkigyakorlatra, ami 14-17-ig lesz.
+
+\-A međugorjei Mladifestre utazó pécsi csapatba 17-ig lehet kedvezményesen jelentkezni.
+
+Virágvasárnap, április 14-én, délután 3-kor a Tettye parkban lesz az előző évek nyomán közismertté vált Ifjúsági Passió, Urunk szenvedéstörtének élő szereplős felidézése. A katifis szervezők többféle szerepre is várják a bátor jelentkezőket és természetesen a nézőket!
+
+További információk az Ifjúsági Referatúra Facebook-oldalán.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019.március 11-17.**
+
+2019\.március 11. Hétfő 16 óra 30 perctől- 16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 12. Kedd 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 13. Szerda 16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 14. Csütörtök 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+16 óra 30 perctől-17 óra 30 percig
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.március 15. Péntek 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 16. Szombat 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\.március 17. Vasárnap 7 óra 50 perctől- 8 óráig
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **Évközi 8. Vasárnap**
 
 **2019.március 3-10.**
