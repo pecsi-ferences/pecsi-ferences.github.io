@@ -5,6 +5,70 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**Nagyböjt 2. Vasárnapján**
+
+**2019.március 17-24.**
+
+Kedden lesz Szent József ünnepe egyházunkban. A 17 órakor kezdődő szentmise után elimádkozzuk a Szent József litániát.
+
+Pénteken a szentmise után keresztutat végzünk a templomban.
+
+Pénteken a Bibliafürkésző foglalkozás **18 óra 30 perckor** kezdődik. Molnár Erik diákonus lesz a vendégünk, aki Mohácsról érkezik hozzánk.
+
+Egyházunk az idei évben is meghirdeti a nagyböjti tartósélelmiszer-gyűjtést 2019. március 24 és 31 között.
+
+**A Magyar Katolikus Püspöki Konferencia körlevele a 2019. évi nagyböjti tartósélelmiszer-gyűjtésről.**
+
+Kedves Testvérek!
+
+„A nagyböjt ideje kiváló alkalom a jócselekedetekre, az irgalmasságra, amely szeretetből, nagylelkűségből fakad, vagyis lemondás gyümölcse. Szent Ágoston szerint „a böjt és az alamizsna az ima két hatalmas szárnya”, amelyek által lendületet kap és egészen Istenig repül. Könnyebben száll egészen az égig az alázatos és szeretetteli ima, amelyet böjt és alamizsna kísér, illetve a minket ért bántalmak megbocsátása és a szeretetcselekedetek kísérnek úgy, hogy eltávolodunk a rossztól és jót cselekszünk.” (XVI. Benedek pápa) Már az ószövetség prófétája, Izajás így közvetítette Isten üzenetét a helyes böjtölésről: „Tudjátok, milyen az a böjt, amelyet én kedvelek? Ezt mondja Isten, az Úr: Törd meg az éhezőnek kenyeredet, és a hajléktalan szegényt fogadd be házadba. Ha mezítelent látsz, öltöztesd föl, és ne fordulj el embertársad elől!” (Iz 58, 6a; 7) Megtérésünk és a böjtölésünk idén is akkor lesz teljes, ha ezeket a szavakat szem előtt tartjuk. Ima-böjt-adakozás: ez a három tanács legyen kísérőnk az idei nagyböjti utunkon. Az első század keresztényei a szentmisére hozták magukkal a szegényeknek szánt adományaikat és régi böjti hagyomány az egyházban, hogy a böjtöléssel megtakarított javakat a szegényeknek ajánlották fel. Idén is meghirdetjük a nagyböjti tartósélelmiszer-gyűjtést a templomainkban, ami lehetőséget teremt az alamizsna kifejezésére is. Kérjük, hozzák el a szentmisékre tartósélelmiszer-felajánlásukat a rászorulók számára és tegyék a templomban erre kijelölt helyre. A legkisebb adománnyal is a felebaráti szeretet csodája valósul meg közöttünk. A templomainkban összegyűjtött élelmiszerek nemcsak táplálékot jelentenek, hanem üzenetet is visznek magukkal, a Gondviselő Isten kézzelfogható szeretetét a nélkülöző családokba. Tegyünk tanúságot az irgalmas szeretet gyakorlásáról az idei nagyböjtben is, és lehetőségeinkhez mérten tartós élelmiszerrel járuljunk hozzá a Katolikus Egyház segélyakciójához. Ezt megtehetik a jövő heti vasárnapi szentmiséken és az azt követő hétköznapokon, március 24-től 31-ig. Adományaikat a karitász juttatja majd el a rászorulókhoz. A korábbi években meghirdetett gyűjtésünk eredményeképpen családok ezreit tudtuk segíteni azokkal a segélycsomagokkal, amelyeket a hívek adományaiból juttattunk el a rászorulókhoz. Ha ezt mindannyian megtesszük és legalább 1 kg adományt hozunk a templomba, újra nagyon sok családnak tudunk segíteni az irgalmas Jézus példáját követve. Telefonos adományvonalon is bekapcsolódhatunk a karitász segítő munkájába. Ha hívjuk a 1356-os telefonszámot, hívásonként 500 forinttal segítünk. „1% segítség, 100 % szeretet.” Kérjük, hogy aki teheti, adója egy százalékával is támogassa a Katolikus Karitász karitatív szolgálatát: a Karitászt Támogató Alapítványt. Köszönjük a szegényeknek szánt adományaikat. Ferenc pápa nagyböjti üzenetében így biztat bennünket: „Ne hagyjuk, hogy e kedvező idő haszontalanul teljen el! Kérjük Isten segítségét, hogy rátaláljunk a valódi megtérés útjára. Hagyjuk el az önzést és az önmagunkra irányuló figyelmet és forduljunk Jézus húsvétja felé, váljanak szükséget szenvedő testvéreink felebarátainkká, akikkel testi és lelki javainkat megoszthatjuk. Így életünk konkrét cselekedeteiben Krisztusnak a bűn és a halál felett aratott győzelme megvalósul és ezzel az ő átalakító erejét a teremtésre is lehívjuk.”
+
+Kelt: Budapest, 2019. nagyböjt 2. vasárnapján Magyar Katolikus Püspöki Konferencia
+
+Kérjük a körlevelet felolvasni 2019. március 17-én, –nagyböjt 2. vasárnapján –minden szentmisén.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019.március 18-24.**
+
+2019\.március 18. Hétfő 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 19. Kedd 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 20. Szerda 16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 21. Csütörtök 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+16 óra 30 perctől-17 óra 30 percig
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.március 22. Péntek 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 23. Szombat 16 óra 30 perctől- 16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.március 24. Vasárnap 7 óra 50 perctől- 9 óráig
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **Nagyböjt 1. Vasárnapján**
 
 **2019.március 10-17.**
