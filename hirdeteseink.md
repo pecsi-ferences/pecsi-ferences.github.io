@@ -5,6 +5,84 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**Nagyböjt 3. Vasárnapján**
+
+**2019.március 24-31.**
+
+Hétfőn lesz Gyümölcsoltó Boldogasszony (Urunk születésének hírüladása) Ünnepe egyházunkban.
+
+Szerdán 17 órától a Szent Mór Óvodába szülői tájékoztatóra várják az érdeklődő szülőket. (7625 Pécs, Aradi vértanúk u. 14.)
+
+Ugyancsak szerdán 17 óra 45 perckor olvasóköri találkozóra hívjuk a testvéreket a ferences plébániára.
+
+Pénteken a szentmise után keresztutat végzünk a templomban.
+
+Szombaton 15 órakor a Gyárvárosi templomban lesz a pécsi esperesi kerület 24 órás szentségimádásának zárása. 15 órakor Bűnbánati liturgia és szentségimádási óra kezdődik, alatta gyónási lehetőség.
+
+Jövő szombatról vasárnapra virradóra lesz az óraátállítás. Ne feledkezzünk meg róla.
+
+Jövő vasárnap a 17 órai szentmisében a Jurisics Általános Iskola elsőáldozó jelöltjei mutatkoznak be.
+
+Egyházunk az idei évben is meghirdeti a nagyböjti tartósélelmiszer-gyűjtést 2019. március 24 és 31 között.
+
+Már most hirdetjük a testvéreknek, hogy 2019.április 1-én kezdődik Nagyböjti lelkigyakorlatunk. Szabó József ferences atya jön el hozzánk. Ugyanettől a naptól kezdve- öt napon keresztül- templomunk vendége lesz a Bátai Szent Vér ereklye.
+
+2019\. április 1-én 19 órakor a Lyceum templomban szervezi meg a Szent Egyed közösség a Mártírok imádságát. Homíliát mond Dr. Udvardy György pécsi megyéspüspök.
+
+**A Pécsi Egyházmegye Ifjúsági Referatúrájának (Katifi) hirdetései:**
+
+**Virágvasárnap, április 14-én, 15 órakor kerül előadásra a Tettye parkban az Ifjúsági Passió, amire várjuk a híveket. Erre folyik a készület, a szervezők várják azokat, akik szeretnének szereplőként részesei lenni. A következő próba kedden 17:00-19:00 között lesz a Mindenszentek temploma Klubhelyiségében.**
+
+**- Következő szerdán, 27-én, 19:30-21:00 között Berecz Tibi atya ifjúsági katekézist tart és beszélgetésre hívja a fiatalokat. A katekézis címe: "Isten és egyház: egy kerülő - mibe kerülő?".**
+
+**-A međugorjei Mladifestre a Katifi szervezésében még vannak helyek, várják az érdeklődőket 16-30 év között** (további információk a Referatúra Facebook-oldalán, azon beül az **űrlapon).**
+
+[https://www.facebook.com/events/242139683329218/](https://www.facebook.com/events/242139683329218/ "https://www.facebook.com/events/242139683329218/")
+
+[https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit](https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit "https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit")
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019.március 25-31.**
+
+2019\.március 25. Hétfő 16 óra 30 perctől- 17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 26. Kedd 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 27. Szerda 16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 28. Csütörtök 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+16 óra 30 perctől-17 óra 30 percig
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.március 29. Péntek 16 óra 30 perctől- 16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.március 30. Szombat 16 óra 30 perctől- 16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.március 31. Vasárnap 7 óra 30 perctől- 8 óráig
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+17 órától-18 óráig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **Nagyböjt 2. Vasárnapján**
 
 **2019.március 17-24.**
