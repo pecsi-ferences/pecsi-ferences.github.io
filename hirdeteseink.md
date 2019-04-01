@@ -5,6 +5,94 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**Nagyböjt 4. Vasárnapján**
+
+**2019.március 31 - április 7.**
+
+Ma zárul le nagyböjti tartósélelmiszer-gyűjtést egyházunkban. Köszönjük a testvérek nagylelkű adományait!
+
+Ma a 17 órai szentmisében a Jurisics Általános Iskola elsőáldozó jelöltjei mutatkoznak be.
+
+Hétfőn kezdődik Nagyböjti lelkigyakorlatunk. Szabó József ferences atya jön el hozzánk. József atya 16 óra 30 perctől gyóntat, majd 17 órakor bemutatja a szentmisét és szentbeszédet is mond.
+
+Hétfőtől - öt napon keresztül- templomunk vendége lesz a Bátai Szent Vér ereklye.
+
+Ugyancsak hétfőn 19 órakor a Lyceum templomban szervezi meg a Szent Egyed közösség a Mártírok imádságát. Homíliát mond Dr. Udvardy György pécsi megyéspüspök.
+
+Kedden 16 óra 30 perctől Szabó József ferences atya gyóntat a templomban. A 17 órakor kezdődő szentmisében hangzik el a második lelkigyakorlatos beszéd.
+
+Szerdán 16 óra 30 perctől gyóntat a lelkigyakorlatot vezető atya a templomban. A 17 órai szentmisében hangzik el nagyböjti lelkigyakorlatunk záró beszéde. Jöjjünk el minél többen a lelkigyakorlatra!
+
+Pénteken-a szentmise után-a bérmálkozásra készülő fiataljaink vezetik a keresztutat.
+
+Szombaton 10 órakor az elsőáldozásra készülők találkozójára kerül sor a templomban.
+
+Jövő vasárnap a Szentföldön élő keresztények támogatásra lesz országos gyűjtés templomainkban.
+
+Jövő vasárnap a 17 órakor kezdődő szentmisét Várnagy Antal atyáért mutatjuk be, halálának 18. évfordulóján.
+
+Jövő vasárnap is folytatódik az elsőáldozók bemutatkozása.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. ÁPRILIS 1-7.**
+
+2019\.ÁPRILIS 1. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óráig**
+
+SZABÓ JÓZSEF FERENCES ATYA (**Ha szükséges,**
+
+**akkor a szentmise után is gyóntat az atya**.)
+
+2019\.ÁPRILIS 2. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óráig**
+
+SZABÓ JÓZSEF FERENCES ATYA (**Ha szükséges,**
+
+**akkor a szentmise után is gyóntat az atya**.)
+
+2019\.ÁPRILIS 3. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óráig gyóntat**
+
+SZABÓ JÓZSEF FERENCES ATYA (**Ha szükséges,**
+
+**akkor a szentmise után is gyóntat az atya**.)
+
+2019\.ÁPRILIS 4. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.ÁPRILIS 5. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 6. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.ÁPRILIS 7. Vasárnap **7 óra 50 perctől- 8 óra 50 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**17 órától-18 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **Nagyböjt 3. Vasárnapján**
 
 **2019.március 24-31.**
