@@ -5,6 +5,70 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**Nagyböjt 5. Vasárnapján**
+
+**2019.április 7-14.**
+
+Ma a Szentföldön élő keresztények támogatásra van országos gyűjtés templomainkban.
+
+Ma a 17 órakor kezdődő szentmisét Várnagy Antal atyáért mutatjuk be, halálának 18. évfordulóján.
+
+Ma a 17 órakor is folytatódik az elsőáldozók bemutatkozása.
+
+Kedden 17 óra 45 perctől Filmvetítés lesz a plébánián. Ferenc pápa-Buenos Airestől a Vatikánig - című filmet vetítjük le. Játékidő 104 perc.
+
+Jövő vasárnap- mivel a hónap második vasárnapja- 16 órakor szentségimádás lesz templomunkban.
+
+Jövő vasárnap, Urunk szenvedésének (Virágvasárnap) ünnepe lesz. A 17 órakor kezdődő szentmisében a Szeráfi kórus énekli a passiót.
+
+A következő héten a Bátai Szent Vér ereklye a pálos templomban lesz felkereshető.
+
+**_A Pécsi Egyházmegye Ifjúsági Referatúrájának (KATIFI) hirdetései:_**
+
+\-Virágvasárnap (április 14.) 15 órai kezdettel a korábbi évek hagyományához híven ismét megrendezésre kerül a Tettye Parkban az IFJÚSÁGI PASSIÓ.
+
+Mindenkit szeretettel várunk!
+
+\-következő szerdán (a szokott rendtől eltérően a 2. szerda!) 19:30-21:00 a Dzsámiban zenés szentségimádást végzünk.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. ÁPRILIS 8-14.**
+
+2019\.ÁPRILIS 8. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 9. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 10. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 11. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 12. Péntek **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 13. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.ÁPRILIS 14. Vasárnap **7 óra 30 perctől- 7 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**17 órától-18 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **Nagyböjt 4. Vasárnapján**
 
 **2019.március 31 - április 7.**
