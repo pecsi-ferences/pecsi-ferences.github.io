@@ -5,6 +5,68 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**URUNK SZENVEDÉSÉNEK VASÁRNAPJÁN**
+
+**2019.április 14-21.**
+
+Ma- mivel a hónap második vasárnapja van- 16 órakor szentségimádás lesz templomunkban.
+
+Ma Urunk Szenvedésének (Virágvasárnap) ünnepe van. A 17 órakor kezdődő szentmisében a Szeráfi kórus énekli a passiót Nagy Ernő karnagy úr vezetésével. Ebben a szentmisében tartjuk meg a barkaszentelést is.
+
+Nagycsütörtökön 17 órakor a szentmisét az Utolsó Vacsora emlékezetére tartjuk. A szentmise után kerül sor a hagyományos virrasztásra templomunkban.
+
+Ugyancsak nagycsütörtökön este 9 órakor gyalogos zarándokalt indul a Székesegyháztól a Havihegyre a papnövendékek vezetésével. A menet érinti a Mindenszentek templomát is. (7625 Pécs,Tettye utca 14.)
+
+Nagypéntek 16 órakor keresztúttal kezdődik a szertartás templomunkban.
+
+Nagypéntek, nagyszombat a Szent Sír látogatható templomunkban.
+
+Nagyszombat 17 órakor kezdődik a feltámadási mise templomunkban.
+
+Húsvétvasárnap a 17 óra szentmisét Dr. Vass Lászlóért mutatjuk be. Halálának 13. évfordulóján.
+
+Húsvéthétfőn reggel 8 órakor és 17 órakor lesz szentmise templomunkban.
+
+Múlt vasárnap a Szentföldön élő keresztények megsegítésére volt templomi gyűjtés. Köszönjük a nagylelkű adományokat!
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. ÁPRILIS 15-21.**
+
+2019\.ÁPRILIS 15. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 16. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 17. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 18. Csütörtök **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.ÁPRILIS 19. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 20. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.ÁPRILIS 21. Vasárnap **7 óra 50 perctől- 8 óra 50 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**17 órától-18 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **Nagyböjt 5. Vasárnapján**
 
 **2019.április 7-14.**
