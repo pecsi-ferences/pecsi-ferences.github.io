@@ -5,6 +5,72 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**HÚSVÉTVASÁRNAP**
+
+**2019.április 21-28.**
+
+Húsvétvasárnap a 17 óra szentmisét Dr. Vass László atyáért mutatjuk be. Halálának 13. évfordulóján.
+
+Húsvéthétfőn reggel 8 órakor és 17 órakor lesz szentmise templomunkban.
+
+Szerdán 17 óra 45 perctől a kórházlelkészség önkénteseinek találkozójára kerül sor a plébánián.
+
+Csütörtökön 17 óra 45 perctől az Olvasókör tagjait várjuk a plébániára.
+
+Pénteken - az esti szentmisén-Kárász Gábor diákonus lesz a vendégünk. A szentmise után- 17 óra 45 perctől- a papszentelés előtt álló diákonus úr előadást tart a plébánián.
+
+Ugyancsak pénteken 18 óra 30 perctől Házas Hétvégés csoporttalálkozó lesz a plébánián.
+
+Jövő vasárnap Húsvét Második Vasárnapja, vagyis az Isteni Irgalmasság vasárnapja lesz. A 17 órakor kezdődő szentmisében elsőáldozásra készülő gyerekeket részesítünk a keresztség szentségében.
+
+Áldott húsvéti ünnepet kívánunk!
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. ÁPRILIS 22-28.**
+
+2019\.ÁPRILIS 22. Hétfő **7 óra 50 perctől-8 óra 45 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 23. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 24. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 25. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELNYÖK ÚR
+
+2019\.ÁPRILIS 26. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 27. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.ÁPRILIS 28. Vasárnap **7 óra 50 perctől- 8 óra 50 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**17 órától-18 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **URUNK SZENVEDÉSÉNEK VASÁRNAPJÁN**
 
 **2019.április 14-21.**
