@@ -5,6 +5,60 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**HÚSVÉT 2. VASÁRNAPJÁN**
+
+**2019.április 28 - május 5.**
+
+Ma Húsvét Második Vasárnapja van, vagyis az Isteni Irgalmasság vasárnapja. A 17 órakor kezdődő szentmisében elsőáldozásra készülő gyerekeket részesítünk a keresztség szentségében.
+
+Május hónapban- hétfőtől-péntekig -16 óra 30 perctől rózsafüzért imádkozunk a templomban, majd a szentmise után elimádkozzuk a lorettói litániát. Első ilyen alkalmunk a szerdai napon lesz.
+
+Szombaton 10 órakor az elsőáldozók találkozójára kerül sor templomunkban.
+
+Szombaton a 17 órakor kezdődő szentmisében a Szeráfi Kórus teljesít zenei szolgálatot, Nagy Ernő karnagy úr vezetésével.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. ÁPRILIS 29 - MÁJUS 5.**
+
+2019\.ÁPRILIS 29. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.ÁPRILIS 30. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 1. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 2. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELNYÖK ÚR
+
+2019\.MÁJUS 3. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 4. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.MÁJUS 5. Vasárnap **7 óra 50 perctől- 8 óra 45 percig**
+
+DR. VARGA LÁSZLÓ KANOK ÚR
+
+**16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **HÚSVÉTVASÁRNAP**
 
 **2019.április 21-28.**
