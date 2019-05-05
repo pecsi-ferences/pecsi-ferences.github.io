@@ -5,6 +5,66 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**HÚSVÉT 3. VASÁRNAPJÁN**
+
+**2019.május 5-12.**
+
+Kedden 17 óra 45 perctől Filmvetítés lesz a plébánián. Don Bosco az ifjúság Atyja és Mestere című filmet tekintjük meg. A film játékideje 109 perc.
+
+Jövő vasárnap - mivel a hónap második vasárnapja- 16 órától szentségimádás lesz a templomban.
+
+Jövő vasárnap lesz húsvét 4. vasárnapja. Ez a vasárnap a Jó Pásztor vasárnapja egyházunkban. A Jó Pásztor vasárnapján a papnevelés céljaira lesz templomi gyűjtés.
+
+Megjelent plébániai tájékoztatónk- a Barátok Lapja - májusi száma.
+
+Május hónapban- hétfőtől-péntekig - a szentmise után elimádkozzuk a lorettói litániát.
+
+Imádkozzunk az érettségizőkért, valamint mindazokért, akik a jövő héten adnak számot tudásukról.
+
+ISTEN ÉLTESSE AZ ÉDESANYÁKAT!!!
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. MÁJUS 6-12.**
+
+2019\.MÁJUS 6. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 7. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 8. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 9. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.MÁJUS 10. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.MÁJUS 11. Szombat **16 óra 30 perctől- 17óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\.MÁJUS 12. Vasárnap **7 óra 50 perctől- 8 óra 45 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **HÚSVÉT 2. VASÁRNAPJÁN**
 
 **2019.április 28 - május 5.**
