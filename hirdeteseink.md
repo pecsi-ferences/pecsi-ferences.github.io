@@ -5,6 +5,86 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**HÚSVÉT 4. VASÁRNAPJÁN**
+
+**2019.május 12-19.**
+
+Ma- a Jó Pásztor vasárnapján- a papnevelés céljaira van templomi gyűjtés.
+
+Ma - mivel a hónap második vasárnapja van- 16 órától szentségimádás lesz a templomban.
+
+Hétfőn az esti szentmisét Fényi Sándor kanonok úrért fogjuk bemutatni halálának 17. évfordulóján.
+
+Kedden 18 órakor is lesz szentmise templomunkban. A Collegium Seraphicum tartja Te Deumát. A hálaadó szentmise főcelebránsa Szabó József ferences atya lesz.
+
+Szombaton 10 órától elsőáldozási főpróba és gyóntatás lesz templomunkban.
+
+Ugyancsak szombaton 17 órakor német mise lesz templomunkban. A szentmisét Berecz Tibor atya fogja celebrálni.
+
+Jövő vasárnap 10 órakor lesz az elsőáldozás.
+
+Ugyancsak jövő vasárnap a 17 órakor kezdődő szentmisét Dr. Szalay János tanár úr tiszteletére fogjuk bemutatni, halálának 4. évfordulójára.
+
+**_A Pécsi Egyházmegye Ifjúsági Referatúrájának hírei:_**
+
+**Július 5-7. között megrendezésre kerül a 37. Máriagyűdi Ifjúsági Találkozó (MIT). Hamarosan további információkat olvashattok az Ifjúsági Referatúra oldalain, és megkezdődik a jelentkezés.**
+
+(Címe: **"**Hol a te Istened?"
+
+"Megtalálod, ha teljes szívedből és teljes lelkedből kutatsz utána" (MTörv 4,29)
+
+Főelőadó: Versegi Beáta nővér)
+
+\- **Május 15-én, a most következő szerdán 19:30-21:00 között Párkapcsolati Műhely lesz a Művészetek és Irodalom Házában.**
+
+(Címe: "Magunkra maradtunk... vagy közösségben másokkal?")
+
+Május hónapban- hétfőtől-péntekig - a szentmise után elimádkozzuk a lorettói litániát.
+
+Imádkozzunk továbbra is az érettségizőkért, valamint mindazokért, akik a jövő héten adnak számot tudásukról.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019.MÁJUS 12-19.**
+
+2019\.MÁJUS 13. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 14. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.MÁJUS 15. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 16. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELNYÖK ÚR
+
+2019\.MÁJUS 17. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR.VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 18. Szombat **16 óra 30 perctől- 17óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.MÁJUS 12. Vasárnap **7 óra 50 perctől- 8 óra 45 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **HÚSVÉT 3. VASÁRNAPJÁN**
 
 **2019.május 5-12.**
