@@ -75,7 +75,7 @@ DOHÁNY ZOLTÁN PLÉBÁNOS
 
 DR. VARGA LÁSZLÓ KANONOK ÚR
 
-2018\.MÁJUS 12. Vasárnap **7 óra 50 perctől- 8 óra 45 percig**
+2018\.MÁJUS 19. Vasárnap **7 óra 50 perctől- 8 óra 45 percig**
 
 DOHÁNY ZOLTÁN PLÉBÁNOS
 
