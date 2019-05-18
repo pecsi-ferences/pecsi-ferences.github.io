@@ -5,6 +5,62 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**HÚSVÉT 5. VASÁRNAPJÁN**
+
+**2019.május 19-26.**
+
+Ma 10 órakor lesz az elsőáldozás templomunkban.
+
+Ma a 17 órakor kezdődő szentmisét Dr. Szalay János tanár úr tiszteletére fogjuk bemutatni, halálának 4. évfordulójára.
+
+Május hónapban- hétfőtől-péntekig - a szentmise után elimádkozzuk a Lorettói litániát.
+
+**A PÉCSI EGYHÁZMEGYE IFJÚSÁGI REFERATÚRÁJÁNAK HÍREI (KATIFI)**
+
+**Július 5-7. között kerül megrendezésre a 37. Máriagyűdi Ifjúsági Találkozó "HOL A TE ISTENED?" címmel. Hétfőtől (május 20.) az információk és a jelentkezés elérhető lesz az Ifjúsági Referatúra Facebook-oldalain és plakátokon.**
+
+**-Augusztus 1-6. között 16-30 éves korosztály (!) részvételével a Katifi csapatot szervez Međugorjébe a Mladifestre (Ifjúsági Fesztivál). A 47 helyből 24 már foglalt. További információk és jelentkezés a Facebook-oldalainkon található ŰRLAPON keresztül.** [https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit](https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit "https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit")
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. MÁJUS 20-26.**
+
+2019\.MÁJUS 20. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 21. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.MÁJUS 22. Szerda **16 óra 30 perctől-17óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 23. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELNYÖK ÚR
+
+2019\.MÁJUS 24. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR.VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 25. Szombat **16 óra 30 perctől- 17óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ PLÉBÁNOS
+
+2018\.MÁJUS 26. Vasárnap **7 óra 50 perctől- 8 óra 45 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **HÚSVÉT 4. VASÁRNAPJÁN**
 
 **2019.május 12-19.**
