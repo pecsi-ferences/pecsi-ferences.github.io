@@ -5,6 +5,58 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**HÚSVÉT 6. VASÁRNAPJÁN**
+
+**2019.május 26 - június 2.**
+
+Hétfőn és kedden 17 óra 45 perctől a kórházlelkészség munkatársai, önkéntesei találkoznak a plébánián.
+
+Szerdán 17 óra 45 perctől Olvasóköri találkozó lesz a plébánián.
+
+Május hónapban- hétfőtől-péntekig - a szentmise után elimádkozzuk a lorettói litániát.
+
+Jövő vasárnap Urunk Mennybemenetelének Főünnepe lesz egyházunkban.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. MÁJUS 26 - JÚNIUS 2.**
+
+2019\.MÁJUS 27. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.MÁJUS 28. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.MÁJUS 29. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.MÁJUS 30. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.MÁJUS 31. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 1. Szombat **16 óra 30 perctől- 17óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. JÚNIUS 2. Vasárnap **7 óra 50 perctől- 8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **HÚSVÉT 5. VASÁRNAPJÁN**
 
 **2019.május 19-26.**
@@ -41,7 +93,7 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 
 **16 óra 30 perctől-17 óra 30 percig**
 
-DR. NYÚL VIKTOR PASZTORÁLIS HELNYÖK ÚR
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
 
 2019\.MÁJUS 24. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
 
@@ -119,7 +171,7 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 
 **16 óra 30 perctől-17 óra 30 percig**
 
-DR. NYÚL VIKTOR PASZTORÁLIS HELNYÖK ÚR
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
 
 2019\.MÁJUS 17. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
 
@@ -235,7 +287,7 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 
 **16 óra 30 perctől-17 óra 30 percig**
 
-DR. NYÚL VIKTOR PASZTORÁLIS HELNYÖK ÚR
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
 
 2019\.MÁJUS 3. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
 
@@ -301,7 +353,7 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 
 **16 óra 30 perctől-17 óra 30 percig**
 
-DR. NYÚL VIKTOR PASZTORÁLIS HELNYÖK ÚR
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
 
 2019\.ÁPRILIS 26. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
 
