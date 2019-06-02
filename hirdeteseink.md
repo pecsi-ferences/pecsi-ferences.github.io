@@ -5,6 +5,66 @@ title: Hirdetéseink
 ---
 **HIRDETÉSEINK**
 
+**URUNK MENNYBEMENETELÉNEK FŐÜNNEPÉN**
+
+**2019.június 2-9.**
+
+Ma az esti szentmisén a Szeráfi Kórus teljesít zenei szolgálatot Nagy Ernő karnagy úr vezetésével.
+
+Kedden 17 óra 45 perctől filmvetítés lesz a plébánián. Teréz anya életéről nézünk meg egy játékfilmet. A film címe: Isten szegényeinek nevében. Játékidő 89 perc.
+
+Szombaton 16 óra 15 perc Zsolozsma lesz templomunkban a Győri Czuczor Gergely Bencés Gimnázium Fiúkórusának (5fő) vezetésével (előadásában). A 17 órakor kezdődő szentmisében a Győri Czuczor Gergely Bencés Gimnázium Fiúkórusa- Collegium Musicum Jaurinense teljesít zenei szolgálatot.
+
+Jövő vasárnap lesz Pünkösd Főünnepe. A hagyományos második vasárnapi szentségimádást a jövő vasárnapon nem tartjuk meg, hanem áthelyezzük 2019. június 22-re, mert ezen a napon világméretű szentségimádás lesz egyházunkban a Nemzetközi Eucharisztikus Kongresszusra való készület jegyében.
+
+A PÉCSI EGYHÁZMEGYE IFJÚSÁGI REFERATÚRÁJÁNAK (KATIFI) HÍREI:
+
+Július 5-7. között lesz a 37. MIT (Máriagyűdi Ifjúsági Találkozó) "HOL A TE ISTENED?" címmel. Információk és a jelentkezés elérhető az Ifjúsági Referatúra Facebook-oldalain és plakátokon: [https://www.facebook.com/events/1142367745951338/](https://www.facebook.com/events/1142367745951338/ "https://www.facebook.com/events/1142367745951338/")
+
+\-Augusztus 1-6. között 16-30 éves korosztály (!) részvételével a Katifi csapatot szervez Međugorjébe a Mladifestre (Ifjúsági Fesztivál, amelyre még lehet jelentkezni. További információk és jelentkezés a Facebook-oldalainkon található ŰRLAPON keresztül. [https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit](https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit "https://docs.google.com/forms/d/1cWGhwoxZA8cduQFcZo6Lu_O9UBcCIVPWhaUAQ9XhWoc/edit")
+
+\-Következő szerdán este 19:30-21:00 csendes szentségimádás (1. szerda) lesz a Dzsámiban. Kiváló lehetőség a vizsgák között lelkileg is összeszedni magunkat.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. JÚNIUS 3-9.**
+
+2019\.JÚNIUS 3. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.JÚNIUS 4. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.JÚNIUS 5. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 6. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.JÚNIUS 7. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR.VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 8. Szombat **16 óra 30 perctől- 17óra 30 percig gyóntat**
+
+DOHÁNY ZOLÁN PLÉBÁNOS
+
+2018\. JÚNIUS 9. Vasárnap **7 óra 50 perctől- 8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK**
+
 **HÚSVÉT 6. VASÁRNAPJÁN**
 
 **2019.május 26 - június 2.**
