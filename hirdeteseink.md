@@ -3,6 +3,74 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK- PÜNKÖSD FŐÜNNEPÉN**
+
+**2019.június 9-16.**
+
+Ma van Pünkösd Főünnepe. A hagyományos második vasárnapi szentségimádást ma nem tartjuk meg, hanem áthelyezzük 2019. június 22-re, mert ezen a napon világméretű szentségimádás lesz egyházunkban a Nemzetközi Eucharisztikus Kongresszusra való készület jegyében.
+
+Hétfőn 17 órakor lesz szentmise templomunkban.
+
+Kedden a Szent Antal áhítatosság elmarad, mert csütörtökön lesz Szent Antal ünnepe egyházunkban és akkor fogjuk megtartani.
+
+Szombaton lesz a papszentelés a Székesegyházban. Imádkozzunk a szentelendőkért!
+
+Megjelent a Barátok Lapja- plébániai tájékoztató - júniusi száma.
+
+A PÉCSI EGYHÁZMEGYE Továbbra is várja a jelentkezőket az özvegyek és gyászolók számára hirdetett lelkigyakorlatra. Ezen az alkalmon Máriagyűd csendjében a közös imádság, szentírásolvasás, beszélgetések, előadások által szeretnénk segíteni a gyászban szenvedő testvéreink gyógyulását és reményben való megerősödését. **Időpont:** 2019. június 21-23 (pénteken délutáni érkezéssel, vasárnap ebéddel zárulóan; részletes programot az időponthoz közeledve küldünk).**Helyszín:** Máriagyűd, Domus Mariae Zarándokház **A lelkigyakorlat vezetője:** Nyúl Viktor, pasztorális helynök
+
+A PÉCSI EGYHÁZMEGYE IFJÚSÁGI REFERATÚRÁJÁNAK (KATIFI) HÍREI:
+
+Mindjárt itt a papszentelés!
+
+Idén is lesz előtte pénteken, június 14-én a szentelendőkért végzett zarándoklat.
+
+Indulás: Mecseknádasd Árpád-kori templom 17:00  
+ Püspökszentlászló (10 km): itt 20:00-kor püspöki mise a szentelendőkért, éjfélig pedig szentségimádást is tartunk, ami után szállást tudunk biztosítani (saját hálózsák szükséges!)  
+ - ezután még 20 km Pécsig  
+   
+ **Bármely szakaszon szabadon be lehet csatlakozni!**
+
+[https://www.facebook.com/events/1019016978288853/](https://www.facebook.com/events/1019016978288853/ "https://www.facebook.com/events/1019016978288853/")
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. JÚNIUS 10-16.**
+
+2019\.JÚNIUS 10. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 11. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.JÚNIUS 12. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 13. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.JÚNIUS 14. Péntek **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR.VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 15. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. JÚNIUS 16. Vasárnap **7 óra 50 perctől- 8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-16 óra 50 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
 **HIRDETÉSEINK**
 
 **URUNK MENNYBEMENETELÉNEK FŐÜNNEPÉN**
