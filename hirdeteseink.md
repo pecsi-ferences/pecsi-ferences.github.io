@@ -3,6 +3,54 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK- SZENTHÁROMSÁG VASÁRNAPJÁN**
+
+**2019.június 16-23.**
+
+Szombaton 16 órától szentségimádási órát tartunk templomunkban,- mert ezen a napon világméretű szentségimádás lesz egyházunkban- a Nemzetközi Eucharisztikus Kongresszusra való készület jegyében.
+
+Jövő vasárnap lesz Úrnapja, vagyis Krisztus Testének és Vérének Főünnepe egyházunkban.
+
+A PÉCSI EGYHÁZMEGYE Továbbra is várja a jelentkezőket az özvegyek és gyászolók számára hirdetett lelkigyakorlatra. Ezen az alkalmon Máriagyűd csendjében a közös imádság, szentírásolvasás, beszélgetések, előadások által szeretnénk segíteni a gyászban szenvedő testvéreink gyógyulását és reményben való megerősödését. **Időpont:** 2019. június 21-23 (pénteken délutáni érkezéssel, vasárnap ebéddel zárulóan; részletes programot az időponthoz közeledve küldünk).**Helyszín:** Máriagyűd, Domus Mariae Zarándokház **A lelkigyakorlat vezetője:** Nyúl Viktor, pasztorális helynök
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. JÚNIUS 17-23.**
+
+2019\.JÚNIUS 17. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.JÚNIUS 18. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.JÚNIUS 19. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 20. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.JÚNIUS 21. Péntek **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 22. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. JÚNIUS 23. Vasárnap **7 óra 50 perctől- 8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-16 óra 50 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
 **HIRDETÉSEINK- PÜNKÖSD FŐÜNNEPÉN**
 
 **2019.június 9-16.**
@@ -26,10 +74,11 @@ Mindjárt itt a papszentelés!
 Idén is lesz előtte pénteken, június 14-én a szentelendőkért végzett zarándoklat.
 
 Indulás: Mecseknádasd Árpád-kori templom 17:00  
- Püspökszentlászló (10 km): itt 20:00-kor püspöki mise a szentelendőkért, éjfélig pedig szentségimádást is tartunk, ami után szállást tudunk biztosítani (saját hálózsák szükséges!)  
- - ezután még 20 km Pécsig  
-   
- **Bármely szakaszon szabadon be lehet csatlakozni!**
+Püspökszentlászló (10 km): itt 20:00-kor püspöki mise a szentelendőkért, éjfélig pedig szentségimádást is tartunk, ami után szállást tudunk biztosítani (saját hálózsák szükséges!)
+
+* ezután még 20 km Pécsig
+
+**Bármely szakaszon szabadon be lehet csatlakozni!**
 
 [https://www.facebook.com/events/1019016978288853/](https://www.facebook.com/events/1019016978288853/ "https://www.facebook.com/events/1019016978288853/")
 
