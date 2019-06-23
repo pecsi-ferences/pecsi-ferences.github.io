@@ -9,7 +9,7 @@ title: Hirdetéseink
 
 Hétfőn és kedden a kórházlelkészség önkénteseit várjuk a plébániára. Az összejövetele kezdési időpontja 17 óra 45 perc.
 
-Szerdán a 17 óra szentmisét Wolleszky Tibor atyáért fogjuk bemutatni, halálának negyedik évfordulóján.
+Szerdán a 17 órai szentmisét Wolleszky Tibor atyáért fogjuk bemutatni, halálának negyedik évfordulóján.
 
 Pénteken 17 óra 45 perctől Olvasóköri találkozót tartunk a plébánián.
 
