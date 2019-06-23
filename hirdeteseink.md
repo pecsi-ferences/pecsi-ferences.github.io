@@ -3,6 +3,56 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK- ÚRNAPJÁN**
+
+**2019.június 23-30.**
+
+Hétfőn és kedden a kórházlelkészség önkénteseit várjuk a plébániára. Az összejövetele kezdési időpontja 17 óra 45 perc.
+
+Szerdán a 17 óra szentmisét Wolleszky Tibor atyáért fogjuk bemutatni, halálának negyedik évfordulóján.
+
+Pénteken 17 óra 45 perctől Olvasóköri találkozót tartunk a plébánián.
+
+Pénteken lesz Jézus Szentséges Szívének főünnepe egyházunkban.
+
+Szombaton Szent Péter és Szent Pál apostolok főünnepét ünnepeljük.
+
+Jövő vasárnap Péter-fillér gyűjtés lesz az ország katolikus templomaiban.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. JÚNIUS 24-30.**
+
+2019\.JÚNIUS 24. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.JÚNIUS 25. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 26. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 27. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.JÚNIUS 28. Péntek **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚNIUS 29. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. JÚNIUS 30. Vasárnap **7 óra 50 perctől- 8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
 **HIRDETÉSEINK- SZENTHÁROMSÁG VASÁRNAPJÁN**
 
 **2019.június 16-23.**
