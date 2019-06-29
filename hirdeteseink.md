@@ -3,6 +3,46 @@ layout: default
 title: Hirdetéseink
 
 ---
+ **HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP**
+
+**2019.június 30-július 7.**
+
+Ma Péter-fillér gyűjtés van az ország katolikus templomaiban.
+
+Kedden Sarlós Boldogasszony ünnepe lesz egyházunkban.
+
+Szerdán a 17 órai szentmisét Dr.Goják János lelki üdvéért mutatjuk be.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. JÚLIUS 1-7.**
+
+2019\.JÚLIUS 1. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 2. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 3. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 4. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 5. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 6. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. JÚLIUS 7. Vasárnap **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK- ÚRNAPJÁN**
 
 **2019.június 23-30.**
