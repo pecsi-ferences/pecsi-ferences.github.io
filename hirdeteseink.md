@@ -3,7 +3,53 @@ layout: default
 title: Hirdetéseink
 
 ---
- **HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP**
+**HIRDETÉSEINK ÉVKÖZI 14. VASÁRNAP**
+
+**2019.július 7-14.**
+
+Csütörtökön lesz Szent Benedek apát, Európa Fővédőszentjének Ünnepe. A 17 órai szentmisét a Bencés Rendért fogjuk bemutatni.
+
+Jövő vasárnap-mivel a hónap második vasárnapja lesz-16 órától szentségimádási órát tartunk templomunkban.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. JÚLIUS 8-14.**
+
+2019\.JÚLIUS 8. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 9. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 10. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 11. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ _KANONOK ÚR_
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+_2019.JÚLIUS 12. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**_
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 13. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\. JÚLIUS 14. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP**
 
 **2019.június 30-július 7.**
 
