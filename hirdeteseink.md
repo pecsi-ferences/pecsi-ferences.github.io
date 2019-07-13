@@ -3,6 +3,60 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 15. VASÁRNAP**
+
+**2019.július 14-21.**
+
+Ma-mivel a hónap második vasárnapja van-16 órától szentségimádási órát tartunk templomunkban.
+
+Hétfőn- a híres ferences teológus- Szent Bonaventúra püspök és egyháztanító emléknapja lesz egyházunkban.
+
+Kedden a Kármelhegyi Boldogasszony emléknapját tartjuk egyházunkban.
+
+Csütörtökön Szent Hedvig királynő emléknapját ünnepeljük.
+
+Szombaton 17 órakor német-magyar kétnyelvű szentmise lesz templomunkban. A szentmisét Rosner Zsolt plébános atya fogja celebrálni.
+
+Már most hirdetjük a kedves testvéreknek, hogy 2019. július 28-án (két hét múlva vasárnap) a 17 órai szentmisében kiszolgáltatjuk a betegek szentségét mindazoknak, akik azt kérik.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. JÚLIUS 15-21.**
+
+2019\.JÚLIUS 15. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 16. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 17. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 18. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ _KANONOK ÚR_
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. NYÚL VIKTOR PASZTORÁLIS IRODAVEZETŐ ÚR
+
+_2019.JÚLIUS 19. Péntek **16 óra 30 perctől- 16 óra 50 percig gyóntat**_
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 20. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\. JÚLIUS 21. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 14. VASÁRNAP**
 
 **2019.július 7-14.**
