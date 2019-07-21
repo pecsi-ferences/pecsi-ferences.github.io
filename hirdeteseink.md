@@ -3,6 +3,46 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 16. VASÁRNAP**
+
+**2019.július 21-28.**
+
+Hirdetjük a kedves testvéreknek, hogy 2019. július 28-án (a jövő vasárnapon) a 17 órai szentmisében kiszolgáltatjuk a betegek szentségét mindazoknak, akik azt kérik.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. JÚLIUS 22-28.**
+
+2019\.JÚLIUS 22. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 23. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 24. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 25. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ _KANONOK ÚR_
+
+_2019.JÚLIUS 26. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**_
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.JÚLIUS 27. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.JÚLIUS 28. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 15. VASÁRNAP**
 
 **2019.július 14-21.**
