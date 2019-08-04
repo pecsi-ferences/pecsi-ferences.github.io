@@ -3,6 +3,62 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 18. VASÁRNAP**
+
+**2019.augusztus 4-11.**
+
+A testvérek figyelmébe ajánljuk a Havas Boldogasszony Búcsú programjait. Részleteket a kihelyezett plakáton lehet megtudni.
+
+Kedden lesz Urunk Színeváltozásának Ünnepe.
+
+Jövő vasárnap-mivel a hónap második vasárnapja- 16 órától szentségimádási órát tartunk templomunkban.
+
+**A 2019-ES HAVAS BOLDOGASSZONY BÚCSÚ PROGRAMJA**
+
+**Augusztus 4-én** (vasárnap) 7.30 órakor imádságos, énekes körmenet indul a Szent Ágoston-templomtól a Havi-hegyre. 8.30 órakor horvát nyelvű szentmise lesz. 10 órakor főtisztelendő Kovács József komlói káplán úr végzi a szentmisét, a végén újmisés áldásban részesítve a jelenlévőket. 17.30 órakor rózsafüzért imádkoznak. 18.10 órakor ünnepélyes vesperást (esti dicséretet) énekelnek. 19.00 órakor szabadtéri szentmisét mutat be excellenciás és főtisztelendő Dr. Udvardy György pécsi megyéspüspök. Utána körmenetre került sor a kegykép másolatával a Havi-hegyi sétányon. 21.00 órakor görög katolikus szent liturgiát végez főtisztelendő Zajácz Gábor parókus. Szentségimádás lesz éjfélig (23.00 órától csendes adorációval). Éjfélkor csendes szentmisét mutat be az elhunyt zarándokokért főtisztelendő Kövesi Ferenc kerületi esperes, a Pécs-Szent II. János Pál Plébánia plébánosa. Azt követően virrasztásra lesz lehetőség a templomban reggelig.
+
+**Augusztus 5-én** (hétfőn) 7.30 órakor imádságos, énekes körmenet indul a Szent Ágoston-templomtól a Havi-hegyre. 8.30 órakor német nyelvű szentmisét mutat be főtisztelendő Lápossy Péter iskolalelkész, pécs-székesegyházi kisegítő lelkész úr. 10 órakor főtisztelendő Molnár Erik atya, a Pécs-Jézus Szíve Plébánia káplánja végzi a szentmisét, a végén újmisés áldásban részesítve a jelenlévőket. 14.00 órakor a rácvárosi Jézus Szíve Családja közösség imaórája lesz. 15.00 órakor rózsafüzér imádság kezdődik, amit loretói litánia követ. 16.00 órakor szentmisét mutat be főtisztelendő Kárász Gábor szekszárdi káplán úr, a végén újmisés áldásban részesítve a jelenlévőket. A szentmisét követően körmenetet tartanak a kegykép másolatával, majd szerény agapéra várják a jelenlévőket.
+
+Máger Róbert püspöki irodaigazgató-helyettes, templomigazgató mindenkit sok szeretettel vár a Szűzanya 322 éves pécsi kegytemplomába!
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. AUGUSZTUS 5-11.**
+
+2019\.AUGUSZTUS 5. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 6. Kedd **16 óra 50 perctől-16 óra 50 percig gyóntat**
+
+DR.VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 7. Szerda **16 óra 50 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 8. Csütörtök **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+16 óra 30 perctől-17 óra 30 percig gyóntat
+
+DR. NYÚL VIKTOR PASZTORÁLIS IRODAVEZETŐ ÚR
+
+_2019.AUGUSZTUS 9. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**_
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 10. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.AUGUSZTUS 11. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 17. VASÁRNAP**
 
 **2019.július 28-augusztus 4.**
