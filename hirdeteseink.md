@@ -3,6 +3,61 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 19. VASÁRNAP**
+
+**2019.augusztus 11-18.**
+
+Ma - mivel a hónap második vasárnapja van- 16 órától szentségimádási órát tartunk templomunkban.
+
+Csütörtökön lesz Nagyboldogasszony Parancsolt Főünnepe. Templomunkban reggel 8 órakor és 17 órakor is lesz szentmise.
+
+Csütörtökön a 17 órai szentmisét Kersák Pál atya lelki üdvéért mutatjuk be, halálának 9. évfordulójára.
+
+Szombaton 17 órakor német-magyar nyelvű szentmise lesz templomunkban. A szentmisét Lápossy Péter atya fogja celebrálni.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. AUGUSZTUS 12-18.**
+
+2019\.AUGUSZTUS 12. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.AUGUSZTUS 13. Kedd **16 óra 50 perctől-16 óra 50 percig gyóntat**
+
+DR.VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 14. Szerda **16 óra 50 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 15. Csütörtök **7 óra 50 perctől-8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+_2019.AUGUSZTUS 16. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**_
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 17. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\.AUGUSZTUS 18. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+| --- | --- |
+|  |  |
+|  |  |
+|  |  |  |
+
 **HIRDETÉSEINK ÉVKÖZI 18. VASÁRNAP**
 
 **2019.augusztus 4-11.**
