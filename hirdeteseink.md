@@ -3,6 +3,58 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 20. VASÁRNAP**
+
+**2019.augusztus 18-25.**
+
+Kedden lesz Szent István Király - Magyarország Fővédőszentjének - Főünnepe. Templomunkban reggel 8 órakor és 17 órakor is lesz szentmise.
+
+Pénteken érkezik Pécsre a Nemzetközi Eucharisztikus Kongresszus Missziós Keresztje. A Pécsi Székesegyházban vasárnapig színes lelki programok lesznek. Plébániánk szombaton 12 órától-14 óráig és vasárnap 12 órától-13 óráig tart imaórákat a Pécsi Bazilikában. Bátorítjuk a Kedves Testvéreket az imaórához való csatlakozásra!
+
+A Missziós Kereszt köré csoportosuló lelki programokról bővebben a kihelyezett plakáton tájékozódhatunk.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. AUGUSZTUS 19-25.**
+
+2019\.AUGUSZTUS 19. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 20. Kedd **7 óra 50 perctől- 8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 21. Szerda **16 óra 50 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 22. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+_2019.AUGUSZTUS 23. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**_
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 24. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.AUGUSZTUS 25. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 19. VASÁRNAP**
 
 **2019.augusztus 11-18.**
