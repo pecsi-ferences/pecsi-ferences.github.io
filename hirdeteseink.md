@@ -13,6 +13,8 @@ Pénteken érkezik Pécsre a Nemzetközi Eucharisztikus Kongresszus Missziós Ke
 
 A Missziós Kereszt köré csoportosuló lelki programokról bővebben a kihelyezett plakáton tájékozódhatunk.
 
+Pénteken lesz a Pécsi Egyházmegye 1010. születésnapja. Ezen a napon templomunkban nem lesz szentmise, hanem csatlakozunk a 18 órai székesegyházi szentmiséhez.
+
 **AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. AUGUSZTUS 19-25.**
 
 2019\.AUGUSZTUS 19. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
@@ -38,10 +40,6 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 **16 óra 30 perctől-17 óra 30 percig**
 
 DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
-
-_2019.AUGUSZTUS 23. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**_
-
-DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.AUGUSZTUS 24. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
 
