@@ -3,6 +3,56 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 21. VASÁRNAP**
+
+**2019.augusztus 25 - szeptember 1.**
+
+Pénteken érkezett Pécsre a Nemzetközi Eucharisztikus Kongresszus Missziós Keresztje. A Pécsi Székesegyházban vasárnapig színes lelki programok lesznek. Plébániánk vasárnap 12 órától-13 óráig tart imaórát a Pécsi Bazilikában. Bátorítjuk a Kedves Testvéreket az imaórához való csatlakozásra!
+
+A Missziós Kereszt köré csoportosuló lelki programokról bővebben a kihelyezett plakáton tájékozódhatunk.
+
+Most vasárnap a szentmiséket egyházmegyénk új püspökéért fogjuk felajánlani.
+
+Kedden 17 óra 45 percre a kórházlelkészség önkénteseit várjuk a plébániára.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. AUGUSZTUS 26- SZEPTEMBER 1.**
+
+2019\.AUGUSZTUS 26. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 27. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.AUGUSZTUS 28. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 29. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.AUGUSZTUS 30. Péntek **16 óra 30 perctől- 17 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.AUGUSZTUS 31. Szombat **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.SZEPTEMBER 1. Vasárnap **7 óra 30 perctől- 7 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 20. VASÁRNAP**
 
 **2019.augusztus 18-25.**
