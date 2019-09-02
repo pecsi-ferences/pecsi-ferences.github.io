@@ -3,6 +3,52 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 22. VASÁRNAP**
+
+**2019. szeptember 1-8.**
+
+**Szerdán reggel 7 órakor a Magyar Katolikus Püspöki Konferencia tagjai a korábbi hirdetésekkel ellentétben, nem a mi templomunkban, hanem a Székesegyházban mutatnak be szentmisét!**
+
+Jövő vasárnap-mivel a hónap második vasárnapja lesz - 16 órától szentségimádást tartunk a templomban.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. SZEPTEMBER 2-8.**
+
+2019\.SZEPTEMBER 2. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.SZEPTEMBER 3. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR                                     
+
+2019\.SZEPTEMBER 4. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.SZEPTEMBER 5. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.SZEPTEMBER 6. Péntek **16 óra 30 perctől- 17 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.SZEPTEMBER 7. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2018\.SZEPTEMBER 8. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 21. VASÁRNAP**
 
 **2019.augusztus 25 - szeptember 1.**
