@@ -3,6 +3,56 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 23. VASÁRNAP**
+
+**2019. szeptember 8-15.**
+
+Ma - mivel a hónap második vasárnapja van - 16 órától szentségimádást tartunk a templomban.
+
+Kedden 18 órakor lesz a Ferences Collegium Seraphicum tanévnyitó szentmiséje templomunkban. Ezen a napon 17 órakor is lesz szentmise.
+
+Jövő vasárnap 17 órakor hittanosaink számára tartunk tanévnyitó szentmisét templomunkban.
+
+2019\.szeptember 17-én lesz templomunk búcsúnapja. Ezen a napon 17 órakor négy újmisés fog misézni templomunkban. Jöjjünk el minél többen erre a szentmisére.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. SZEPTEMBER 9-15.**
+
+2019\.SZEPTEMBER 9. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.SZEPTEMBER 10. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.SZEPTEMBER 11. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.SZEPTEMBER 12. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.SZEPTEMBER 13. Péntek **16 óra 30 perctől- 16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.SZEPTEMBER 14. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\.SZEPTEMBER 15. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 22. VASÁRNAP**
 
 **2019. szeptember 1-8.**
@@ -19,7 +69,7 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.SZEPTEMBER 3. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
 
-DR. VARGA LÁSZLÓ KANONOK ÚR                                     
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2019\.SZEPTEMBER 4. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
 
