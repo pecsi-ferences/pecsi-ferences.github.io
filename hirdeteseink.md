@@ -3,6 +3,89 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 24. VASÁRNAP**
+
+**2019. szeptember 15-22.**
+
+Ma 17 órakor hittanosaink számára tartunk tanévnyitó szentmisét templomunkban.
+
+Kedden lesz templomunk búcsúnapja. Ezen a napon 17 órakor négy újmisés fog misézni templomunkban. Jöjjünk el minél többen erre a szentmisére.
+
+Szombaton 10 órára szeretettel várjuk hittanos foglalkozásra a templomba azon hittanosainkat, akik szentségek vételére (elsőáldozás, bérmálás) szeretnének készülni, ezen hittanosok szüleit pedig szülői tájékoztatóra invitáljuk.
+
+Szombaton 17 órakor német mise lesz templomunkban. A szentmisét Dr. Horváth István nagyprépost úr celebrálja.
+
+Vasárnap a 17 órakor kezdődő szentmisében a Szeráfi kórus teljesít zenei szolgálatot.
+
+A Magyar Katolikus Püspöki Konferencia 2013 szeptemberében rendezte meg első alkalommal a **Katolikus Társadalmi Napok** elnevezésű programot, melynek kiemelt célja az Egyház társadalmi tanításának mind teljesebb körű megismertetése. Az elmúlt hat év alatt a rendezvény – missziós jellege mellett – a társadalom meghatározó és országos népszerűségnek örvendő eseményévé vált.
+
+A 2019-es KATTÁRS-nak otthont adó Pécsi Egyházmegye a programsorozat kiemelt témájaként **a jövő társadalmát** állította az esemény középpontjába. Célunk, hogy minél átfogóbb képet adjunk azokról a példaértékű kezdeményezésekről is, amelyekről még keveset hallani. A rendezvény így az egyház karitatív, oktatási, egészségügyi munkájában már elkötelezett emberek számára is találkozási fórum lehet.
+
+A rendezvény Pécs belvárosában **14 helyszínen** kap helyet, **37 sátorral**, **25 színpadi produkcióval**, **110 változatos programmal**, beszélgetésekkel, tevékenységüket, mindennapjaikat és céljaikat bemutató munkatársakkal és ismertetőkkel várja az érdeklődőket.
+
+| --- | --- |
+|  |  |
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. SZEPTEMBER 16-22.**
+
+2019\.SZEPTEMBER 16. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.SZEPTEMBER 17. Kedd **16 óra 30 perctől-17 óra 00 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.SZEPTEMBER 18. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.SZEPTEMBER 19. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.SZEPTEMBER 20. Péntek **16 óra 30 perctől- 16 óra 50 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.SZEPTEMBER 21. Szombat **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2018\.SZEPTEMBER 22. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**„Gyere el hozzám!”**
+
+**Otthoni időslátogatás.**
+
+**A fenti programot a Pécsi Egyházmegyei Katolikus Karitász hirdeti meg.**
+
+A programról röviden
+
+Az idős emberek sokszor maradnak egyedül önhibájukon kívül, olykor teljesen elszigetelődnek a külvilágtól. Ezt a helyzetet szeretnék feloldani olyan szociálisan érzékeny fiatalok segítségével, akik boldogabbá tehetik a magányos napokat.
+
+A programba olyan időseket kívánunk bevonni, akik egyedül töltik a mindennapjaikat, magányosak és igénylik a társaságot. A Pécsi Egyházmegyei Katolikus Karitász fiatal önkéntesei ebben tudnak segítséget nyújtani a heti rendszerességű találkozások során.
+
+A diákok a program ideje alatt heti rendszerességgel (alkalmanként 2 óra) segítik a bevásárlást, felolvasnak az időseknek vagy éppen csak beszélgetnek velük, illetve az alkalmak során közelebb kerülhetnek az idősebb generáció képviselőihez.
+
+A programról bővebb információt a plébános atya tud adni.
+
+Besenczi Zsolt
+
+igazgató
+
+Pécsi Egyházmegyei Katolikus Karitász
+
 **HIRDETÉSEINK ÉVKÖZI 23. VASÁRNAP**
 
 **2019. szeptember 8-15.**
