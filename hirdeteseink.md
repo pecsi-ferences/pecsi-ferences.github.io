@@ -9,7 +9,7 @@ title: Hirdetéseink
 
 Ma a Szentírás Vasárnapját ünnepeljük.
 
-Hétfőn 18 óra 30 perckor Filmvetítést tartunk. A Piadone nyomában című 90 perces magyar dokumentumfilmet vetítjük le. A filmvetítés után -20 órától- találkozási lehetőség nyílik Király Leventével a film rendezőjével. A szervezés megkönnyítése miatt azt kérjük a testvérektől, hogy aki szeretne részt venni ezen a programon, iratkozzon fel.
+Hétfőn 18 óra 30 perckor Filmvetítést tartunk. A Piadone nyomában című 90 perces magyar dokumentumfilmet vetítjük le. A filmvetítés után -20 órától- találkozási lehetőség nyílik Király Leventével a film rendezőjével. A szervezés megkönnyítése miatt azt kérjük a testvérektől, hogy aki szeretne részt venni ezen a programon, iratkozzon fel. Akiknek a 17 órai szentmise után problémát jelent a hazamenetel, majd az újbóli visszajövetel, azokat a testvéreinket szeretettel várjuk a mise után a plébánia tanácstermébe agapéra, beszélgetésre.
 
 Pénteken Assisi Szent Ferenc ünnepéhez kapcsolódóan elkezdődik őszi lelkigyakorlatunk. A lelkigyakorlatot a pénteki napon Horváth Lóránt Lengyeltóti Plébános vezeti. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében hangzik el az első lelkigyakorlatos beszéd.
 
@@ -90,7 +90,7 @@ Pénteken 18 óra 30 perctől Házas Hétvégés csoporttalálkozó lesz a pléb
 
 A Magyar Katolikus Püspöki Konferencia 2013 szeptemberében rendezte meg első alkalommal a **Katolikus Társadalmi Napok** elnevezésű programot, melynek kiemelt célja az Egyház társadalmi tanításának mind teljesebb megismertetése. Az elmúlt hat év alatt a rendezvény – missziós jellege mellett – a társadalom meghatározó és országos népszerűségnek örvendő eseményévé vált.
 
-A 2019-es KATTÁRS-nak otthont adó Pécsi Egyházmegye a programsorozat kiemelt témájaként **a jövő társadalmát__ állította az esemény középpontjába. Célunk, hogy minél átfogóbb képet adjunk azokról a példaértékű kezdeményezésekről is, amelyekről még keveset hallani. A rendezvény így az egyház karitatív, oktatási, egészségügyi munkájában már elkötelezett emberek számára is találkozási fórum lehet**. 2019.szeptember 27-29.**
+A 2019-es KATTÁRS-nak otthont adó Pécsi Egyházmegye a programsorozat kiemelt témájaként **a jövő társadalmát__ állította az esemény középpontjába. Célunk, hogy minél átfogóbb képet adjunk azokról a példaértékű kezdeményezésekről is, amelyekről még keveset hallani. A rendezvény így az egyház karitatív, oktatási, egészségügyi munkájában már elkötelezett emberek számára is találkozási fórum lehet__. 2019.szeptember 27-29.**
 
 A rendezvény Pécs belvárosában **14 helyszínen** kap helyet, **37 sátorral**, **25 színpadi produkcióval**, **110 változatos programmal**, beszélgetésekkel, tevékenységüket, mindennapjaikat és céljaikat bemutató munkatársakkal és ismertetőkkel várja az érdeklődőket.
 
