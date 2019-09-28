@@ -3,6 +3,79 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 26. VASÁRNAP**
+
+**2019. szeptember 29-október 6.**
+
+Ma a Szentírás Vasárnapját ünnepeljük.
+
+Hétfőn 18 óra 30 perckor Filmvetítést tartunk. A Piadone nyomában című 90 perces magyar dokumentumfilmet vetítjük le. A filmvetítés után -20 órától- találkozási lehetőség nyílik Király Leventével a film rendezőjével. A szervezés megkönnyítése miatt azt kérjük a testvérektől, hogy aki szeretne részt venni ezen a programon, iratkozzon fel.
+
+Pénteken Assisi Szent Ferenc ünnepéhez kapcsolódóan elkezdődik őszi lelkigyakorlatunk. A lelkigyakorlatot a pénteki napon Horváth Lóránt Lengyeltóti Plébános vezeti. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében hangzik el az első lelkigyakorlatos beszéd.
+
+Pénteken 18 óra 30 perctől Házas Hétvégés csoporttalálkozó lesz a plébánián.
+
+Szombaton folytatódik az őszi lelkigyakorlat. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében mondja el Lóránt atya a második lelkigyakorlatos beszédet.
+
+Vasárnap a lelkigyakorlat befejező napján Király József Szigetvári Plébános jön el hozzánk. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében tanít bennünket József atya. Jöjjünk el minél többen a lelkigyakorlatra.
+
+Az általános iskolások továbbtanulási jelentkezése kapcsán felhívjuk a szülők és a diákok figyelmét a régió egyházi iskolái között a pécsi Ciszterci Rend Nagy Lajos Gimnáziuma és Kollégiuma által biztosított lehetőségekre, melyekről október 5-én, szombaton délelőtt nyílt nap keretében is tájékozódhatnak az érdeklődők.
+
+A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
+
+A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-már október elejétől vihetünk nyomtatványt a templomból.
+
+| --- | --- |
+|  |  |
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. SZEPTEMBER 30-október 6.**
+
+2019\.SZEPTEMBER 30. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.OKTÓBER 1. Kedd **16 óra 50 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.OKTÓBER 2. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.OKTÓBER 3. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.OKTÓBER 4. Péntek **16 óra 30 perctől- 17 óráig gyóntat**
+
+HORVÁTH LÓRÁNT LENGYELTÓTI PLÉBÁNOS
+
+**17 órától-17 óra 45 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.OKTÓBER 5. Szombat **16 óra 30 perctől- 17 óra 00 óráig gyóntat**
+
+HORVÁTH LÓRÁNT LENGYELTÓTI PLÉBÁNOS
+
+**17 órától-17 óra 45 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.OKTÓBER 6. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
 **HIRDETÉSEINK ÉVKÖZI 25. VASÁRNAP**
 
 **2019. szeptember 22-29.**
@@ -17,12 +90,9 @@ Pénteken 18 óra 30 perctől Házas Hétvégés csoporttalálkozó lesz a pléb
 
 A Magyar Katolikus Püspöki Konferencia 2013 szeptemberében rendezte meg első alkalommal a **Katolikus Társadalmi Napok** elnevezésű programot, melynek kiemelt célja az Egyház társadalmi tanításának mind teljesebb megismertetése. Az elmúlt hat év alatt a rendezvény – missziós jellege mellett – a társadalom meghatározó és országos népszerűségnek örvendő eseményévé vált.
 
-A 2019-es KATTÁRS-nak otthont adó Pécsi Egyházmegye a programsorozat kiemelt témájaként **a jövő társadalmát** állította az esemény középpontjába. Célunk, hogy minél átfogóbb képet adjunk azokról a példaértékű kezdeményezésekről is, amelyekről még keveset hallani. A rendezvény így az egyház karitatív, oktatási, egészségügyi munkájában már elkötelezett emberek számára is találkozási fórum lehet**. 2019.szeptember 27-29.**
+A 2019-es KATTÁRS-nak otthont adó Pécsi Egyházmegye a programsorozat kiemelt témájaként **a jövő társadalmát__ állította az esemény középpontjába. Célunk, hogy minél átfogóbb képet adjunk azokról a példaértékű kezdeményezésekről is, amelyekről még keveset hallani. A rendezvény így az egyház karitatív, oktatási, egészségügyi munkájában már elkötelezett emberek számára is találkozási fórum lehet**. 2019.szeptember 27-29.**
 
 A rendezvény Pécs belvárosában **14 helyszínen** kap helyet, **37 sátorral**, **25 színpadi produkcióval**, **110 változatos programmal**, beszélgetésekkel, tevékenységüket, mindennapjaikat és céljaikat bemutató munkatársakkal és ismertetőkkel várja az érdeklődőket.
-
-| --- | --- |
-|  |  |
 
 **AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN-2019. SZEPTEMBER 23-29.**
 
@@ -54,7 +124,7 @@ DOHÁNY ZOLTÁN PLÉBÁNOS
 
 DOHÁNY ZOLTÁN PLÉBÁNOS
 
-2018\.SZEPTEMBER 29. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+2019\.SZEPTEMBER 29. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
 
 DOHÁNY ZOLTÁN PLÉBÁNOS
 
