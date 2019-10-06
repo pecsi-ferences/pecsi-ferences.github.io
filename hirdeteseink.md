@@ -3,6 +3,91 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 27. VASÁRNAP**
+
+**2019. október 6-13.**
+
+Ma a lelkigyakorlat befejező napján Király József Szigetvári Plébános jön el hozzánk. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében tanít bennünket József atya. Jöjjünk el minél többen a lelkigyakorlatra.
+
+Kedden 17 óra 45 perctől hitoktatói megbeszélés lesz a plébánián.
+
+Pénteken 19 órától Megbocsátás és elfogadás címmel tart előadást Dr. Domján Mihály a Pálos templomban.
+
+Jövő vasárnap- mivel a hónap második vasárnapja lesz- 16 órától szentségimádási órát tartunk a templomban.
+
+A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
+
+A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-már október elejétől vihetünk nyomtatványt a templomból.
+
+2019\.október 23-án zarándoklatot szervezünk Andocsra és Magyarszékre a Kármelita Kolostorba. Jelentkezési lap a sekrestyében kérhető.
+
+A tervezett program:
+
+Indulás reggel 8 órakor a volt tűzoltó laktanya elől (Rákóczi út). Érkezés Andocsra 9 óra 30 körül.
+
+10\.00 – Ünnepi szentmise.
+
+\- A kegyhely bemutatása
+
+11\.15 – Az Andocsi Mária Múzeum megtekintése.
+
+12\.00- Keresztút a templomban.
+
+12\.45- Indulás Magyarszékre.
+
+14\.00 Érkezés Magyarszékre
+
+\- A kolostor és a szerzetes közösség bemutatása
+
+\- Imádság
+
+\- Vásárlási lehetőség a kolostor termékiből.
+
+Érkezés Pécsre: 17 óra körül.
+
+| --- | --- |
+|  |  |
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. október 6-13.**
+
+2019\.OKTÓBER 7. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.OKTÓBER 8. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.OKTÓBER 9. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.OKTÓBER 10. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.OKTÓBER 11. Péntek **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.OKTÓBER 12. Szombat **16 óra 50 perctől- 17 óra 30 óráig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.OKTÓBER 13. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 26. VASÁRNAP**
 
 **2019. szeptember 29-október 6.**
