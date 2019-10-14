@@ -17,6 +17,8 @@ Szombaton 17 órakor német-magyar mise lesz templomunkban. A szentmisét Berecz
 
 Jövő vasárnap a 17 órakor kezdődő szentmisén Nagy Ernő Karnagy Úr vezetésével a Szeráfi Kórus teljesít zenei szolgálatot.
 
+Jövő vasárnap a missziók javára lesz országos templomi gyűjtés.
+
 2019\.október 23-án zarándoklatot szervezünk Andocsra és Magyarszékre a Kármelita kolostorba. Jelentkezési lap és részletes program a sekrestyében található.
 
 A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
