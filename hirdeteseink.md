@@ -161,7 +161,7 @@ Indulás reggel 8 órakor a volt tűzoltó laktanya elől (Rákóczi út). Érke
 
 \- Imádság
 
-\- Vásárlási lehetőség a kolostor termékiből.
+\- Vásárlási lehetőség a kolostor termékeiből.
 
 Érkezés Pécsre: 17 óra körül.
 
