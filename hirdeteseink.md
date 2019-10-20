@@ -3,6 +3,62 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 29. VASÁRNAP**
+
+**2019. október 20-27.**
+
+Ma a 17 órakor kezdődő szentmisén Nagy Ernő Karnagy Úr vezetésével a Szeráfi Kórus teljesít zenei szolgálatot.
+
+Ma a missziók javára lesz országos templomi gyűjtés.
+
+Kedden 17 óra 45 perctől filmvetítés lesz a plébánián. A mostani alkalommal egy olasz filmet tekintünk meg: „Ha Isten úgy akarja” címmel.
+
+Szerdán zarándoklatot szervezünk Andocsra és Magyarszékre a Kármelita kolostorba.
+
+**Pénteken lesz Szent Mór főünnepe, aki egyházmegyénk társvédőszentje. Ezen a napon Pécs városában - az esti órákban-csak a Dzsámiban lesz szentmise. Pénteken elmarad a közös rózsafüzér és a litánia imádság templomunkban. A templom zárva lesz. Jöjjünk el minél többen a Dzsámiba szentmisére!!!**
+
+Szombaton 10 órára várjuk az elsőáldozásra és bérmálásra készülő gyerekeket plébániai/templomi hittanra.
+
+A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-már október elejétől vihetünk nyomtatványt a templomból.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. október 21-27.**
+
+2019\.OKTÓBER 21. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.OKTÓBER 22. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.OKTÓBER 23. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KLANONOK ÚR
+
+2019\.OKTÓBER 24. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.OKTÓBER 26. Szombat **16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.OKTÓBER 27. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 28. VASÁRNAP**
 
 **2019. október 13-20.**
