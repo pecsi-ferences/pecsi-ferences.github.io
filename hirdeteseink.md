@@ -3,6 +3,80 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 30. VASÁRNAP**
+
+**2019. október 27 - november 3.**
+
+Kedden 17 óra 45 perctől a kórházlelkészség szolgálattevőinek találkozója lesz a plébánián.
+
+A Barátok Lapjában meghirdetett **Bibliaóra elmarad.**
+
+Pénteken- Mindenszentek Parancsolt Főünnepén- reggel 8 órakor és 17 órakor is lesz szentmise templomunkban.
+
+Szombaton - Halottak Napján- reggel 8 órakor és 17 órakor is lesz szentmise templomunkban.
+
+A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-még mindig vihetünk nyomtatványt a templomból.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+Aki a **temető**t ájtatos lélekkel látogatja, és legalább lélekben imádkozik a megholtakért, november 1 – 8-ig mindennap teljes búcsút nyerhet.
+
+**Feltételek:** gyónás, áldozás, imádság a pápa szándékára. Az év többi napján részleges búcsút lehet nyerni a temető meglátogatásakor.
+
+Akik **halottak napján** (vagyis az azt megelőző nap delétől a halottak napját követő éjfélig) meglátogatnak egy templomot, vagy nyilvános kápolnát, teljes búcsút nyerhetnek a szokott feltételekkel. A látogatáskor egy Miatyánkot és egy Hiszekegyet kell imádkozni. Ez a búcsú elnyerhető a megelőző, vagy következő vasárnapon és Mindenszentek ünnepén is.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. október 28-november 3.**
+
+2019\.OKTÓBER 28. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.OKTÓBER 29. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.OKTÓBER 30. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KLANONOK ÚR
+
+2019\.OKTÓBER 31. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.NOVEMBER 1. Péntek
+
+**8 órától-8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 2. Szombat
+
+**8 órától-8 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.NOVEMBER 3. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 29. VASÁRNAP**
 
 **2019. október 20-27.**
