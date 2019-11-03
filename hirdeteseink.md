@@ -3,6 +3,62 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 31. VASÁRNAP**
+
+**2019. november 3-10.**
+
+Csütörtökön nyílt nap lesz a Szent Mór Iskolaközpontban. Szeretettel várják a jövendő kisiskolásokat és gimnazistákat.
+
+Jövő vasárnap-mivel a hónap második vasárnapja lesz- 16 órakor szentségimádás lesz a templomban.
+
+Jövő vasárnap a 17 órakor kezdődő szentmisében a Szeráfi kórus - Nagy Ernő Karnagy Úr vezetésével- teljesít zenei szolgálatot.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. november 4-10.**
+
+2019\.NOVEMBER 4. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 5. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 6. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 7. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**17 órától -17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.NOVEMBER 8. Péntek
+
+**16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 9. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 10. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 30. VASÁRNAP**
 
 **2019. október 27 - november 3.**
