@@ -3,6 +3,62 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 32. VASÁRNAP**
+
+**2019. november 10-17.**
+
+**Ma - mivel a hónap második vasárnapja van - 16 órától szentségimádást tartunk a templomban.**
+
+**Ma a 17 órakor kezdődő szentmisében – Nagy Ernő Karnagy Úr vezetésével- a Szeráfi Kórus teljesít szolgálatot.**
+
+**Kedden a 17 órai szentmisében velünk imádkoznak a Pécsi Egyházmegyei Katekumenátus Konferencia résztvevői.**
+
+**Ugyancsak kedden 17 óra 45 perckor hitoktatói megbeszélés lesz a plébánián.**
+
+**Szombaton 17 órakor német-magyar nyelvű szentmise lesz templomunkban. A szentmisét Berecz Tibor atya fogja celebrálni.**
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. november 11-18.**
+
+2019\.NOVEMBER 11. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 12. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 13. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 14. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**17 órától -17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.NOVEMBER 15. Péntek 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 16. Szombat **16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 17. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 31. VASÁRNAP**
 
 **2019. november 3-10.**
