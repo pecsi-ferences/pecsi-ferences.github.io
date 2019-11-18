@@ -3,6 +3,62 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 33. VASÁRNAP**
+
+**2019. november 17-24.**
+
+Kedden 17 óra 45 perckor filmvetítés lesz a plébánián. A bátyám cipőjében című filmet nézzük meg. A film 95 perces.
+
+Ugyancsak kedden a 17 órai szentmise után a ferences világi rend imaórát tart templomunkban.
+
+Pénteken 8 órakor az Árpádházi Szent Margit Iskola szentmiséje lesz templomunkban.
+
+A kedves testvérek figyelmébe ajánljuk a Katolikus Karitász „Angyalbatyu” nevű ajándékgyűjtő akcióját. Az akció keretében rászoruló gyerekek számára lehet karácsonyi ajándékot adományozni vagy csomagot készíteni.2019. december 13-ig templomunkban is le lehet adni a csomagot vagy az „Angyalbatyuba” szánt ajándékot.
+
+Jövő vasárnap a Karitász céljaira lesz országos templomi gyűjtés.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. november 18-24.**
+
+2019\.NOVEMBER 18. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 19. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 20. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 21. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**17 órától -17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.NOVEMBER 22. Péntek 16 óra 30 perctől-16 óra 50 percig gyóntat
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 23. Szombat **16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.NOVEMBER 24. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 32. VASÁRNAP**
 
 **2019. november 10-17.**
