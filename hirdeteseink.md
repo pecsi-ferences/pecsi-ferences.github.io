@@ -3,6 +3,72 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ADVENT 1. VASÁRNAPJÁN**
+
+**2019.december 1-8.**
+
+**Ma a 17 órai szentmisében Zajácz Gábor görög katolikus parókus lesz a vendégünk.**
+
+**Hétfőn a pasztorális iroda munkatársa tart előadást plébániánkon a 2020-as Eucharisztikus Kongresszusról. Az előadás, tájékoztató 17 óra 45 perckor kezdődik.**
+
+**Pénteken 18 óra 30 perctől Házas Hétvégés csoport összejövetel lesz a plébánián.**
+
+**Szombaton a 17 órai szentmise után Szent Miklós püspök követe látogat el hozzánk. Szeretettel várjuk a gyerekeket erre az alkalomra!**
+
+Jövő vasárnap-mivel a hónap második vasárnapja lesz - 16 órakor szentségimádást tartunk a templomban.
+
+**Jövő vasárnap a 17 órai szentmisében Keresztes Andor máriagyűdi plébános lesz a vendégünk.**
+
+**Jövő vasárnap az esti 17 órai szentmisében a Szeráfi Kórus teljesít zenei szolgálatot. Vezényel Nagy Ernő karnagy úr.**
+
+A kedves testvérek figyelmébe ajánljuk a Katolikus Karitász „Angyalbatyu” nevű ajándékgyűjtő akcióját. Az akció keretében rászoruló gyerekek számára lehet karácsonyi ajándékot adományozni vagy csomagot készíteni.2019. december 13-ig templomunkban is le lehet adni a csomagot vagy az „Angyalbatyuba” szánt ajándékot.
+
+**Jövő évi kalendárium, naptár és templomunk Betleheméről készült karácsonyi képeslap a sekrestyében kapható.**
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. december 2-8.**
+
+2019\.DECEMBER 2. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECMBER 3. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 4. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 5. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**17 órától -17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.DECEMBER 6. Péntek
+
+**16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 7. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 8. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 34. VASÁRNAP**
 
 **KRISZTUS A MINDENSÉG KIRÁLYA-FŐÜNNEP**
