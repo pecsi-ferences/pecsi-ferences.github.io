@@ -3,9 +3,76 @@ layout: default
 title: Hirdetéseink
 
 ---
-**HIRDETÉSEINK ADVENT 1. VASÁRNAPJÁN**
 
-**2019.december 1-8.**
+**HIRDETÉSEINK**
+
+**Advent 2. Vasárnapján**
+
+**2019.december 8-15.**
+
+Ma 16 órától szentségimádás lesz templomunkban.
+
+Ma az esti szentmisén Keresztes Andor máriagyűdi plébános lesz a vendégünk.
+
+Ma az esti szentmisén a Szeráfi Kórus teljesít ének-zenei szolgálatot. Vezényel Nagy Ernő Karnagy Úr.
+
+Kedden 17 óra 45 perctől hitoktatói megbeszélés lesz a plébánián.
+
+Jövő vasárnap az esti szentmisén Dr. Nyúl Viktor pasztorális helynök úr lesz a vendégünk.
+
+A Katolikus Karitász Angyalbatyu nevű kezdeményezését továbbra is hirdetjük a kedves testvéreknek. A gyerekeknek szánt ajándékot, ajándékcsomagot december 13-ig lehet leadni templomunkban.
+
+Jövő évi naptár, kalendárium és karácsonyi képeslap a sekrestyében kapható. A karácsonyi képeslap templomunk Betleheméről készült.
+
+Már most lehet jelentkezni Betlehemünk őrzésére a sekrestyében.
+
+Megjelent a Barátok Lapja decemberi száma.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. december 9-15.**
+
+2019\.DECEMBER 9. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECMBER 10. Kedd **16 óra 30 perctől -17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 11. Szerda **17 órától-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 12. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**17 órától -17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2019\.DECEMBER 13. Péntek
+
+**16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 14. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 15. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**HIRDETÉSEINK ADVENT 1. VASÁRNAPJÁN                2019.december 1-8.**
 
 **Ma a 17 órai szentmisében Zajácz Gábor görög katolikus parókus lesz a vendégünk.**
 
