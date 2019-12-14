@@ -3,6 +3,65 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ADVENT 3. VASÁRNAPJÁN**
+
+**2019.december 15-22.**
+
+**Ma a 17 órai szentmisében Dr. Nyúl Viktor pasztorális helynök úr lesz a vendégünk.**
+
+**Kedden 17 óra 45 perctől filmvetítés lesz a plébánián. A karácsonyi cipő című filmet fogjuk megtekinteni. A film 90 perces.**
+
+**Szombaton 10 órára várjuk plébániai, templomi hittanra az elsőáldozásra és a bérmálásra készülő gyerekeket. A kedves szülőket 11 órára várjuk a templomba.**
+
+**Szombaton 17 órakor nem lesz német mise templomunkban.**
+
+**Ugyancsak szombaton 18 órakor lesz a Szeráfi Kórus hangversenye templomunkban.**
+
+**Jövő vasárnap a 17 órai szentmisében Bacsmai László mohácsi esperes-plébános lesz a vendégünk.**
+
+**Jövő évi kalendárium, naptár és templomunk Betleheméről készült karácsonyi képeslap a sekrestyében kapható.**
+
+**Templomunk Betlehemének őrzésére továbbra is várjuk a jelentkezést.**
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. december 16-22.**
+
+2019\.DECEMBER 16. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 17. Kedd **16 óra 30 perctől-17 óra 15 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 18. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 19. Csütörtök **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 20. Péntek
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 21. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 22. Vasárnap **7 óra 50 perctől- 8 óra 50 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR.  VARGA LÁSZLÓ KANONOK ÚR
 
 **HIRDETÉSEINK**
 
