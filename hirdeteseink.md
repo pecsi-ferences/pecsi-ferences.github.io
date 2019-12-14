@@ -23,6 +23,10 @@ title: Hirdetéseink
 
 **Templomunk Betlehemének őrzésére továbbra is várjuk a jelentkezést.**
 
+Előhirdetés
+
+A Sant’Egidio Közösség hosszú évek óta minden Karácsonykor, december 25- én ünnepi ebédre hívja azokat az elmagányosodott időseket, fogyatékkal élőket, akiket évközben szociális otthonokban rendszeresen látogatnak, így a rendezvényt idén is megrendezik, amelyhez ezúttal is kérik a kedves hívek nagylelkű támogatását, felajánlását. Várják azokat is, akik szívesen segítenének az ebéd helyszínének előkészítésében, majd a felszolgálásban, az idősek szállításában vagy egy tálca sütemény elkészítésében. A Közösség tagjai jövő héten, Advent 4. vasárnapján fognak gyűjteni a Ferences templomban a szentmisék után.
+
 **AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
 
 **2019. december 16-22.**
