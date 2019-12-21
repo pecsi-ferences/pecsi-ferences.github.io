@@ -3,6 +3,78 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ADVENT 4. VASÁRNAPJÁN**
+
+**2019.december 22- 29.**
+
+**Ma a 17 órai szentmisében Bacsmai László mohácsi esperes-plébános lesz a vendégünk.**
+
+**Kedden 17 órakor és éjfélkor is lesz szentmise templomunkban.**
+
+**Szerdán és csütörtökön reggel 8 órakor és 17 órakor lesznek a szentmisék templomunkban.**
+
+**Jövő vasárnap- az esti szentmise után -18 órától a Komlói Főnix kamarakórus koncertje lesz templomunkban.**
+
+**Jövő évi kalendárium, naptár és templomunk Betleheméről készült karácsonyi képeslap a sekrestyében kapható.**
+
+**Templomunk Betlehemének őrzésére továbbra is várjuk a jelentkezést.**
+
+A Sant’Egidio Közösség hosszú évek óta minden Karácsonykor, december 25- én ünnepi ebédre hívja azokat az elmagányosodott időseket, fogyatékkal élőket, akiket évközben szociális otthonokban rendszeresen látogatnak, és azokat az utcán élő hajléktalanokat, akik nem tölthetik a karácsonyt családi körben. A közös ünneplés megvalósulásához a korábbi években is jelentősen hozzájárultak a kedves hívek, a közösség tagjai idén is kérik segítségüket, anyagi támogatásukat. Várják azokat is, akik szívesen segítenének az ebéd helyszínének előkészítésében és a felszolgálásban vagy az idősek szállításában, de nagy segítséget jelentene, ha valaki egy tálca süteményt tudna készíteni aznapra vagy apró ajándékokat juttatna el az idősek, hajléktalanok számára.
+
+A Közösség tagjai a szentmise végén a bejáratnál fogadják azok adományait, akik szívesen támogatnák céljukat, illetve náluk lehet jelentkezni önkéntes segítőként is, vagy felajánlást tenni.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. december 23-29.**
+
+2019\.DECEMBER 23. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 24. Kedd **16 óra 30 perctől-17 óra 15 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**AZ ÉJFÉLI MISE IDEJE ALATT:**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 25. Szerda **7 óra 50 perctől- 8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 26. Csütörtök **7 óra 50 perctől-8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 27. Péntek
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 28. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2019\.DECEMBER 29. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ADVENT 3. VASÁRNAPJÁN**
 
 **2019.december 15-22.**
