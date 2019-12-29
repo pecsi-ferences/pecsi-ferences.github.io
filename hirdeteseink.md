@@ -3,6 +3,68 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK A SZENT CSALÁD VASÁRNAPJÁN**
+
+**2019. december 29 – 2020. január 5.**
+
+**Ma 18 órától a Komlói Főnix Kamarakórus ad koncertet templomunkban.**
+
+**Kedden 17 órakor év végi hálaadás lesz templomunkban.**
+
+**Szerdán, az új polgári év első napján- Szűz Mária Isten Anyja parancsolt főünnepén- reggel 8 órakor és 17 órakor lesznek a szentmisék.**
+
+**Pénteken 18 óra 30 perckor Házas Hétvégés csoporttalálkozó lesz a plébánián.**
+
+**Jövő évi kalendárium, naptár, valamint templomunk Betleheméről készült képeslap a sekrestyében kapható.**
+
+**Január hónapban még lehet jelentkezni Betlehem őrzésre.**
+
+**Nagyon köszönjük az eddigi őrző szolgálatot!**
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2019. december 30- 2020.január 5.**
+
+2019\.DECEMBER 30. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2019\.DECEMBER 31. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.JANUÁR 1. Szerda **7 óra 50 perctől- 8 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.JANUÁR 2. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 3. Péntek
+
+**16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 4. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 5. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ADVENT 4. VASÁRNAPJÁN**
 
 **2019.december 22- 29.**
