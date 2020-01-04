@@ -3,6 +3,54 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK KARÁCSONY 2.VASÁRNAPJÁN**
+
+**2020. január 5-12.**
+
+**Hétfőn lesz Vízkereszt Parancsolt Főünnepe. Templomunkban reggel 8 órakor- 11 órakor az Árpád-házi Szent Margit Katolikus Iskola kisdiákjainak részvételével- és 17 órakor is lesz szentmise.**
+
+**Jövő vasárnap-mivel a hónap második vasárnapja- 16 órától szentségimádás lesz templomunkban.**
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN           2020. január 6-12.**
+
+2020\.január 6. Hétfő **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.JANUÁR 7. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 8. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 9. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKKTOR PASZTORÁLIS HELYNÖK ÚR
+
+2020\.JANUÁR 10. Péntek **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.JANUÁR 11. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.JANUÁR 12. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK A SZENT CSALÁD VASÁRNAPJÁN**
 
 **2019. december 29 – 2020. január 5.**
