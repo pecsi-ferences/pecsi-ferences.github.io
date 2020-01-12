@@ -3,6 +3,58 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK URUNK MEGKERESZTELKEDÉSÉNEK ÜNNEPÉN**
+
+**2020. január 12-19.**
+
+**Ma - mivel a hónap második vasárnapja- 16 órától szentségimádás lesz templomunkban.**
+
+**Hétfőn 15 óra 45 perctől hitoktatói megbeszélés lesz a plébánián.**
+
+**Szombaton 10 órától plébániai, templomi hittan lesz az elsőáldozásra, bérmálásra készülő gyerekeknek.**
+
+**Ugyancsak szombaton 17 órakor német-magyar mise lesz templomunkban. A szentmisét Berecz Tibor egyetemi lelkész, ifjúsági referens celebrálja.**
+
+**Nagyon köszönjük a testvéreknek a Betlehem őrzés szolgálatát!**
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. január 13-19.**
+
+2020\.január 13. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.JANUÁR 14. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 15. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 16. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 17. Péntek **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 18. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 19. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK KARÁCSONY 2.VASÁRNAPJÁN**
 
 **2020. január 5-12.**
