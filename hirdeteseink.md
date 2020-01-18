@@ -7,7 +7,7 @@ title: Hirdetéseink
 
 **2020. január 19-26.**
 
-Kedden 18 óra 45 perctől filmvetítés lesz a plébánián. A film címe: Egy igaz ember-karácsonyi kívánság. A film 85 perces.
+Kedden 17 óra 45 perctől filmvetítés lesz a plébánián. A film címe: Egy igaz ember-karácsonyi kívánság. A film 85 perces.
 
 Pénteken 18 órától Házas Hétvégés csoporttalálkozó lesz a plébánián.
 
@@ -64,28 +64,28 @@ DR. VARGA LÁSZLÓ KANONOK ÚR
 AZ ÖKUMENIKUS IMAHÉT RÉSZLETES PÉCSI PROGRAMJA
 
 **Vasárnap, január 19. 16 óra**, Evangélikus templom (Dischka Győző u. 6.)  
- Igét hirdet Zajácz Gábor görögkatolikus parókus.
+Igét hirdet Zajácz Gábor görögkatolikus parókus.
 
 **Hétfő, január 20. 18 óra**, Pécsi Baptista Gyülekezet (Bokor u. 52.)  
- Igét hirdet Dr. Kajtár Edvárd római katolikus plébános.
+Igét hirdet Dr. Kajtár Edvárd római katolikus plébános.
 
 **Kedd, január 21**. 18 óra, Gyárvárosi r. k. templom (Zsolnay Vilmos u. 92.)  
- Igét hirdet Németh Norbert református lelkész.
+Igét hirdet Németh Norbert református lelkész.
 
 **Szerda, január 22**. 18 óra, Kertvárosi ref. templom (Tildy Zoltán u. 12.)  
- Igét hirdet Nagy Norbert római katolikus plébános.
+Igét hirdet Nagy Norbert római katolikus plébános.
 
 **Csütörtök, január 23**. 18 óra, Rácvárosi r. k. templom (Rácvárosi út 28.)  
- Igét hirdet Macher Tivadar baptista lelkész.
+Igét hirdet Macher Tivadar baptista lelkész.
 
 **Péntek, január 24.** 18 óra, Belvárosi ref. templom (Szabadság u. 35.)  
- Igét hirdet Hajduch-Szmola Patrik evangélikus lelkész.
+Igét hirdet Hajduch-Szmola Patrik evangélikus lelkész.
 
 **Szombat, január 25**. 18 óra, Lyceum r. k. templom (Király u. 44.)  
- Igét hirdet Lettner Gábor, a pünkösdi egyház lelkésze.
+Igét hirdet Lettner Gábor, a pünkösdi egyház lelkésze.
 
 **Vasárnap, január 26**. 16 óra, Belvárosi r. k. templom (Széchenyi tér)  
- Igét hirdet Dr. Szabó István református püspök.
+Igét hirdet Dr. Szabó István református püspök.
 
 **VIRÁGVASÁRNAPI IFJÚSÁGI PASSIÓ**
 
