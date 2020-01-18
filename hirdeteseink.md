@@ -3,6 +3,104 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 2. VASÁRNAP**
+
+**2020. január 19-26.**
+
+Kedden 18 óra 45 perctől filmvetítés lesz a plébánián. A film címe: Egy igaz ember-karácsonyi kívánság. A film 85 perces.
+
+Pénteken 18 órától Házas Hétvégés csoporttalálkozó lesz a plébánián.
+
+Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkban. A szentmisét Barics Gábriel Bicsérdi Plébános celebrálja. A horvát nyelvű mise miatt nem lesz semmilyen változás a templom miserendjében, tehát 17 órakor lesz a plébániai mise.
+
+Ugyancsak jövő vasárnap a 17 órai szentmisében a Szeráfi kórus teljesít zenei szolgálatot, vezényel Nagy Ernő Karnagy Úr.
+
+Megjelent a Barátok Lapja januári száma.
+
+**A mai nappal kezdődik az ökumenikus imahét. Az imahét programja a hirdetőtáblán vagy a sekrestyében megtalálható.**
+
+**A virágvasárnapi Ifjúsági Passióra szereplőket toboroznak. Részleteket a kihelyezett plakáton és az interneten lehet megtudni.**
+
+**Nagyon köszönjük a testvéreknek a Betlehem őrzés szolgálatát!**
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. január 20-26.**
+
+2020\.január 20. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 21. Kedd **16 óra 30 perctől-17 óra 15 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 22. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 23. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 24. Péntek **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 25. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.JANUÁR 26. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+AZ ÖKUMENIKUS IMAHÉT RÉSZLETES PÉCSI PROGRAMJA
+
+**Vasárnap, január 19. 16 óra**, Evangélikus templom (Dischka Győző u. 6.)  
+ Igét hirdet Zajácz Gábor görögkatolikus parókus.
+
+**Hétfő, január 20. 18 óra**, Pécsi Baptista Gyülekezet (Bokor u. 52.)  
+ Igét hirdet Dr. Kajtár Edvárd római katolikus plébános.
+
+**Kedd, január 21**. 18 óra, Gyárvárosi r. k. templom (Zsolnay Vilmos u. 92.)  
+ Igét hirdet Németh Norbert református lelkész.
+
+**Szerda, január 22**. 18 óra, Kertvárosi ref. templom (Tildy Zoltán u. 12.)  
+ Igét hirdet Nagy Norbert római katolikus plébános.
+
+**Csütörtök, január 23**. 18 óra, Rácvárosi r. k. templom (Rácvárosi út 28.)  
+ Igét hirdet Macher Tivadar baptista lelkész.
+
+**Péntek, január 24.** 18 óra, Belvárosi ref. templom (Szabadság u. 35.)  
+ Igét hirdet Hajduch-Szmola Patrik evangélikus lelkész.
+
+**Szombat, január 25**. 18 óra, Lyceum r. k. templom (Király u. 44.)  
+ Igét hirdet Lettner Gábor, a pünkösdi egyház lelkésze.
+
+**Vasárnap, január 26**. 16 óra, Belvárosi r. k. templom (Széchenyi tér)  
+ Igét hirdet Dr. Szabó István református püspök.
+
+**VIRÁGVASÁRNAPI IFJÚSÁGI PASSIÓ**
+
+**A szervezők idén is készülnek a virágvasárnapi Ifjúsági Passióra.**
+
+**Ennek első lépéseként február 8-án szombaton a Máltai Szeretetszolgálat Padlástermében 10-18 óráig tartják A Nagy Szerepválogatást.**
+
+**A próbák azt követően kedd esténként 17-19 óráig lesznek a Katifi Klubhelyiségében (Tettye utca 14.).**
+
+**A szervezők várnak minden fiatal jelentkezőt, 15 éves kortól már be lehet csatakozni.**
+
+**Az alábbi Facebook-eseményen minden szükséges információ megtalálható. Kérik, hogy aki tudja, ossza meg az eseményt és hívjon meg rá másokat, ill. ajánlja másoknak a bekapcsolódást a próbák kezdetétől.**
+
+[https://www.facebook.com/events/552054525383694/](https://www.facebook.com/events/552054525383694/ "https://www.facebook.com/events/552054525383694/")
+
 **HIRDETÉSEINK URUNK MEGKERESZTELKEDÉSÉNEK ÜNNEPÉN**
 
 **2020. január 12-19.**
