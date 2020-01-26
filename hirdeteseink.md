@@ -3,6 +3,64 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 3. VASÁRNAP**
+
+**2020. január 26-február 2.**
+
+Ma 16 órakor horvát nyelvű szentmise lesz templomunkban. A szentmisét Barics Gábriel Bicsérdi Plébános celebrálja. A horvát nyelvű mise miatt nem lesz semmilyen változás a templom miserendjében, tehát 17 órakor lesz a plébániai mise.
+
+Ma a 17 órai szentmisében a Szeráfi kórus teljesít zenei szolgálatot, vezényel Nagy Ernő Karnagy Úr.
+
+**A mai nappal záródik az ökumenikus imahét. A Belvárosi Templomban Dr. Szabó István református püspök hirdet igét.**
+
+Pénteken 18 óra 30 perctől Házas Hétvégés csoporttalálkozó lesz a plébánián.
+
+**A virágvasárnapi Ifjúsági Passióra szereplőket toboroznak. Részleteket a kihelyezett plakáton és az interneten lehet megtudni.**
+
+**Nagyon köszönjük a testvéreknek a Betlehem őrzés szolgálatát!**
+
+**Jövő vasárnap lesz Gyertyaszentelő Boldogasszony Ünnepe.**
+
+**Hirdetjük még a testvéreknek, hogy 2020. február 3-án, hétfőn lesz Szent Balázs püspök és vértanú emléknapja. Ezen a napon kezdődik templomunkban a Lourdes-i kilenced. Ezen a napon (február 3) és az azt követő hétvégén(február 8-9) végzünk balázsolást templomunkban.**
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. január 27 - február 2.**
+
+2020\.január 27. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 28. Kedd **16 óra 30 perctől-17 óra 15 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 29. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 30. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.JANUÁR 31. Péntek **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.FEBRUÁR 1. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.FEBRUÁR 2. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 2. VASÁRNAP**
 
 **2020. január 19-26.**
