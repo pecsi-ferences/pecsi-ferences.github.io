@@ -3,6 +3,64 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK GYERTYASZENTELŐ BOLDOGASSZONY**
+
+**ÜNNEPÉN**
+
+**2020. február 2-9.**
+
+**Hétfőn lesz Szent Balázs püspök és vértanú emléknapja. Ezen a napon kezdődik templomunkban a Lourdes-i kilenced. Ezen a napon (február 3) és az azt követő hétvégén (február 8-9) végzünk balázsolást templomunkban.**
+
+**Hirdetjük a kedves testvéreknek, hogy a Lourdes-i kilenced imaóráit hétköznapokon a szentmise után, szombaton és vasárnap a szentmise előtt végezzük.**
+
+Pénteken 18 óra 30 perckor Házas Hétvégés csoporttalálkozó lesz a plébánián.
+
+**Szombaton** a 17 órai szentmisében a Szeráfi kórus teljesít zenei szolgálatot, vezényel Nagy Ernő Karnagy Úr.
+
+Jövő vasárnap 16 órakor Dr. Fodor Réka tart előadást templomunkban az Afrikában végzett orvos misszióról. A hagyományos- második vasárnapi-szentségimádást egy héttel később fogjuk megtartani.
+
+Jövő vasárnap 16 óra 45 perckor kezdődik a Lourdes-i kilenced imaórája.
+
+Ugyancsak jövő vasárnap- a 17 órai szentmisében- a kórházlelkészség önkéntesei adnak hálát az elmúlt év kegyelmeiért. Ebben a szentmisében történik a beteglátogatói megbízások meghosszabbítása, valamint új megbízólevelek átadása.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. február 3- 9.**
+
+2020\.február 3. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 4. Kedd **16 óra 30 perctől-17 óra 15 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 5. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 6. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 7. Péntek **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 8. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.február 9. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 3. VASÁRNAP**
 
 **2020. január 26-február 2.**
