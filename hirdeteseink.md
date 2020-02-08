@@ -9,8 +9,6 @@ title: Hirdetéseink
 
 Ma 16 órakor Dr. Fodor Réka tart előadást templomunkban az Afrikában végzett orvos misszióról.
 
-Ma 16 óra 45 perckor kezdődik a Lourdes-i kilenced imaórája.
-
 Ma - a 17 órai szentmisében- a kórházlelkészség önkéntesei adnak hálát az elmúlt év kegyelmeiért. Ebben a szentmisében történik a beteglátogatói megbízások meghosszabbítása, valamint új megbízólevelek átadása.
 
 Hirdetjük a kedves testvéreknek, hogy a Lourdes-i kilenced imaóráit hétköznapokon a szentmise után végezzük.
