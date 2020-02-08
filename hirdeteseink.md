@@ -3,6 +3,68 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 5. VASÁRNAP**
+
+**2020. február 9-16.**
+
+Ma 16 órakor Dr. Fodor Réka tart előadást templomunkban az Afrikában végzett orvos misszióról.
+
+Ma 16 óra 45 perckor kezdődik a Lourdes-i kilenced imaórája.
+
+Ma - a 17 órai szentmisében- a kórházlelkészség önkéntesei adnak hálát az elmúlt év kegyelmeiért. Ebben a szentmisében történik a beteglátogatói megbízások meghosszabbítása, valamint új megbízólevelek átadása.
+
+Hirdetjük a kedves testvéreknek, hogy a Lourdes-i kilenced imaóráit hétköznapokon a szentmise után végezzük.
+
+Kedden lesz a Betegek Világnapja. Ezen a napon kiszolgáltatjuk a betegek szentségét azoknak, aki ezt kérik.
+
+Ugyancsak kedden filmvetítés lesz a plébánián. A film vetítését kivitelesen 18 órakor kezdjük. Egy igaz ember - Karácsonyi Kívánság a 85 perces film címe.
+
+Szombaton 17 órakor német-magyar nyelvű szentmise lesz templomunkban. A szentmisét Berecz Tibor atya celebrálja.
+
+Ma kezdődik és egész jövő héten zajlik a Házasság Hete rendezvénysorozat. A családok, házaspárok megáldása, valamint a rendezvényt záró szentmise, jövő vasárnap –este- a mi templomunkban lesz. A rendezvényekhez kapcsolódó mozgalmasság miatt, az előre meghirdetett szentségimádás elmarad.
+
+Megjelent a Barátok Lapja februári száma.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. február 10-16.**
+
+2020\.február 10. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 11. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 12. Szerda **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.február 13. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 14. Péntek **16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.február 15. Szombat
+
+**16 óra 30 perctől- 16 óra 50 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.február 16. Vasárnap **7 óra 30 perctől- 7 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK GYERTYASZENTELŐ BOLDOGASSZONY**
 
 **ÜNNEPÉN**
