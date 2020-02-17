@@ -3,6 +3,58 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 6. VASÁRNAP**
+
+**2020. február 16-23.**
+
+**Ma zárul a Házasság Hete rendezvénysorozat. A családok, házaspárok megáldása, valamint a rendezvényt záró szentmise a mi templomunkban lesz. A rendezvényekhez kapcsolódó mozgalmasság miatt, az előre meghirdetett szentségimádás elmarad.**
+
+**Jövő vasárnap 16 órakor horvát mise lesz a templomban. A horvát nyelvű szentmisét Barics Gábriel Bicsérdi Plébános celebrálja. Természetesen a 17 órai plébániai mise is meg lesz tartva.**
+
+**Jövő vasárnap országos templomi gyűjtés lesz a Katolikus Iskolák javára.**
+
+**Megjelent a Barátok Lapja februári száma.**
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. február 17-23.**
+
+2020\.február 17. Hétfő **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.február 18. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.február 19. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 20. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 21. Péntek **16 óra 30 perctől-16 óra 50 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 22. Szombat
+
+**16 óra 30 perctől- 16 óra 50 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.február 23. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 5. VASÁRNAP**
 
 **2020. február 9-16.**
