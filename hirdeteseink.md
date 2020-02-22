@@ -35,9 +35,9 @@ A Havas Boldogasszony Templomigazgatóság autóbuszos **zarándoklatot** szerve
 
 DOHÁNY ZOLTÁN PLÉBÁNOS
 
-2020\.február 25. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+2020\.február 25. Kedd **16 óra 30 perctől-16 óra 50 percig gyóntat**
 
-DOHÁNY ZOLTÁN PLÉBÁNOS
+DR. VARGA LÁSZLÓ KANONOK ÚR
 
 2020\.február 26. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
 
