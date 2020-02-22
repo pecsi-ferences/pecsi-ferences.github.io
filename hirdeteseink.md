@@ -3,6 +3,70 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 7. VASÁRNAP**
+
+**2020. február 23 - március 1.**
+
+Ma országos templomi gyűjtés van a Katolikus Iskolák javára.
+
+Ma 16 órakor horvát mise lesz a templomban. A horvát nyelvű szentmisét Barics Gábriel Bicsérdi Plébános celebrálja. Természetesen a 17 órai plébániai mise is meg lesz tartva.
+
+Kedden a 17 órai szentmise után, valamint a Szent Antal áhítatosság után, a Ferences Világi Rend tart imaórát templomunkban. Az imaórát Szabó József ferences atya vezeti.
+
+Szerdán lesz hamvazószerda. Hamvazószerda a nagyböjt kezdete és szigorú böjti nap. Templomunkban 10 órakor az Árpádházi Szent Margit Iskola diákjainak szentmiséje lesz. A 17 órakor kezdődő szentmisében is magunkra vehetjük majd a bűnbánat jelét.
+
+Pénteken a 17 órai szentmise után keresztutat végzünk a templomban.
+
+Ugyancsak pénteken 18 óra 30 perctől Házas Hétvégés csoporttalálkozó lesz a plébánián.
+
+Szombaton 10 órától templomi/plébánia hittan lesz az elsőáldozásra, bérmálásra készülő gyerekek számára.
+
+Ugyancsak szombaton a 17 órai szentmisében a Szeráfi Kórus teljesít zenei szolgálatot. Vezényel Nagy Ernő Karnagy Úr.
+
+Jövő szombaton és vasárnap a szentmisék után is lesz hamvazkodási lehetőség a templomban.
+
+A Havas Boldogasszony Templomigazgatóság autóbuszos **zarándoklatot** szervez Loretoba **április 20-24.** között. Érdeklődni a Havihegyen a sekrestyében lehet.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. február 24-március 1.**
+
+2020\.február 24. Hétfő **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 25. Kedd **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 26. Szerda **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 27. Csütörtök **16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 28. Péntek **16 óra 30 perctől-17 óra 30 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+2020\.február 29. Szombat
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+2020\.március 1. Vasárnap **7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 6. VASÁRNAP**
 
 **2020. február 16-23.**
