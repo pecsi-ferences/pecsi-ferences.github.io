@@ -3,6 +3,62 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK NAGYBÖJT 1. VASÁRNAPJÁN**
+
+**2020. március 1-8.**
+
+Ma a szentmisék után is lesz hamvazkodási lehetőség.
+
+Pénteken a 17 órai szentmise után keresztutat végzünk a templomban.
+
+Ugyancsak Pénteken 18 óra 30 perctől Házas Hétvégés csoporttalálkozó lesz a plébánián.
+
+Jövő vasárnap-mivel a hónap második vasárnapja- 16 órától szentségimádási óra lesz templomunkban.
+
+Az elmúlt vasárnap a Katolikus Iskolák javára volt országos templomi gyűjtés. Templomunkban 140 000 forint lett a gyűjtés eredménye. Ezt az összeget továbbítottuk az Egyházmegyei Központba. A Gondviselés sokszorosan jutalmazza meg az adakozók jóságát!
+
+A Havas Boldogasszony Templomigazgatóság autóbuszos zarándoklatot szervez Loretoba április 20-24. között. Érdeklődni a Havihegyen lehet.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. március 2-8.**
+
+**2020.március 2. Hétfő** **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 3. Kedd 16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 4. Szerda** **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 5.** **Csütörtök** **16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 6. Péntek 16 óra 30 perctől-16 óra 50 percig**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 7.** **Szombat**
+
+**16 óra 30 perctől- 16 óra 50 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 8. Vasárnap 7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK ÉVKÖZI 7. VASÁRNAP**
 
 **2020. február 23 - március 1.**
