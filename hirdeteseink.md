@@ -3,6 +3,56 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK NAGYBÖJT 2. VASÁRNAPJÁN**
+
+**2020. március 8-15.**
+
+Ma - mivel a hónap második vasárnapja van - 16 órától szentségimádási óra lesz templomunkban.
+
+Kedden 17 óra 45 perctől filmvetítés lesz a plébánián. A szent, aki a hitet választotta című filmet nézzük meg. A film Szent Borbála életéről szól és 111 perces.
+
+A Havas Boldogasszony Templomigazgatóság autóbuszos zarándoklatot szervez Loretoba április 20-24. között. Érdeklődni a Havihegyen lehet.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. március 9-15.**
+
+**2020.március 9. Hétfő** **16 óra 30 perctől- 16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 10. Kedd 16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 11. Szerda** **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 12.** **Csütörtök** **16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 13. Péntek 16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 7.** **Szombat**
+
+**16 óra 30 perctől- 16 óra 50 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 8. Vasárnap 7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK NAGYBÖJT 1. VASÁRNAPJÁN**
 
 **2020. március 1-8.**
