@@ -53,6 +53,42 @@ DOHÁNY ZOLTÁN PLÉBÁNOS
 
 DR. VARGA LÁSZLÓ KANONOK ÚR
 
+**Az alábbiakban teljes terjedelmében közöljük a Magyar Katolikus Püspöki Konferencia felhívását a nagyböjti tartósélelmiszer-gyűjtésre. A körlevelet március 8-án, nagyböjt 2. vasárnapján minden szentmisén felolvassák.**
+
+Kedves Testvérek!
+
+Ferenc pápa az idei nagyböjti üzenetében így szól hozzánk: „Ma is fontos minden jóakaratú embert meghívni arra, hogy javaiból továbbadjon valamit a nélkülözőknek. Az ilyen alamizsna egy igazságosabb világ felépítésében való személyes részvétel formája. A felebaráti szeretetnek megfelelő megosztás az embert emberibbé teszi, a felhalmozás viszont azzal fenyegeti, hogy csúffá válik, mivel önzésébe zárkózik. A gazdaság strukturális dimenzióin szabad és kell is, hogy túllépjünk.”
+
+Ima, böjt, alamizsna: ez a három tanács legyen kísérőnk az idei nagyböjti utunkon.
+
+Az első század keresztényei a szentmisére hozták magukkal a szegényeknek szánt adományaikat és régi böjti hagyomány az Egyházban, hogy a böjtöléssel megtakarított javakat a szegényeknek ajánlották fel.
+
+Idén is meghirdetjük a nagyböjti tartósélelmiszer-gyűjtést a templomainkban, ami lehetőséget teremt az alamizsna kifejezésére is. Kérjük, hozzák el a szentmisékre tartósélelmiszer-felajánlásukat a rászorulók számára és tegyék a templomban erre kijelölt helyre.
+
+A legkisebb adománnyal is a felebaráti szeretet csodája valósul meg közöttünk. A templomainkban összegyűjtött élelmiszerek nemcsak táplálékot jelentenek, hanem üzenetet is visznek magukkal, a Gondviselő Isten kézzelfogható szeretetét a nélkülöző családokba.
+
+Tegyünk tanúságot az irgalmas szeretet gyakorlásáról az idei nagyböjtben is, és lehetőségeinkhez mérten tartós élelmiszerrel járuljunk hozzá a Katolikus Egyház segélyakciójához. Ezt megtehetik a jövő heti vasárnapi szentmiséken és az azt követő hétköznapokon, tehát március 15-től- 22-ig. Adományaikat a Karitász juttatja majd el a rászorulókhoz. A korábbi években meghirdetett gyűjtésünk eredményeképpen családok ezreit tudtuk segíteni azokkal a segélycsomagokkal, amelyeket a hívek adományaiból juttattunk el a rászorulókhoz. Ha mindannyian legalább egy kilogramm adományt hozunk a templomba, újra nagyon sok családnak tudunk segíteni az irgalmas Jézus példáját követve.
+
+Telefonos adományvonalon is bekapcsolódhatunk a Karitász segítő munkájába. Ha hívjuk a 1356-os telefonszámot, hívásonként 500 forinttal segítünk.
+
+_„1% segítség, 100 % szeretet.”_ Kérjük, hogy aki teheti, adója egy százalékával is támogassa a Katolikus Karitász karitatív szolgálatát: a Karitászt Támogató Alapítványt. Köszönjük a szegényeknek szánt adományaikat.
+
+Kedves Testvérek!
+
+Ferenc pápa a Miatyánkról szóló katekézisében így tanít: „Jézus a kenyérszaporításkor azt a keveset sokszorozza meg csodás módon, amit egy gyermek ajánlott föl a többiek javára (vö. Jn 6,9). Nem szabad önzőnek lennünk, kötelességünk megosztani a kenyeret azokkal, akiknek szükségük van rá. Véssük eszünkbe, hogy az étel nem magántulajdon, hanem Isten kegyelme, amit meg kell osztanunk a rászorulókkal. Jézus a Tibériás tavánál nemcsak a kenyér- és halszaporítással tett csodát, hanem a megosztással: adjátok ide, amitek van, és én csodát teszek – mondta. Jézus a felajánlott kenyér szaporításával elővételezte önmaga felajánlását az eucharisztikus kenyérben. Csak az Eucharisztia tudja ugyanis csillapítani a végtelen iránti éhünket és az Isten utáni vágyat, ami minden ember lelkében lakozik, a mindennapi kenyér keresésében is.”
+
+A Nemzetközi Eucharisztikus Kongresszus évében fontos tanúságtétel számunkra, hogy annak a Jézusnak a nevében tegyünk jót az emberekkel, aki a kenyeret megszaporította és az éhező embereket jóllakatta. A kenyér színében, az Oltáriszentségben bennünket is táplál, ami arra késztessen mindnyájunkat, hogy tegyünk tanúságot az irgalmas szeretetről adományainkkal. Húsvét ünnepére juttatjuk el az élelmiszercsomagokat a családokhoz, akik ezekben megérezhetik az Isten gondviselő szeretetét. Ezzel is mutassuk meg a világnak húsvét örömét és üzenetét.
+
+_Budapest, 2020. nagyböjt 2. vasárnapján_
+
+_a Magyar Katolikus Püspöki Konferencia_
+
+**Forrás: MKPK Sajtószolgálat**
+
+**Fotó: Katolikus Karitász**
+
+**Magyar Kurír**
+
 **HIRDETÉSEINK NAGYBÖJT 1. VASÁRNAPJÁN**
 
 **2020. március 1-8.**
