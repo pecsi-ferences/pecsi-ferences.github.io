@@ -3,6 +3,58 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK NAGYBÖJT 3. VASÁRNAPJÁN**
+
+**2020. március 15-22.**
+
+Ma kezdődik- és jövő vasárnapig tart - egyházunkban a nagyböjti tartósélelmiszer gyűjtés.
+
+Péntek a 17 órai szentmise után keresztutat végzünk a templomban.
+
+Szombaton a 17 órai szentmise, német-magyar nyelvű lesz. A szentmisét Berecz Tibor atya celebrálja.
+
+Megjelent a Barátok Lapja-plébániai tájékoztató-márciusi száma.
+
+**AKTUÁLIS GYÓNTATÁSI REND TEMPLOMUNKBAN**
+
+**2020. március 16-22.**
+
+**2020.március 16. Hétfő** **16 óra 30 perctől- 17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 17. Kedd 16 óra 30 perctől-16 óra 50 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 18. Szerda** **16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 19.** **Csütörtök** **16 óra 30 perctől-17 óra 30 percig**
+
+DR. NYÚL VIKTOR PASZTORÁLIS HELYNÖK ÚR
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**2020.március 20. Péntek 16 óra 30 perctől-16 óra 50 percig**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 21.** **Szombat**
+
+**16 óra 30 perctől- 17 óra 30 óráig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
+**2020.március 22. Vasárnap 7 óra 50 perctől- 8 óra 30 percig gyóntat**
+
+DOHÁNY ZOLTÁN PLÉBÁNOS
+
+**16 óra 30 perctől-17 óra 30 percig gyóntat**
+
+DR. VARGA LÁSZLÓ KANONOK ÚR
+
 **HIRDETÉSEINK NAGYBÖJT 2. VASÁRNAPJÁN**
 
 **2020. március 8-15.**
