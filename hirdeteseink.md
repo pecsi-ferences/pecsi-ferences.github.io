@@ -15,9 +15,11 @@ title: Hirdetéseink
 
 **4. 2020. március 29-én Nagyböjt 5. Vasárnapján- terveink szerint- templomunkat 8 és 9 óra között, valamint 17 és 18 óra között nyitva fogjuk tartani. Szentmise nem lesz, de egyéni imádságra alkalom nyílik.**
 
-**5. Az előzetesen meghirdetett nagyböjti lelkigyakorlat, valamint a horvát mise elmarad.**
+**5. A felvett miseszándékokat sine populo (a nép részvétele nélkül) elmondjuk, illetve- kérés esetén- későbbi időpontban megtartjuk.**
 
-**6. 2020.március 23 és 27 között - vagyis hétfőtől-péntekig - a plébánia irodai szolgálata – alapvetően - szünetel. Sürgős esetben a 06-30-483-36-29-es számot lehet tárcsázni, illetve kereshetnek bennünket e-mailban is. A plébánia 72-313-565-ös vonalas számát nem minden esetben tudjuk felvenni.**
+**6. Az előzetesen meghirdetett nagyböjti lelkigyakorlat, valamint a horvát mise elmarad.**
+
+**7. 2020.március 23 és 27 között - vagyis hétfőtől-péntekig - a plébánia irodai szolgálata – alapvetően - szünetel. Sürgős esetben a 06-30-483-36-29-es számot lehet tárcsázni, illetve kereshetnek bennünket e-mailban is. A plébánia 72-313-565-ös vonalas számát nem minden esetben tudjuk felvenni.**
 
 **Megértésüket köszönjük!**
 
