@@ -3,6 +3,24 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK NAGYBÖJT 4. VASÁRNAPJÁN- 2020.március 21-29.**
+
+**1. Hirdetjük a kedves testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel 2020. március 21-én, szombaton, Nagyböjt 4. Vasárnapjának előestéjén, a német-magyar nyilvános mise elmarad. A templom 17 és 18 óra között nyitva lesz, de szentmisét nem tartunk. Az egyéni imádságra azonban biztosítunk lehetőséget.**
+
+**2. 2020.március 22-én Nagyböjt 4. Vasárnapján a templomban szentmise nem lesz. A templomot 8 és 9 óra között, valamint 17 és 18 óra között nyitva fogjuk tartani. Az egyéni imádságra ezekben az időpontokban biztosítunk lehetőséget. Felhívjuk azonban a kedves testvérek figyelmét, hogy a média különböző csatornáin keresztül, be lehet kapcsolódni a szentmise imádságába, ünneplésébe.**
+
+**3. 2020. március 23 és 28 között - vagyis hétfőtől-szombatig – templomunkat**
+
+**17 óra és 17 óra 30 között nyitva tartjuk. Az egyéni imádságra ilyen módon biztosítunk lehetőséget.**
+
+**4. 2020. március 29-én Nagyböjt 5. Vasárnapján- terveink szerint- templomunkat 8 és 9 óra között, valamint 17 és 18 óra között nyitva fogjuk tartani. Szentmise nem lesz, de egyéni imádságra alkalom nyílik.**
+
+**5. Az előzetesen meghirdetett nagyböjti lelkigyakorlat, valamint a horvát mise elmarad.**
+
+**6. 2020.március 23 és 27 között - vagyis hétfőtől-péntekig - a plébánia irodai szolgálata – alapvetően - szünetel. Sürgős esetben a 06-30-483-36-29-es számot lehet tárcsázni, illetve kereshetnek bennünket e-mailban is. A plébánia 72-313-565-ös vonalas számát nem minden esetben tudjuk felvenni.**
+
+**Megértésüket köszönjük!**
+
 **HIRDETÉSEINK NAGYBÖJT 3. VASÁRNAPJÁN**
 
 **2020. március 15-22.**
