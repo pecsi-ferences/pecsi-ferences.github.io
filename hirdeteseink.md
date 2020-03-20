@@ -7,7 +7,7 @@ title: Hirdetéseink
 
 **1. Hirdetjük a kedves testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel 2020. március 21-én, szombaton, Nagyböjt 4. Vasárnapjának előestéjén, a német-magyar nyilvános mise elmarad. A templom 17 és 18 óra között nyitva lesz, de szentmisét nem tartunk. Az egyéni imádságra azonban biztosítunk lehetőséget.**
 
-**2. 2020.március 22-én Nagyböjt 4. Vasárnapján a templomban szentmise nem lesz. A templomot 8 és 9 óra között, valamint 17 és 18 óra között nyitva fogjuk tartani. Az egyéni imádságra ezekben az időpontokban biztosítunk lehetőséget. Felhívjuk azonban a kedves testvérek figyelmét, hogy a média különböző csatornáin keresztül, be lehet kapcsolódni a szentmise imádságába, ünneplésébe.**
+**2. 2020.március 22-én Nagyböjt 4. Vasárnapján a templomban szentmise nem lesz. A templomot 8 és 9 óra között, valamint 17 és 18 óra között nyitva fogjuk tartani. Az egyéni imádságra ezekben az időpontokban biztosítunk lehetőséget. Felhívjuk azonban a kedves testvérek figyelmét, hogy a média különböző csatornáin keresztül be lehet kapcsolódni a szentmise imádságába, ünneplésébe.**
 
 **3. 2020. március 23 és 28 között - vagyis hétfőtől-szombatig – templomunkat**
 
