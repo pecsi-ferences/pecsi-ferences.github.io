@@ -13,7 +13,9 @@ title: Hirdetéseink
 
 **4. A múlt hétre felvett miseszándékokat- sine populo (a nép részvétele nélkül) - elmondtuk, de kérés esetén későbbi időpontban is megtartjuk.**
 
-**5. 2020.március 30 és április 3 között - vagyis hétfőtől-péntekig - a plébánia irodai szolgálata szünetel. Sürgős esetben a 72-31-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is.**
+**5. Az elsőpéntekes időseket  most nem keressük fel otthonaikban. Azonban, ha halálveszély esete állna fenn, akkor kérjük, hogy azonnal értesítsenek bennünket.**
+
+**6. 2020.március 30 és április 3 között - vagyis hétfőtől-péntekig - a plébánia irodai szolgálata szünetel. Sürgős esetben a 72-31-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is.**
 
 **Megértésüket köszönjük!**
 
