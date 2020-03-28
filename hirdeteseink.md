@@ -7,11 +7,13 @@ title: Hirdetéseink
 
 **1. Hirdetjük a kedves testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel, valamint a kijárási korlátozásra tekintettel,2020. március 28-án, szombaton, Nagyböjt 5. Vasárnapjának előestéjén már nem tartjuk nyitva a templomot.**
 
-**2. 2020. március 29-én Nagyböjt 5. Vasárnapján- tekintettel a kijárási korlátozásra- nem tartjuk nyitva a templomot.**
+**2.Ne feledkezzünk meg arról, hogy beköszönt a nyári időszámítás.**
 
-**3. A múlt hétre felvett miseszándékokat- sine populo (a nép részvétele nélkül) - elmondtuk, de kérés esetén későbbi időpontban is megtartjuk.**
+**3. 2020. március 29-én Nagyböjt 5. Vasárnapján- tekintettel a kijárási korlátozásra- nem tartjuk nyitva a templomot.**
 
-**4. 2020.március 30 és április 3 között - vagyis hétfőtől-péntekig - a plébánia irodai szolgálata szünetel. Sürgős esetben a 72-31-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is.**
+**4. A múlt hétre felvett miseszándékokat- sine populo (a nép részvétele nélkül) - elmondtuk, de kérés esetén későbbi időpontban is megtartjuk.**
+
+**5. 2020.március 30 és április 3 között - vagyis hétfőtől-péntekig - a plébánia irodai szolgálata szünetel. Sürgős esetben a 72-31-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is.**
 
 **Megértésüket köszönjük!**
 
