@@ -7,7 +7,7 @@ title: Hirdetéseink
 
 **1. Hirdetjük a kedves testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel, valamint a kijárási korlátozásra tekintettel,2020. március 28-án, szombaton, Nagyböjt 5. Vasárnapjának előestéjén már nem tartjuk nyitva a templomot.**
 
-**2.Ne feledkezzünk meg arról, hogy beköszönt a nyári időszámítás.**
+**2.Ne feledkezzünk meg arról, hogy beköszönt a tavaszi/nyári időszámítás.**
 
 **3. 2020. március 29-én Nagyböjt 5. Vasárnapján- tekintettel a kijárási korlátozásra- nem tartjuk nyitva a templomot.**
 
