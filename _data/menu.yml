@@ -9,13 +9,13 @@ items:
   url: /miserend
 - title: Hivatal nyitvatartása
   url: /nyitvatartas
-- title: Képek
-  url: http://www.templom.hu/phpwcms/index.php?id=14,555,0,0,1,0
-  target: _blank
 - title: Barátok lapja
   url: /baratok
 - title: Hirdetéseink
   url: /hirdeteseink
 - title: NEK2020 videók
   url: https://www.iec2020.hu/hu/videok
+  target: _blank
+- title: Misék a világhálón
+  url: https://www.youtube.com/results?search_query=szentmise+k%C3%B6zvet%C3%ADt%C3%A9s+ma
   target: _blank
