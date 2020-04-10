@@ -13,6 +13,8 @@ items:
   url: /baratok
 - title: Hirdetéseink
   url: /hirdeteseink
+- title: Hittan
+  url: /hittan
 - title: NEK2020 videók
   url: https://www.iec2020.hu/hu/videok
   target: _blank
