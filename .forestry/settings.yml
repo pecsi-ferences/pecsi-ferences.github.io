@@ -5,6 +5,10 @@ admin_path:
 webhook_url: 
 sections:
 - type: document
+  path: hittan.md
+  label: Hittan
+  match: "**/*"
+- type: document
   path: hirdeteseink.md
   label: Hirdetéseink
 upload_dir: assets/pdfs
