@@ -27,7 +27,7 @@ Kérjük, amennyiben környezetében lelki segítségre szorulókat lát, ajánl
 
 Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.00–19.00** óráig.
 
-7\.Jövő vasárnap Húsvét 2. Vasárnapja, vagyis az Isteni Irgalmasság Vasárnapja lesz. Lehetőségeinkhez mérten 15 órakor-az Isteni Irgalmasság órájában próbáljuk meg közösen imádkozni.
+7\.Jövő vasárnap Húsvét 2. Vasárnapja, vagyis az Isteni Irgalmasság Vasárnapja lesz. Lehetőségeinkhez mérten 15 órakor-az Isteni Irgalmasság órájában-próbáljuk meg közösen imádkozni.
 
 Vigyázzanak magukra és családtagjaikra!
 
@@ -37,25 +37,25 @@ Vigyázzanak magukra és családtagjaikra!
 
 **Húsvét után**
 
-HÚSVÉT ELŐTT… nehéz, szomorú léptek.   
- Húsvét előtt… zokogó, bús miértek.   
- Húsvét előtt… ajtók, kemények, zártak.   
- Húsvét előtt… arcok, fakóra váltak.   
- Húsvét előtt… szívek, üres-szegények.   
- Húsvét előtt… kihamvadott remények.   
- Húsvét előtt… egy nagy „Minden hiába!”   
- Bús eltemetkezés az éjszakába.
+HÚSVÉT ELŐTT… nehéz, szomorú léptek.  
+Húsvét előtt… zokogó, bús miértek.  
+Húsvét előtt… ajtók, kemények, zártak.  
+Húsvét előtt… arcok, fakóra váltak.  
+Húsvét előtt… szívek, üres-szegények.  
+Húsvét előtt… kihamvadott remények.  
+Húsvét előtt… egy nagy „Minden hiába!”  
+Bús eltemetkezés az éjszakába.
 
-De húsvét lett! Feltámadott a Mester!   
- HÚSVÉT UTÁN… el a gyásszal, könnyekkel!   
- Húsvét után… futni a hírrel frissen!   
- Húsvét után… már nem kérdezni mit sem!   
- Húsvét után… új cél és új sietség!   
- Jézus él! Nincs út, mely messze esnék!   
- Húsvét után… erő, diadal, élet!
+De húsvét lett! Feltámadott a Mester!  
+HÚSVÉT UTÁN… el a gyásszal, könnyekkel!  
+Húsvét után… futni a hírrel frissen!  
+Húsvét után… már nem kérdezni mit sem!  
+Húsvét után… új cél és új sietség!  
+Jézus él! Nincs út, mely messze esnék!  
+Húsvét után… erő, diadal, élet!
 
-Csak azokért sírjunk húsvéti könnyet,   
- Akik még mindig húsvét előtt élnek.
+Csak azokért sírjunk húsvéti könnyet,  
+Akik még mindig húsvét előtt élnek.
 
 **HIRDETÉSEINK VIRÁGVASÁRNAP- 2020.április 5-12.**
 
