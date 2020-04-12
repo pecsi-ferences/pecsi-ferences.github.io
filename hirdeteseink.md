@@ -5,21 +5,23 @@ title: Hirdetéseink
 ---
 HIRDETÉSEINK HÚSVÉTVASÁRNAP- 2020.április 12-19.
 
-1\. Hirdetjük a kedves testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel templomunkban a szertartások továbbra is szünetelnek.
+1\. Nagyhét keddjén (április 7.) volt Várnagy Antal atya halálának 19. évfordulója.Imádságainkban emlékezzünk meg egykori plébánosunkról.
 
-2\. A plébánia irodai szolgálata is szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is. Amiben tudunk, készséggel segítünk.
+2\. Hirdetjük a kedves testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel templomunkban a szertartások továbbra is szünetelnek.
 
-3\. Ne feledkezzünk- a jövő héten sem-azokról a lehetőségekről, melyeket a televízió, rádió és az internet nyújt számunkra. Plébániánk honlapján is létrehoztunk egy új menüpontot: „Misék a világhálón”. Talán ez a lehetőség is segítségünkre lehet a hatékonyabb keresésében, elmélyülésben.
+3\. A plébánia irodai szolgálata is szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is. Amiben tudunk, készséggel segítünk.
 
-4\. Ezen kívül a következő listát is jó szívvel ajánljuk:
+4\. Ne feledkezzünk- a jövő héten sem-azokról a lehetőségekről, melyeket a televízió, rádió és az internet nyújt számunkra. Plébániánk honlapján is létrehoztunk egy új menüpontot: „Misék a világhálón”. Talán ez a lehetőség is segítségünkre lehet a hatékonyabb keresésében, elmélyülésben.
+
+5\. Ezen kívül a következő listát is jó szívvel ajánljuk:
 
 [https://www.magyarkurir.hu/hirek/hol-es-mikor-kovetheto-elo-szentmise-kozvetites-osszegyujtottuk-lehetosegeket](https://www.magyarkurir.hu/hirek/hol-es-mikor-kovetheto-elo-szentmise-kozvetites-osszegyujtottuk-lehetosegeket "https://www.magyarkurir.hu/hirek/hol-es-mikor-kovetheto-elo-szentmise-kozvetites-osszegyujtottuk-lehetosegeket")
 
-5\. A Pécsi Egyházmegyében múlt hét csütörtökén indult a kezdeményezés, amely arra buzdít, hogy otthonainkból, délután 17.00 órakor imádkozzuk együtt a rózsafüzért. _Imádkozzuk együtt otthon a szentolvasót csütörtökönként. Húsvét előtt a fájdalmas szentolvasót imádkozzuk, húsvéttól pedig a dicsőségest. Ajánljuk fel ezt az imádságot a betegekért, a járvány elhunytjaiért és az őket gyászoló szeretteikért, valamint azért, hogy mielőbb legyőzze az emberiség e vírust, és újrakezdhesse egészségben életét._
+6\. A Pécsi Egyházmegyében múlt hét csütörtökén indult a kezdeményezés, amely arra buzdít, hogy otthonainkból, délután 17.00 órakor imádkozzuk együtt a rózsafüzért. _Imádkozzuk együtt otthon a szentolvasót csütörtökönként. Húsvét előtt a fájdalmas szentolvasót imádkozzuk, húsvéttól pedig a dicsőségest. Ajánljuk fel ezt az imádságot a betegekért, a járvány elhunytjaiért és az őket gyászoló szeretteikért, valamint azért, hogy mielőbb legyőzze az emberiség e vírust, és újrakezdhesse egészségben életét._
 
 Csatlakozzunk a felhíváshoz és kérjük együtt a Szűzanya közbenjárását azokért a testvéreinkért, akik betegségeik miatt szenvednek és azokért, akik a koronavírus által okozott járvány áldozatai lettek.
 
-6\. A Pécsi Egyházmegye központi telefonszámát tárcsázva, 2020.március 28-tól lehetőségük van atyákkal és civil szakemberekkel beszélgetni minden nap 9.00–12.00; és 15.00–19.00 óráig.
+7\. A Pécsi Egyházmegye központi telefonszámát tárcsázva, 2020.március 28-tól lehetőségük van atyákkal és civil szakemberekkel beszélgetni minden nap 9.00–12.00; és 15.00–19.00 óráig.
 
 A segítő atyákat és a szakembereket a telefonszám hívását követően munkatársunk segítségével tudja elérni.
 
@@ -27,7 +29,7 @@ Kérjük, amennyiben környezetében lelki segítségre szorulókat lát, ajánl
 
 Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.00–19.00** óráig.
 
-7\.Jövő vasárnap Húsvét 2. Vasárnapja, vagyis az Isteni Irgalmasság Vasárnapja lesz. Lehetőségeinkhez mérten 15 órakor-az Isteni Irgalmasság órájában-próbáljuk meg közösen imádkozni.
+8\.Jövő vasárnap Húsvét 2. Vasárnapja, vagyis az Isteni Irgalmasság Vasárnapja lesz. Lehetőségeinkhez mérten 15 órakor-az Isteni Irgalmasság órájában-próbáljuk meg közösen imádkozni.
 
 Vigyázzanak magukra és családtagjaikra!
 
