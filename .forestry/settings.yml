@@ -5,6 +5,9 @@ admin_path:
 webhook_url: 
 sections:
 - type: document
+  path: hittan.md
+  label: Hittan
+- type: document
   path: hirdeteseink.md
   label: Hirdetéseink
 upload_dir: assets/pdfs
@@ -17,6 +20,7 @@ build:
   preview_env:
   - JEKYLL_ENV=staging
   preview_output_directory: _site
+  install_dependencies_command: bundle install --path vendor/bundle
   preview_docker_image: forestryio/build:latest
   mount_path: "/opt/buildhome/repo"
   instant_preview_command: bundle exec jekyll serve --drafts --unpublished --future
