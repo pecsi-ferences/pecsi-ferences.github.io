@@ -15,6 +15,9 @@ items:
   url: /hirdeteseink
 - title: Hittan
   url: /hittan
+- title: Hírlevél
+  url: https://eepurl.com/gZ0AJf
+  target: _blank
 - title: NEK2020 videók
   url: https://www.iec2020.hu/hu/videok
   target: _blank
