@@ -3,6 +3,99 @@ layout: default
 title: Hirdetéseink
 
 ---
+HIRDETÉSEINK HÚSVÉT 2. VASÁRNAPJÁN
+
+AZ ISTENI IRGALMASSÁG VASÁRNAPJÁN - 2020.április 19-26.
+
+1\. Ma Húsvét 2. Vasárnapja, vagyis az Isteni Irgalmasság Vasárnapja van. Lehetőségeinkhez mérten 15 órakor-az Isteni Irgalmasság órájában próbáljuk meg közösen imádkozni.
+
+2\. Kedden lesz Dr. Vass László atya halálának 14. évfordulója.
+
+Imádkozzunk a Ferences Kollégium alapítójáért!
+
+3\. Hirdetjük a Kedves Testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel templomunkban a szertartások továbbra is szünetelnek. Miseszándékra azonban- a nyilvánosság kizárásával - készséggel mondunk csöndes misét.
+
+A mise stipendiumot a plébánia bankszámlájára lehet átutalni vagy befizetni. SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+A szándékot pedig akár telefonon, akár e-mailban lehet jelezni.
+
+4\. A plébánia irodai szolgálata is szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is. Amiben tudunk, készséggel segítünk.
+
+Az egyházi adót a plébánia bankszámlájára lehet átutalni vagy befizetni.
+
+SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+5\. Ne feledkezzünk- a jövő héten sem-azokról a lehetőségekről, melyeket a televízió, rádió és az internet nyújt számunkra. Plébániánk honlapján is létrehoztunk egy új menüpontot: „Misék a világhálón”. Talán ez a lehetőség is segítségünkre lehet a hatékonyabb keresésében, elmélyülésben.
+
+6\. Ezen kívül a következő listát is jó szívvel ajánljuk:
+
+[https://www.magyarkurir.hu/hirek/hol-es-mikor-kovetheto-elo-szentmise-kozvetites-osszegyujtottuk-lehetosegeket](https://www.magyarkurir.hu/hirek/hol-es-mikor-kovetheto-elo-szentmise-kozvetites-osszegyujtottuk-lehetosegeket "https://www.magyarkurir.hu/hirek/hol-es-mikor-kovetheto-elo-szentmise-kozvetites-osszegyujtottuk-lehetosegeket")
+
+7\. A Pécsi Egyházmegyében múlt hét csütörtökén indult a kezdeményezés, amely arra buzdít, hogy otthonainkból, délután 17.00 órakor imádkozzuk együtt a rózsafüzért. _Imádkozzuk együtt otthon a szentolvasót csütörtökönként. Húsvét előtt a fájdalmas szentolvasót imádkozzuk, húsvéttól pedig a dicsőségest. Ajánljuk fel ezt az imádságot a betegekért, a járvány elhunytjaiért és az őket gyászoló szeretteikért, valamint azért, hogy mielőbb legyőzze az emberiség e vírust, és újrakezdhesse egészségben életét._
+
+Csatlakozzunk a felhíváshoz és kérjük együtt a Szűzanya közbenjárását azokért a testvéreinkért, akik betegségeik miatt szenvednek és azokért, akik a koronavírus által okozott járvány áldozatai lettek.
+
+8\. A Pécsi Egyházmegye központi telefonszámát tárcsázva, 2020.március 28-tól lehetőségük van atyákkal és civil szakemberekkel beszélgetni minden nap 9.00–12.00; és 15.00–19.00 óráig.
+
+A segítő atyákat és a szakembereket a telefonszám hívását követően munkatársunk segítségével tudja elérni.
+
+Kérjük, amennyiben környezetében lelki segítségre szorulókat lát, ajánlja figyelmébe a LÉLEKERŐSÍTŐ program lehetőségét.
+
+Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.00–19.00** óráig.
+
+Vigyázzanak magukra és családtagjaikra!
+
+Isten áldja Önöket!
+
+Reviczky Gyula
+
+**Feltámadás**
+
+Fakadnak már a virágok,  
+ Kiderül az ég,  
+ És a föld most készül ülni  
+ Drága ünnepét.  
+ Sziveinkben, mint a földön,  
+ Ma öröm legyen,  
+ Feltámadt az istenember  
+ Győzedelmesen!
+
+Akik tanait gyülölték,  
+ Meg nem ölheték.  
+ Nem rejthette sír magába  
+ Égi szellemét.  
+ Mert égből eredt s nem is volt  
+ Születése sem...  
+ Feltámadt az istenember  
+ Győzedelmesen!
+
+Kettős ünneplés azóta  
+ Minden kikelet!  
+ A mennyországé s a földé...  
+ Ünnepeljetek!  
+ Adjatok hálát, hogy ismét  
+ Új világ terem,  
+ S feltámadt az istenember  
+ Győzedelmesen!
+
+Aki tudja, mint töré fel  
+ Sírját a dicső;  
+ Aki látja, hogy a földön  
+ Minden újra nő;  
+ Gondoljon feltámadásra,  
+ Mely örök leszen...  
+ Feltámadt az istenember  
+ Győzedelmesen!
+
+Adjatok hálát s virágot,  
+ Tömjént hozzatok.  
+ Hallelujah! hallelujah!  
+ Zengje ajkatok.  
+ Mert feltámadtok ti is még  
+ Valamennyien,  
+ Mint az istenember egykor:  
+ Győzedelmesen.
+
 HIRDETÉSEINK HÚSVÉTVASÁRNAP- 2020.április 12-19.
 
 1\. Nagyhét keddjén (április 7.) volt Várnagy Antal atya halálának 19. évfordulója.Imádságainkban emlékezzünk meg egykori plébánosunkról.
