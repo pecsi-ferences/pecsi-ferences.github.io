@@ -5,13 +5,77 @@ title: Hittan
 ---
 **Kedves Látogató!**
 
-**A Ferences Plébánia internetes oldalán azért hoztuk létre ezt a menüpontot, hogy a koronavírus járvány idején a plébániai, templomi hittan kapcsán ilyen módon is tudjunk kapcsolatot tartani az elsőáldozásra/bérmálásra készülő gyerekekkel. Amíg azonban ez nem válik így szükségessé, addig hétről - hétre a Katolikus Egyház Katekizmusából-nem csak gyerekeknek- közlünk néhány pontot.**
+**A Ferences Plébánia internetes oldalán azért hoztuk létre ezt a menüpontot, hogy a koronavírus járvány idején a plébániai, templomi hittan kapcsán ilyen módon is tudjunk kapcsolatot tartani az elsőáldozásra/bérmálásra készülő gyerekekkel. Amíg azonban ez nem válik így szükségessé, addig hétről - hétre a Katolikus Egyház Katekizmusából-nem csak gyerekeknek- közlünk néhány pontot.   ( A Katekizmus pontjait 2020.április 24-től a lap alján találja meg.)**
 
 **Jó olvasást minden kedves vendégnek!**
 
 **2020. Húsvétján**
 
 **A Plébános**
+
+Kedves gyerekek!
+
+Mint ahogy látjátok és tapasztaljátok a hittanóra is digitálisan történik. Sajnos az elsőáldozási felkészítőt is így kell tartanunk. Pedig milyen jó lett volna a templomban találkozni veletek J. De majd ősszel személyesen mi is örülhetünk egymásnak. Úgy, mint ahogyan az apostolok a feltámadt Jézusnak!
+
+A múlt alkalommal a nagyböjtről a húsvétról beszélgettünk.
+
+\- Húsvétkor a pászka ünnepén, Jézust elítélték, nagyon csúnyán megverték. De Ő mindezt szeretetből elviselte, sőt magára vállalva a bűneinket, a kereszten meghalt értünk. Majd harmadnapra feltámadt! Emlékeztek arra is, hogy hittan órán beszéltetek hasonló esetről, amikor Jézus a halálból feltámasztott valakiket? A naimi ifjút, a szegény özvegyasszony gyerekét, és Jézus barátját Lázárt, aki 4 napja halott volt és el is volt már temetve. Ők még itt maradtak a földön és élték a csoda utáni életüket addig, amíg meg nem haltak.
+
+\- Viszont Jézus feltámadása teljesen más! Isten ereje által feltámadt majd felment a mennybe Istenhez! De előtte megjelent a tanítványoknak. Nem is akárhogyan. Először az emmauszi úton találkozott velük, ahol nem ismerték fel, mert annyira szomorúak voltak Jézus halála miatt. Érezték a jelenlétét a szívükben, de a szemük becsapta őket. Míg beszélgettek, beesteledett és meghívták magukhoz vacsorázni. Asztalhoz ültek és amikor az ismeretlen megtörte a kenyeret, és oda adta nekik akkor ismerték fel, hogy Ő Jézus! Volt ám nagy öröm, ujjongás, ölelkezés. Mint amikor te is találkozol egy régen látott barátoddal, vagy unokatestvérrel, nagyszülővel. Örömödben te is szorosan átöleled és nem is akarod soha elengedni.
+
+„Húsvétvasárnap este Jézus megjelent az egybegyűlt tanítványoknak. Ezzel is megmutatta, hogy új – mennyei – életet kapott az Atyától. Az egyik tanítvány, Tamás azonban nem volt velük. Amikor aztán összetalálkozott a barátaival, azzal az elképesztő hírrel álltak elő, hogy látták Jézust. Tamás azonban így válaszolt: „Ha én magam nem látom, és nem érintem az Ő sebeinek helyét, én ugyan el nem hiszem!”
+
+**Ahhoz, hogy higgyünk az Úr Jézusban, a szívünket kell megnyitnunk, nem a szemünket.**
+
+\- Később újból megjelent nekik. De most, képzeljétek el, a zárt ajtókon keresztül hirtelen ott termett előttük. Biztos nagyon megijedhettek, mert azt hitték valami szellemet vagy mifélét látnak. Én is nagyon megijedtem volna.
+
+„Nyolc nap múlva ismét együtt voltak a tanítványok, s Tamás is ott volt velük. Ekkor újra megjelent Jézus, bár az ajtó zárva volt. Belépett, megállt középen, és köszöntötte őket: „Békesség nektek!” Aztán Tamáshoz fordult: „Nyújtsd ide az ujjadat és nézd kezemet! Nyújtsd ki a kezedet és tedd oldalamba! S ne légy hitetlen, hanem hívő!” Tamás fölkiáltott: „Én Uram és Istenem!” Jézus csak ennyit mondott: „Hittél, mert láttál. Boldogok, akik nem látnak, mégis hisznek.” (Jn 20,26-29)
+
+\- A feltámadás földi eszünkkel felfoghatatlan. Jézus testét a tanítványok megérinthették, amikor megjelent nekik. Ezzel is tanúsították ezt a hatalmas mennyei csodát, amit elmondtak mindenkinek és leírták a Bibliába is. Mi is úgy vagyunk vele, hogy akkor hiszünk el valamit, ha a saját szemünkkel látjuk vagy érintjük. Vagy ha olyan valaki mondja el akit szeretünk és megbízunk benne. Tamás apostol is ezért hitetlenkedett mert nem látta a saját szemével. Innen ered az a mondás amikor valaki nem hiszi el amit mondanak neki, hogy: hitetlen Tamás, vagyis akkor hiszem, ha látom!
+
+Most pihenésképpen egy kis játék:
+
+[https://www.jigsawplanet.com/?rc=play&pid=3af4ec11ffd5](https://www.jigsawplanet.com/?rc=play&pid=3af4ec11ffd5 "https://www.jigsawplanet.com/?rc=play&pid=3af4ec11ffd5") feltámadási kirakó
+
+\- Az apostolok megértették, hogy Jézus akkor is velük van, amikor nem látják és azt is tudja, hogy mire van szükségük, amikor nem is gondolják. Jézus halála utáni találkozásaik nagy erőt adott nekik, ha Jézus a szívükben velük van, akkor nincs mitől félniük. És elvitték Jézus örömhírét az egész világba. A szüleitek szeretete is mindig veletek van a szívetekben, amikor az iskolában, edzésen, vagy éppen játék közben vagytok. Ők is tudják, hogy mire van szükségetek és azt meg is adják nektek. Ezért is tudtok sokszor boldogan ott lenni ahol vagytok, biztonságban érzitek magatokat az ő szeretetük, gondoskodásuk miatt.
+
+\- Csak hogy itt még nincs vége Jézus földi léte történetének. Egy másik hatalmas csoda történt, a mennybemenetel. Bár előtte elszomorodtak a tanítványok, hogy nem lesz velük személyesen Jézus. De Ő valami nagyon fontosat ígért nekik, hogy jön majd helyette valaki más… de erről majd a következő felkészítőn fogtok hallani, olvasni!
+
+Nézzétek meg ezt a rövid rajzfilmet ami a mennybemenetelről szól:
+
+[https://www.youtube.com/watch?v=yyJyDIV0ZyM](https://www.youtube.com/watch?v=yyJyDIV0ZyM "https://www.youtube.com/watch?v=yyJyDIV0ZyM")
+
+„Menjetek el az egész világra és tegyetek tanítványommá minden népet!
+
+Kereszteljétek meg őket az Atya, a Fiú, és a Szentlélek nevében!” Aztán megáldotta őket, és a szemük láttára felemelkedett a hegyről.
+
+\- Emlékeztek Keresztelő Szent Jánosra? Ő a Jordán folyóban, vízzel keresztelte meg az embereket, köztük Jézust is. A mennybemenetel után a tanítványok és most a pap bácsik már a Szentháromság nevében keresztelnek.
+
+Mindezeket a csodákat azért mutatta meg Jézus az apostoloknak, hogy az egész világban elmondják amit ők a saját szemükkel megtapasztaltak, tanúsítanak, hogy van élet, örökélet a földi létünk- halálunk után, Isten örök szeretetében a mennyei országában! Ámen
+
+Ismét egy kis játék: mennybemenetel kirakók: [https://www.jigsawplanet.com/?rc=play&pid=36e37eac77e7](https://www.jigsawplanet.com/?rc=play&pid=36e37eac77e7 "https://www.jigsawplanet.com/?rc=play&pid=36e37eac77e7")
+
+[https://www.jigsawplanet.com/?rc=play&pid=0bbe3d5a4ede](https://www.jigsawplanet.com/?rc=play&pid=0bbe3d5a4ede "https://www.jigsawplanet.com/?rc=play&pid=0bbe3d5a4ede")
+
+[https://www.jigsawplanet.com/?rc=play&pid=124313079d97](https://www.jigsawplanet.com/?rc=play&pid=124313079d97 "https://www.jigsawplanet.com/?rc=play&pid=124313079d97")
+
+Zárásként 2 rövid ének: feltámadási
+
+[https://soundcloud.com/tornay-gabor/ne-feljetek-oruljetek](https://soundcloud.com/tornay-gabor/ne-feljetek-oruljetek "https://soundcloud.com/tornay-gabor/ne-feljetek-oruljetek")
+
+Krisztus a mennybe felment ..
+
+[https://drive.google.com/file/d/0B2c1LaVHiPOhd0pkZ1JpM0lJd2M/view?usp3Ddrive_web](https://drive.google.com/file/d/0B2c1LaVHiPOhd0pkZ1JpM0lJd2M/view?usp3Ddrive_web "https://drive.google.com/file/d/0B2c1LaVHiPOhd0pkZ1JpM0lJd2M/view?usp3Ddrive_web")
+
+Erény gyakorlat: Ne csak a szemeddel nézz, hanem a szíveddel is!
+
+Mint ahogy ez a Kis herceg idézet is mondja:
+
+Imádság: Köszönöm Jézus, hogy te mindig velem vagy és vigyázol rám!
+
+Dicsértessék a Jézus Krisztus!
+
+Ölelek mindenkit: Ilona néni
 
 **A LITURGIKUS ÉV**
 
