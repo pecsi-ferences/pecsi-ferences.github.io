@@ -15,11 +15,9 @@ items:
   url: /hirdeteseink
 - title: Hittan
   url: /hittan
-- title: Hírlevél
+- title: Hírlevél feliratkozás
   url: https://eepurl.com/gZ0AJf
   target: _blank
-- title: NEK2020 videók
-  url: https://www.iec2020.hu/hu/videok
   target: _blank
 - title: Misék a világhálón
   url: https://www.youtube.com/results?search_query=szentmise+k%C3%B6zvet%C3%ADt%C3%A9s+ma
