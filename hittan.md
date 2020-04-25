@@ -77,7 +77,23 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
-**A LITURGIKUS ÉV**
+**A FÖLTÁMADOTT MEGJELENÉSEI  (2020.április 26.)**
+
+**641** Mária Magdolna és a szent asszonyok, akik jöttek, hogy elvégezzék Jézus testének megkenését, melyet a készületi nap miatt sietve temettek el, [\[ ](https://archiv.katolikus.hu/kek/kek00624.html#J551)voltak az elsők, akik találkoztak a Föltámadottal. Így Krisztus föltámadásának első hírnökei az apostolok számára az asszonyok voltak. Az apostoloknak Jézus ezután jelent meg, először Péternek, majd a tizenkettőnek. Péter tehát, aki arra hivatott, hogy erősítse meg testvérei hitét, előttük látja a Föltámadottat, és az ő tanúságára támaszkodva kiáltja a közösség: "Valóban föltámadott az Úr, és megjelent Simonnak" (Lk 24,34).
+
+**642** Mindaz, ami ezekben a húsvéti napokban történt, az apostolokat -- és egész különösen Pétert -- a húsvét reggelén kezdődött új korszak építésének szolgálatába állítja. Mint a Föltámadott tanúi Egyházának alapkövei maradnak. Az első hívő közösség hite azoknak a konkrét embereknek a tanúságára épül, akiket a keresztények ismertek, és akik közül a legtöbb még közöttük élt. "Krisztus föltámadásának e tanúi" elsősorban Péter és a Tizenkettő, de nemcsak ők: Pál világosan beszél több mint ötszáz személyről, akiknek Jézus egyszerre jelent meg; megjelent még Jakabnak és a többi apostolnak is.
+
+**643** E tanúságtételek láttán lehetetlen Krisztus föltámadását a fizikai renden kívül értelmezni és nem elismerni mint történeti tényt. A tényekből következik, hogy a tanítványok hite Mesterük -- általa előre megmondott -- szenvedése és kereszthalála radikális próbatételének vettetett alá. A szenvedés által kiváltott megrendülés oly nagy volt, hogy a tanítványok (legalábbis közülük néhányan) nem azonnal hittek a föltámadás hírének. Az evangéliumok messze nem egy misztikus elragadtatástól lelkes közösségről beszélnek; megtört ("szomorú": Lk 24,17) és megfélelmített tanítványokat állítanak elénk. Ezért nem hittek a sírtól visszatérő szent asszonyoknak, és szavukat "képzelgésnek tartották" (Lk 24,11). Amikor Jézus húsvét estéjén megmutatta magát a Tizenegynek, "szemükre vetette hitetlenségüket és szívük keménységét, mert nem hittek azoknak, akik látták őt föltámadottan" (Mk 16,14).
+
+**644** A tanítványok még a föltámadott Jézus valósága láttán is kételkedtek; annyira lehetetlennek tűnt nekik a dolog: azt gondolták, hogy kísértetet látnak, "álmélkodtak, de örömükben még mindig nem mertek hinni" (Lk 24,41). Tamás a kételkedésnek ugyanezt a próbáját élte át, s még a Máté által elbeszélt utolsó, galileai megjelenéskor is "egyesek (...) kételkedtek" (28,17). Ezért a hipotézis, mely szerint a föltámadás az apostolok hitének (vagy hiszékenységének) "eredménye" lett volna, minden alapot nélkülöz. Épp ellenkezőleg, hitük a föltámadásban -- az isteni kegyelem hatása alatt -- a föltámadott Jézus valóságának közvetlen megtapasztalásából született.
+
+**"AZ IRGALOM ÉS A KÖNYÖRÜLET ISTENE"(2020.április 19.)**
+
+**210** Miután Izrael vétkezett és elfordult Istenétől, hogy az aranyborjút imádja, Isten hallgat Mózes közbenjáró könyörgésére, és vállalja, hogy együtt vonul hűtlen népével. Így mutatja meg szeretetét. Amikor Mózes azt kéri, hogy láthassa az ő dicsőségét, Isten így válaszol neki: "Egész jóságomat megmutatom neked, és kimondom előtted a JHVH nevet" (Kiv 33,18--19). És az Úr elvonult Mózes előtt és mondotta: "JHVH, JHVH, az irgalom és a könyörület Istene, késedelmes a haragra, gazdag a kegyelemben és hűségben" (Kiv 34,6). És Mózes megtudta, hogy az Úr megbocsátó Isten.
+
+**211** Az "Én vagyok" vagy "Ő van" istennév kifejezi Isten hűségét. Az emberi bűnben rejlő hűtlenség és a megszolgált büntetés ellenére Isten megőrzi "irgalmasságát ezredíziglen" (Kiv 34,7). Isten kinyilatkoztatja, hogy "ő gazdag az irgalomban" (Ef 2,4), és oly messzire megy, hogy saját Fiát adja oda. Jézus föláldozza az életét, hogy megszabadítson minket a bűntől, s így kinyilatkoztatja, hogy Ő maga is viseli az isteni nevet: "Amikor majd a magasba emelik az Emberfiát, akkor majd megtudjátok, hogy »Én vagyok«" (Jn 8,28).
+
+**A LITURGIKUS ÉV  (2020.április 12.)**
 
 **HÚSVÉT**
 
@@ -86,9 +102,3 @@ Dicsértessék a Jézus Krisztus!
 **1169** Ezért a húsvét nem egyszerűen egy ünnep a többi között, hanem az "ünnepnapok ünnepnapja", "az ünneplések ünneplése", mint ahogy az Eucharisztia a szentségek szentsége (a nagy szentség). Szent Atanáz "a nagy vasárnapnak" nevezi, [\[49\] ](https://archiv.katolikus.hu/kek/kek01135.html#J49)mint ahogy a szent hetet Keleten (és Magyarországon is) "Nagy Hétnek" nevezik. A föltámadás misztériuma, melyben Krisztus megsemmisítette a halált, hatalmas erejével áthatja a mi régi időnket, mindaddig, amíg minden alá nem lesz vetve Krisztusnak.
 
 **1171** A liturgikus év az egyetlen húsvéti misztérium különböző szempontjainak kibontása. Ez érvényes főként a megtestesülés misztériuma körül elhelyezkedő ünnepkörre (Gyümölcsoltó Boldogasszony, Karácsony, Epifánia), mely üdvösségünk kezdetére emlékeztet és közli a húsvéti misztérium első gyümölcseit.
-
-**"AZ IRGALOM ÉS A KÖNYÖRÜLET ISTENE"**
-
-**210** Miután Izrael vétkezett és elfordult Istenétől, hogy az aranyborjút imádja, Isten hallgat Mózes közbenjáró könyörgésére, és vállalja, hogy együtt vonul hűtlen népével. Így mutatja meg szeretetét. Amikor Mózes azt kéri, hogy láthassa az ő dicsőségét, Isten így válaszol neki: "Egész jóságomat megmutatom neked, és kimondom előtted a JHVH nevet" (Kiv 33,18--19). És az Úr elvonult Mózes előtt és mondotta: "JHVH, JHVH, az irgalom és a könyörület Istene, késedelmes a haragra, gazdag a kegyelemben és hűségben" (Kiv 34,6). És Mózes megtudta, hogy az Úr megbocsátó Isten.
-
-**211** Az "Én vagyok" vagy "Ő van" istennév kifejezi Isten hűségét. Az emberi bűnben rejlő hűtlenség és a megszolgált büntetés ellenére Isten megőrzi "irgalmasságát ezredíziglen" (Kiv 34,7). Isten kinyilatkoztatja, hogy "ő gazdag az irgalomban" (Ef 2,4), és oly messzire megy, hogy saját Fiát adja oda. Jézus föláldozza az életét, hogy megszabadítson minket a bűntől, s így kinyilatkoztatja, hogy Ő maga is viseli az isteni nevet: "Amikor majd a magasba emelik az Emberfiát, akkor majd megtudjátok, hogy »Én vagyok«" (Jn 8,28).
