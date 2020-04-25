@@ -3,6 +3,64 @@ layout: default
 title: Hirdetéseink
 
 ---
+HIRDETÉSEINK HÚSVÉT 3. VASÁRNAPJÁN - 2020.április 26-május 3.
+
+1\. Hirdetjük a Kedves Testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel templomunkban a szertartások továbbra is szünetelnek. Miseszándékra azonban- a nyilvánosság kizárásával - készséggel mondunk csöndes misét.
+
+A mise stipendiumot a plébánia bankszámlájára lehet átutalni vagy befizetni. SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+A szándékot pedig akár telefonon, akár e-mailban lehet jelezni.
+
+2\. A plébánia irodai szolgálata is szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is. Amiben tudunk, készséggel segítünk.
+
+Az egyházi adót a plébánia bankszámlájára lehet átutalni vagy befizetni.
+
+SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+3\. Ne feledkezzünk- a jövő héten sem-azokról a lehetőségekről, melyeket a televízió, rádió és az internet nyújt számunkra. Plébániánk honlapján is létrehoztunk egy új menüpontot: „Misék a világhálón”. Talán ez a lehetőség is segítségünkre lehet a hatékonyabb keresésében, elmélyülésben.
+
+4\. Plébániánk internetes felületén megjelent a HÍRLEVÉL menüpont. Az e-mail címünk megadásával a plébánia hirdetéseit hétről-hétre elküldjük e-mail fiókjába. Nagy öröm számunkra, hogy már többen is érdeklődnek a Hírlevél után.
+
+5\. Plébánián internetes felületére - a HITTAN menüpont alatt- megtalálható a legutóbbi templomi hittanra szánt elsőáldozási felkészítő anyaga. Szeretettel ajánljuk a hittanos gyerekek figyelmébe! Ugyanakkor hétről-hétre az aktuális vasárnaphoz kapcsolódóan a Katolikus Egyház Katekizmusából is idézünk néhány pontot, ami talán nem csak az iskolás hittanosoknak lehet hasznos.
+
+6\. Május a Szűzanya hónapja. Ne feledkezzünk meg arról, hogy otthonainkban is imádkozzuk a Loretói litániát, valamint egyéb szép Mária imádságokat.
+
+7\. Jövő vasárnap Húsvét 4. Vasárnapja lesz, vagyis a JÓ PÁSZTOR vasárnapja. Ez a vasárnap évek hosszú sora óta a Hivatások Világnapja, ezért imádkozzunk ezen a napon papi, szerzetesi és családos hivatásokért.
+
+8\. A Pécsi Egyházmegyében múlt két hete csütörtökön indult a kezdeményezés, amely arra buzdít, hogy otthonainkból, délután 17.00 órakor imádkozzuk együtt a rózsafüzért. _Imádkozzuk együtt otthon a szentolvasót csütörtökönként. Húsvét előtt a fájdalmas szentolvasót imádkozzuk, húsvéttól pedig a dicsőségest. Ajánljuk fel ezt az imádságot a betegekért, a járvány elhunytjaiért és az őket gyászoló szeretteikért, valamint azért, hogy mielőbb legyőzze az emberiség e vírust, és újrakezdhesse egészségben életét._
+
+Csatlakozzunk a felhíváshoz és kérjük együtt a Szűzanya közbenjárását azokért a testvéreinkért, akik betegségeik miatt szenvednek és azokért, akik a koronavírus által okozott járvány áldozatai lettek.
+
+9\. A Pécsi Egyházmegye központi telefonszámát tárcsázva, 2020.március 28-tól lehetőségük van atyákkal és civil szakemberekkel beszélgetni minden nap 9.00–12.00; és 15.00–19.00 óráig.
+
+A segítő atyákat és a szakembereket a telefonszám hívását követően munkatársunk segítségével tudja elérni.
+
+Kérjük, amennyiben környezetében lelki segítségre szorulókat lát, ajánlja figyelmébe a LÉLEKERŐSÍTŐ program lehetőségét.
+
+Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.00–19.00** óráig.
+
+[**FELTÁMADT!**](https://keresztyenversek.wordpress.com/2010/03/17/feltamadt/)
+
+**Egy édes titkom van nekem.  
+ Fénnyel betölti életem,  
+ mosolyra nyitja számat:  
+ a Megváltó feltámadt!**
+
+**Nem,nem maradt a sír ölén.  
+ Ujjongok az örömtől én,  
+ hisz nem vagyok már árva.  
+ Nincs többé sírba zárva.**
+
+**Velem van nappal, éjjelen.  
+ Mindig velem, mindig velem.  
+ Az úton Ő vezérel  
+ oltalmazó kezével.**
+
+**Virágok, illatozzatok!  
+ Húsvéti, tiszta fény ragyog  
+ elűzve minden árnyat:  
+ a Megváltó feltámadt! (_Túrmezei Erzsébet)_**
+
 HIRDETÉSEINK HÚSVÉT 2. VASÁRNAPJÁN
 
 AZ ISTENI IRGALMASSÁG VASÁRNAPJÁN - 2020.április 19-26.
@@ -52,49 +110,49 @@ Reviczky Gyula
 **Feltámadás**
 
 Fakadnak már a virágok,  
- Kiderül az ég,  
- És a föld most készül ülni  
- Drága ünnepét.  
- Sziveinkben, mint a földön,  
- Ma öröm legyen,  
- Feltámadt az istenember  
- Győzedelmesen!
+Kiderül az ég,  
+És a föld most készül ülni  
+Drága ünnepét.  
+Sziveinkben, mint a földön,  
+Ma öröm legyen,  
+Feltámadt az istenember  
+Győzedelmesen!
 
 Akik tanait gyülölték,  
- Meg nem ölheték.  
- Nem rejthette sír magába  
- Égi szellemét.  
- Mert égből eredt s nem is volt  
- Születése sem...  
- Feltámadt az istenember  
- Győzedelmesen!
+Meg nem ölheték.  
+Nem rejthette sír magába  
+Égi szellemét.  
+Mert égből eredt s nem is volt  
+Születése sem...  
+Feltámadt az istenember  
+Győzedelmesen!
 
 Kettős ünneplés azóta  
- Minden kikelet!  
- A mennyországé s a földé...  
- Ünnepeljetek!  
- Adjatok hálát, hogy ismét  
- Új világ terem,  
- S feltámadt az istenember  
- Győzedelmesen!
+Minden kikelet!  
+A mennyországé s a földé...  
+Ünnepeljetek!  
+Adjatok hálát, hogy ismét  
+Új világ terem,  
+S feltámadt az istenember  
+Győzedelmesen!
 
 Aki tudja, mint töré fel  
- Sírját a dicső;  
- Aki látja, hogy a földön  
- Minden újra nő;  
- Gondoljon feltámadásra,  
- Mely örök leszen...  
- Feltámadt az istenember  
- Győzedelmesen!
+Sírját a dicső;  
+Aki látja, hogy a földön  
+Minden újra nő;  
+Gondoljon feltámadásra,  
+Mely örök leszen...  
+Feltámadt az istenember  
+Győzedelmesen!
 
 Adjatok hálát s virágot,  
- Tömjént hozzatok.  
- Hallelujah! hallelujah!  
- Zengje ajkatok.  
- Mert feltámadtok ti is még  
- Valamennyien,  
- Mint az istenember egykor:  
- Győzedelmesen.
+Tömjént hozzatok.  
+Hallelujah! hallelujah!  
+Zengje ajkatok.  
+Mert feltámadtok ti is még  
+Valamennyien,  
+Mint az istenember egykor:  
+Győzedelmesen.
 
 HIRDETÉSEINK HÚSVÉTVASÁRNAP- 2020.április 12-19.
 
