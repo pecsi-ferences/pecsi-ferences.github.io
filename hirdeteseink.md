@@ -27,7 +27,7 @@ SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
 
 7\. Jövő vasárnap Húsvét 4. Vasárnapja lesz, vagyis a JÓ PÁSZTOR vasárnapja. Ez a vasárnap évek hosszú sora óta a Hivatások Világnapja, ezért imádkozzunk ezen a napon papi, szerzetesi és családos hivatásokért.
 
-8\. A Pécsi Egyházmegyében múlt két hete csütörtökön indult a kezdeményezés, amely arra buzdít, hogy otthonainkból, délután 17.00 órakor imádkozzuk együtt a rózsafüzért. _Imádkozzuk együtt otthon a szentolvasót csütörtökönként. Húsvét előtt a fájdalmas szentolvasót imádkozzuk, húsvéttól pedig a dicsőségest. Ajánljuk fel ezt az imádságot a betegekért, a járvány elhunytjaiért és az őket gyászoló szeretteikért, valamint azért, hogy mielőbb legyőzze az emberiség e vírust, és újrakezdhesse egészségben életét._
+8\. A Pécsi Egyházmegyében két hete- csütörtökön- indult a kezdeményezés, amely arra buzdít, hogy otthonainkból, délután 17.00 órakor imádkozzuk együtt a rózsafüzért. _Imádkozzuk együtt otthon a szentolvasót csütörtökönként. Húsvét előtt a fájdalmas szentolvasót imádkozzuk, húsvéttól pedig a dicsőségest. Ajánljuk fel ezt az imádságot a betegekért, a járvány elhunytjaiért és az őket gyászoló szeretteikért, valamint azért, hogy mielőbb legyőzze az emberiség e vírust, és újrakezdhesse egészségben életét._
 
 Csatlakozzunk a felhíváshoz és kérjük együtt a Szűzanya közbenjárását azokért a testvéreinkért, akik betegségeik miatt szenvednek és azokért, akik a koronavírus által okozott járvány áldozatai lettek.
 
@@ -42,24 +42,24 @@ Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.
 [**FELTÁMADT!**](https://keresztyenversek.wordpress.com/2010/03/17/feltamadt/)
 
 **Egy édes titkom van nekem.  
- Fénnyel betölti életem,  
- mosolyra nyitja számat:  
- a Megváltó feltámadt!**
+Fénnyel betölti életem,  
+mosolyra nyitja számat:  
+a Megváltó feltámadt!**
 
 **Nem,nem maradt a sír ölén.  
- Ujjongok az örömtől én,  
- hisz nem vagyok már árva.  
- Nincs többé sírba zárva.**
+Ujjongok az örömtől én,  
+hisz nem vagyok már árva.  
+Nincs többé sírba zárva.**
 
 **Velem van nappal, éjjelen.  
- Mindig velem, mindig velem.  
- Az úton Ő vezérel  
- oltalmazó kezével.**
+Mindig velem, mindig velem.  
+Az úton Ő vezérel  
+oltalmazó kezével.**
 
 **Virágok, illatozzatok!  
- Húsvéti, tiszta fény ragyog  
- elűzve minden árnyat:  
- a Megváltó feltámadt! (_Túrmezei Erzsébet)_**
+Húsvéti, tiszta fény ragyog  
+elűzve minden árnyat:  
+a Megváltó feltámadt! (_Túrmezei Erzsébet)_**
 
 HIRDETÉSEINK HÚSVÉT 2. VASÁRNAPJÁN
 
