@@ -3,6 +3,109 @@ layout: default
 title: Hirdetéseink
 
 ---
+HIRDETÉSEINK HÚSVÉT 4. VASÁRNAPJÁN
+
+2020\.május 3- 10.
+
+1\.Ma Húsvét 4. Vasárnapja van, vagyis a JÓ PÁSZTOR vasárnapja. Ez a vasárnap évek hosszú sora óta a Hivatások Világnapja egyházunkban, ezért imádkozzunk ezen a napon papi, szerzetesi és családos hivatásokért.
+
+2\. Ma van anyák napja is, erről ne feledkezzünk meg imaszándékainkban sem. Isten éltesse az édesanyákat! A Gondviselés adjon sok erőt hivatásuk betöltéséhez!
+
+3\.Hirdetjük a Kedves Testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel templomunkban a szertartások továbbra is szünetelnek. Miseszándékra azonban- a nyilvánosság kizárásával - készséggel mondunk csöndes misét.
+
+A mise stipendiumot a plébánia bankszámlájára lehet átutalni vagy befizetni. SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+A szándékot pedig akár telefonon, akár e-mailban lehet jelezni.
+
+4\.A plébánia irodai szolgálata is szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is. Amiben tudunk, készséggel segítünk.
+
+Az egyházi adót a plébánia bankszámlájára lehet átutalni vagy befizetni.
+
+SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+5\. Ne feledkezzünk- a jövő héten sem-azokról a lehetőségekről, melyeket a televízió, rádió és az internet nyújt számunkra. Plébániánk honlapján is létrehoztunk egy új menüpontot: „Misék a világhálón”. Talán ez a lehetőség is segítségünkre lehet a hatékonyabb keresésében, elmélyülésben.
+
+6\. Plébániánk internetes felületén megjelent a HÍRLEVÉL FELIRATKOZÁS menüpont. Az e-mail címünk megadásával a plébánia hirdetéseit hétről-hétre elküldjük e-mail fiókjába.
+
+7\. Plébánián internetes felületére - a HITTAN menüpont alatt- megtalálható a legutóbbi templomi hittanra szánt elsőáldozási felkészítő anyaga. Szeretettel ajánljuk a hittanos gyerekek figyelmébe! Ugyanakkor hétről-hétre az aktuális vasárnaphoz kapcsolódóan a Katolikus Egyház Katekizmusából is idézünk néhány pontot, ami talán nem csak az iskolás hittanosoknak lehet hasznos.
+
+8\. Május a Szűzanya hónapja. Ne feledkezzünk meg arról, hogy otthonainkban is imádkozzuk a Loretói litániát, valamint egyéb szép Mária imádságokat.
+
+9\. A Pécsi Egyházmegyében három hete- csütörtökön- indult a kezdeményezés, amely arra buzdít, hogy otthonainkból, délután 17.00 órakor imádkozzuk együtt a rózsafüzért. _Imádkozzuk együtt otthon a szentolvasót csütörtökönként. Húsvét előtt a fájdalmas szentolvasót imádkozzuk, húsvéttól pedig a dicsőségest. Ajánljuk fel ezt az imádságot a betegekért, a járvány elhunytjaiért és az őket gyászoló szeretteikért, valamint azért, hogy mielőbb legyőzze az emberiség e vírust, és újrakezdhesse egészségben életét._
+
+Csatlakozzunk a felhíváshoz és kérjük együtt a Szűzanya közbenjárását azokért a testvéreinkért, akik betegségeik miatt szenvednek és azokért, akik a koronavírus által okozott járvány áldozatai lettek.
+
+10\. A Pécsi Egyházmegye központi telefonszámát tárcsázva, 2020.március 28-tól lehetőségük van atyákkal és civil szakemberekkel beszélgetni minden nap 9.00–12.00; és 15.00–19.00 óráig.
+
+A segítő atyákat és a szakembereket a telefonszám hívását követően munkatársunk segítségével tudja elérni.
+
+Kérjük, amennyiben környezetében lelki segítségre szorulókat lát, ajánlja figyelmébe a LÉLEKERŐSÍTŐ program lehetőségét.
+
+Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.00–19.00** óráig.
+
+11\. Megjelent a Barátok Lapja plébániai tájékoztató májusi száma.
+
+12\. Ne feledkezzünk meg az érettségizőkről, akik a jövő héten adnak számot tudásukról. Fohászkodjunk értük!
+
+# Túrmezei Erzsébet – Húsvét hajnalán
+
+**Alig várták, hogy jöjjön a reggel,  
+ s most bánatosan, illatos kenetekkel,  
+ sírva sietnek a sír felé hárman,  
+ epesztő, emésztő, roskasztó gyászban.  
+ Ím ébred az élet és támad a nap már.  
+ A madarak kara csak egy fénylő sugarat vár,  
+ és csattog az ének száll által a légen  
+ fel, fel az ég felé… Csak úgy, mint régen.  
+ Jaj, az a régen! Ne fájna az emlék?  
+ Mikor a Mester előttünk ment még,  
+ és ajkén az élet igéi fakadtak  
+ a szomjazóknak a fáradtaknak!  
+ Volt-e valaha riasztóbb álom,  
+ mint ez a három nap, ez a három:  
+ mikor, aki folyvást csak életet mentett,  
+ vad, gyilkos kezek fogják meg a Szentet,  
+ viszik diadallal a főpap elébe,  
+ rágalmat, gúnyt vágnak a tiszta szemébe,  
+ és suhog a korbács és csattog az ostor.  
+ Hol, aki megvédje, a hős, az apostol?  
+ És az Atya hallgat? – Mély csend ül az égen  
+ s most hajnallik újra csak. Úgy… úgy mint régen.**
+
+**Hogy hurcolták! Mint egy gonosztevőt.  
+ S még volt, ki gúnnyal nevette Őt,  
+ amint a tövistől a vére kicsordul,  
+ s úgy kell felemelni az utcai porbul.  
+ Köpdösve, gyalázva a fára szegezték,  
+ de Ő ugyanaz volt, ott is szeretett még,  
+ ott fenn a kereszten anyát és poroszlót:  
+ könnyet hullajtót és gyilkos sebet osztót.  
+ Ó, jaj, a halálig, mindig szeretett!  
+ Viszik az illatozó kenetet,  
+ és sírva sietnek a sír felé hárman,  
+ nagypénteki gyásszal húsvéti sugárban.**
+
+**Hogy látnak szemükben keserű könnyekkel,  
+ milyen csodálatos ez a reggel.  
+ A pálmafák két szegélyén az útnak  
+ súgva-búgva valami titkot tudnak.  
+ A virágok át harmatkönnyeken  
+ már látják felragyogni fényesen  
+ az élet napját, s azt hirdeti minden:  
+ A sírban nincsen! A sírban nincsen!**
+
+**Ők mégis mennek. Gyászolva, sírva.  
+ Betekinteni egy üres sírba,  
+ az angyal előtt döbbenve megállni:  
+ feltámadott, élő Mesterre találni.**
+
+**Húsvétkor, ha nincs még húsvéti szíved,  
+ a nagypéntekit vedd, vedd és vigyed  
+ könnyesen, aggódón búsan, amint van,  
+ s keresd a Krisztust, keresd a sírban!  
+ Nem, úgysem fogod megtalálni ottan.  
+ Eléd fog állni feltámadottan.**
+
 HIRDETÉSEINK HÚSVÉT 3. VASÁRNAPJÁN - 2020.április 26-május 3.
 
 1\. Hirdetjük a Kedves Testvéreknek, hogy a rendkívüli járványügyi helyzetre való tekintettel templomunkban a szertartások továbbra is szünetelnek. Miseszándékra azonban- a nyilvánosság kizárásával - készséggel mondunk csöndes misét.
