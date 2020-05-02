@@ -77,6 +77,18 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+#### KRISZTUS EGYETLEN PAPSÁGA (2020.május 3.)
+
+**1544** Az ószövetségi papság összes előképe Jézus Krisztusban teljesedik be, aki "az egyetlen közvetítő Isten és ember között" (1Tim 2,5). Melkizedekben, "a magasságbeli Isten papjában" (Ter 14,18) a keresztény hagyomány Krisztus papságának előképét látja; Ő az egyetlen "Melkizedek rendje szerint való főpap" (Zsid 5,10; 6,20), "a szent, ártatlan, szeplőtelen" (Zsid 7,26), aki "egyetlen áldozattal egyszer s mindenkorra tökéletességre vezette a megszentelteket" (Zsid 10,14), tudniillik egyetlen keresztáldozatával.
+
+**1545** Krisztus megváltó áldozata egyetlen: egyszer és mindenkorra történt meg. És mégis az Egyház eucharisztikus áldozatában jelenvalóvá válik. Ugyanezt kell mondanunk Krisztus egyetlen papságáról: jelenvalóvá válik a szolgálati papság által, anélkül, hogy Krisztus papságának egyetlenségét csorbítaná: "És ezért Krisztus az egyetlen igazi pap, a többiek csak az ő szolgái".
+
+#### EVANGÉLIUMI TANÁCSOK, ISTENNEK SZENTELT ÉLET
+
+**915** Az evangéliumi tanácsokat az Egyház a maguk sokféleségében Krisztus minden tanítványának ajánlja. A tökéletes szeretet, melyre minden hívő meghívást kapott, azok számára, akik szabadon elfogadják az Istennek szentelt élet hivatását, magával hozza az Isten országáért vállalt cölibátus, valamint a szegény és engedelmes élet kötelezettségét. E tanácsok fogadalommal való vállalása egy az Egyház által elismert, állandó életállapotban az Istennek "szentelt élet" jellemző vonása.
+
+**916** Az Istennek szentelt élet állapota az egyik a "mélyebben" Istennek szentelt életformák közül, mely a keresztségben gyökerezik és teljesen átadja magát Istennek. Az Istennek szentelt életben a Krisztus-hívők a Szentlélek indítására vállalják, hogy Krisztust szorosabban követik, önmagukat odaadják a mindenekfölött szeretett Istennek, és törekednek a szeretet tökéletességére Isten országa szolgálatában. Mindezzel jelzik és hirdetik az Egyházban az eljövendő világ dicsőségét.
+
 **A FÖLTÁMADOTT MEGJELENÉSEI  (2020.április 26.)**
 
 **641** Mária Magdolna és a szent asszonyok, akik jöttek, hogy elvégezzék Jézus testének megkenését, melyet a készületi nap miatt sietve temettek el, [\[ ](https://archiv.katolikus.hu/kek/kek00624.html#J551)voltak az elsők, akik találkoztak a Föltámadottal. Így Krisztus föltámadásának első hírnökei az apostolok számára az asszonyok voltak. Az apostoloknak Jézus ezután jelent meg, először Péternek, majd a tizenkettőnek. Péter tehát, aki arra hivatott, hogy erősítse meg testvérei hitét, előttük látja a Föltámadottat, és az ő tanúságára támaszkodva kiáltja a közösség: "Valóban föltámadott az Úr, és megjelent Simonnak" (Lk 24,34).
