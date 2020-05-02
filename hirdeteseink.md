@@ -23,7 +23,7 @@ Az egyházi adót a plébánia bankszámlájára lehet átutalni vagy befizetni.
 
 SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
 
-5\. Ne feledkezzünk- a jövő héten sem-azokról a lehetőségekről, melyeket a televízió, rádió és az internet nyújt számunkra. Plébániánk honlapján is létrehoztunk egy új menüpontot: „Misék a világhálón”. Talán ez a lehetőség is segítségünkre lehet a hatékonyabb keresésében, elmélyülésben.
+5\. Ne feledkezzünk el - a jövő héten sem-azokról a lehetőségekről, melyeket a televízió, rádió és az internet nyújt számunkra. Plébániánk honlapján is létrehoztunk egy új menüpontot: „Misék a világhálón”. Talán ez a lehetőség is segítségünkre lehet a hatékonyabb keresésében, elmélyülésben.
 
 6\. Plébániánk internetes felületén megjelent a HÍRLEVÉL FELIRATKOZÁS menüpont. Az e-mail címünk megadásával a plébánia hirdetéseit hétről-hétre elküldjük e-mail fiókjába.
 
@@ -50,61 +50,61 @@ Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.
 # Túrmezei Erzsébet – Húsvét hajnalán
 
 **Alig várták, hogy jöjjön a reggel,  
- s most bánatosan, illatos kenetekkel,  
- sírva sietnek a sír felé hárman,  
- epesztő, emésztő, roskasztó gyászban.  
- Ím ébred az élet és támad a nap már.  
- A madarak kara csak egy fénylő sugarat vár,  
- és csattog az ének száll által a légen  
- fel, fel az ég felé… Csak úgy, mint régen.  
- Jaj, az a régen! Ne fájna az emlék?  
- Mikor a Mester előttünk ment még,  
- és ajkén az élet igéi fakadtak  
- a szomjazóknak a fáradtaknak!  
- Volt-e valaha riasztóbb álom,  
- mint ez a három nap, ez a három:  
- mikor, aki folyvást csak életet mentett,  
- vad, gyilkos kezek fogják meg a Szentet,  
- viszik diadallal a főpap elébe,  
- rágalmat, gúnyt vágnak a tiszta szemébe,  
- és suhog a korbács és csattog az ostor.  
- Hol, aki megvédje, a hős, az apostol?  
- És az Atya hallgat? – Mély csend ül az égen  
- s most hajnallik újra csak. Úgy… úgy mint régen.**
+s most bánatosan, illatos kenetekkel,  
+sírva sietnek a sír felé hárman,  
+epesztő, emésztő, roskasztó gyászban.  
+Ím ébred az élet és támad a nap már.  
+A madarak kara csak egy fénylő sugarat vár,  
+és csattog az ének száll által a légen  
+fel, fel az ég felé… Csak úgy, mint régen.  
+Jaj, az a régen! Ne fájna az emlék?  
+Mikor a Mester előttünk ment még,  
+és ajkén az élet igéi fakadtak  
+a szomjazóknak a fáradtaknak!  
+Volt-e valaha riasztóbb álom,  
+mint ez a három nap, ez a három:  
+mikor, aki folyvást csak életet mentett,  
+vad, gyilkos kezek fogják meg a Szentet,  
+viszik diadallal a főpap elébe,  
+rágalmat, gúnyt vágnak a tiszta szemébe,  
+és suhog a korbács és csattog az ostor.  
+Hol, aki megvédje, a hős, az apostol?  
+És az Atya hallgat? – Mély csend ül az égen  
+s most hajnallik újra csak. Úgy… úgy mint régen.**
 
 **Hogy hurcolták! Mint egy gonosztevőt.  
- S még volt, ki gúnnyal nevette Őt,  
- amint a tövistől a vére kicsordul,  
- s úgy kell felemelni az utcai porbul.  
- Köpdösve, gyalázva a fára szegezték,  
- de Ő ugyanaz volt, ott is szeretett még,  
- ott fenn a kereszten anyát és poroszlót:  
- könnyet hullajtót és gyilkos sebet osztót.  
- Ó, jaj, a halálig, mindig szeretett!  
- Viszik az illatozó kenetet,  
- és sírva sietnek a sír felé hárman,  
- nagypénteki gyásszal húsvéti sugárban.**
+S még volt, ki gúnnyal nevette Őt,  
+amint a tövistől a vére kicsordul,  
+s úgy kell felemelni az utcai porbul.  
+Köpdösve, gyalázva a fára szegezték,  
+de Ő ugyanaz volt, ott is szeretett még,  
+ott fenn a kereszten anyát és poroszlót:  
+könnyet hullajtót és gyilkos sebet osztót.  
+Ó, jaj, a halálig, mindig szeretett!  
+Viszik az illatozó kenetet,  
+és sírva sietnek a sír felé hárman,  
+nagypénteki gyásszal húsvéti sugárban.**
 
 **Hogy látnak szemükben keserű könnyekkel,  
- milyen csodálatos ez a reggel.  
- A pálmafák két szegélyén az útnak  
- súgva-búgva valami titkot tudnak.  
- A virágok át harmatkönnyeken  
- már látják felragyogni fényesen  
- az élet napját, s azt hirdeti minden:  
- A sírban nincsen! A sírban nincsen!**
+milyen csodálatos ez a reggel.  
+A pálmafák két szegélyén az útnak  
+súgva-búgva valami titkot tudnak.  
+A virágok át harmatkönnyeken  
+már látják felragyogni fényesen  
+az élet napját, s azt hirdeti minden:  
+A sírban nincsen! A sírban nincsen!**
 
 **Ők mégis mennek. Gyászolva, sírva.  
- Betekinteni egy üres sírba,  
- az angyal előtt döbbenve megállni:  
- feltámadott, élő Mesterre találni.**
+Betekinteni egy üres sírba,  
+az angyal előtt döbbenve megállni:  
+feltámadott, élő Mesterre találni.**
 
 **Húsvétkor, ha nincs még húsvéti szíved,  
- a nagypéntekit vedd, vedd és vigyed  
- könnyesen, aggódón búsan, amint van,  
- s keresd a Krisztust, keresd a sírban!  
- Nem, úgysem fogod megtalálni ottan.  
- Eléd fog állni feltámadottan.**
+a nagypéntekit vedd, vedd és vigyed  
+könnyesen, aggódón búsan, amint van,  
+s keresd a Krisztust, keresd a sírban!  
+Nem, úgysem fogod megtalálni ottan.  
+Eléd fog állni feltámadottan.**
 
 HIRDETÉSEINK HÚSVÉT 3. VASÁRNAPJÁN - 2020.április 26-május 3.
 
