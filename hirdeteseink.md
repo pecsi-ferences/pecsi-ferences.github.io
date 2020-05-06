@@ -3,6 +3,10 @@ layout: default
 title: Hirdetéseink
 
 ---
+**2020.MÁJUS 9-ÉN A PÉCSI EGYHÁZMEGYE MÁRIAGYŰDI LELKI (ONLINE) KARANTÉN ZARÁNDOKLATOT HIRDET. Bővebb információ az Egyházmegye internetes felületén érhető el**:
+
+[https://pecsiegyhazmegye.hu/hirarchivum/3654-mariagyudi-lelki-online-karanten-zarandoklat](https://pecsiegyhazmegye.hu/hirarchivum/3654-mariagyudi-lelki-online-karanten-zarandoklat "https://pecsiegyhazmegye.hu/hirarchivum/3654-mariagyudi-lelki-online-karanten-zarandoklat")
+
 HIRDETÉSEINK HÚSVÉT 4. VASÁRNAPJÁN
 
 2020\.május 3- 10.
