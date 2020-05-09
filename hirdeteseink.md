@@ -3,6 +3,78 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK HÚSVÉT 5. VASÁRNAPJÁN -2020.MÁJUS 10-17.**
+
+1\.Hirdetjük a Kedves Testvéreknek, hogy a rendkívüli járványügyi helyzetben elővigyázatosságból a jövő héten még nem lesznek nyilvános szentmisék templomunkban.
+
+2\. 2020.május 16-án (Szombaton) 17 órakor és 2020.május 17-én (Vasárnap) 11 órakor lehetőség lesz szentáldozáshoz járulni. Az áldoztatás- szabadtéri-helyszíne a templom mögötti parkoló lesz.
+
+3\.A plébánia irodai szolgálata is szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is. Amiben tudunk, készséggel segítünk.
+
+Az egyházi adót a plébánia bankszámlájára lehet átutalni vagy befizetni.
+
+SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+4\. Ne feledkezzünk el - a jövő héten sem-azokról a lehetőségekről, melyeket a televízió, rádió és az internet nyújt számunkra. Plébániánk honlapján is létrehoztunk egy új menüpontot: „Misék a világhálón”. Talán ez a lehetőség is segítségünkre lehet a hatékonyabb keresésében, elmélyülésben.
+
+5\. Plébániánk internetes felületén megjelent a HÍRLEVÉL FELIRATKOZÁS menüpont. Az e-mail címünk megadásával a plébánia hirdetéseit hétről-hétre elküldjük e-mail fiókjába.
+
+6\. Május a Szűzanya hónapja. Ne feledkezzünk meg arról, hogy otthonainkban is imádkozzuk a Loretói litániát, valamint egyéb szép Mária imádságokat.
+
+7\. A Pécsi Egyházmegye központi telefonszámát tárcsázva, 2020.március 28-tól lehetőségük van atyákkal és civil szakemberekkel beszélgetni minden nap 9.00–12.00; és 15.00–19.00 óráig.
+
+A segítő atyákat és a szakembereket a telefonszám hívását követően munkatársunk segítségével tudja elérni.
+
+Kérjük, amennyiben környezetében lelki segítségre szorulókat lát, ajánlja figyelmébe a LÉLEKERŐSÍTŐ program lehetőségét.
+
+Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.00–19.00** óráig.
+
+8\. Megjelent a Barátok Lapja plébániai tájékoztató májusi száma.
+
+[https://pecsi-ferences.github.io/assets/pdfs/2020-05.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-05.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-05.pdf")
+
+Bódás János – Húsvéti hit
+
+**Bármit beszéltek, hitetlen Tamások,**  
+ **a húsvéti hit győzedelmes marad.**  
+ **Az Úr feltámadt, vallja millió szív,**  
+ **s nem roskad össze semmi súly alatt.**
+
+**Én nem hajlok a hitető beszédre,**  
+ **világcsalók előtt se hódolok,**  
+ **de tördelvén a titok néma zárát,**  
+ **csak azt hiszem, amit megtapasztalok.**
+
+**De mit nem érzek vak, süket kezemmel,**  
+ **s hová nem ér el káprázó szemem,**  
+ **lelkemmel látom azt, amely ha szárnyal,**  
+ **nem ér nyomába gyarló értelem.**
+
+**Én hallom, mit súg virág a virágnak,**  
+ **bár hangjának fülemben nincs nyoma.**  
+ **Értem a tavasz illatos beszédét,**  
+ **s érzem Istent, bár nem láttam soha.**
+
+**S bár győzött a bűn, mikor a keresztről**  
+ **lelkeket mosva hullt alá a vér,**  
+ **mégis hiszem a Krisztus diadalát,**  
+ **s tudom, hogy feltámadt, mert bennem él!**
+
+**Ő áll mellettem könnyben és mosolyban,**  
+ **amíg az élet rögeit töröm,**  
+ **nyugodtan tűrök, mert tudom, hogy vár majd**  
+ **egy új élet s fenn mennyei öröm.**
+
+**E hit vigasztal minden megtiportat,**  
+ **özvegyet, árvát, sír felé menőt,**  
+ **gyermeket-vesztett, zokogó anyákat,**  
+ **s aki beteg is, ebből nyer erőt.**
+
+**Az Úr feltámadt, vallja millió szív**  
+ **s nem roskad össze semmi súly alatt.**  
+ **Bármit beszéltek hitetlen Tamások,**  
+ **a húsvéti hit győzelmes marad!**
+
 **2020.MÁJUS 9-ÉN A PÉCSI EGYHÁZMEGYE MÁRIAGYŰDI LELKI (ONLINE) KARANTÉN ZARÁNDOKLATOT HIRDET. Bővebb információ az Egyházmegye internetes felületén érhető el**:
 
 [https://pecsiegyhazmegye.hu/hirarchivum/3654-mariagyudi-lelki-online-karanten-zarandoklat](https://pecsiegyhazmegye.hu/hirarchivum/3654-mariagyudi-lelki-online-karanten-zarandoklat "https://pecsiegyhazmegye.hu/hirarchivum/3654-mariagyudi-lelki-online-karanten-zarandoklat")
