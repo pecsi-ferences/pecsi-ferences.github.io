@@ -77,6 +77,14 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL (2020.MÁJUS 10.)
+
+**2664** A keresztény imának nincs más útja, mint Krisztus. Imádságunk -- akár közösségi, akár személyes, szóbeli vagy belső -- nem juthat el az Atyához, csak akkor, ha "Jézus nevében" imádkozunk. Jézus szent embersége tehát az út, melyen a Szentlélek megtanít minket imádkozni Istenhez, a mi Atyánkhoz.
+
+**2614** Amikor Jézus nyíltan rábízza tanítványaira az Atyához szóló imádság misztériumát, föltárja nekik, hogy milyennek kell lennie az ő imádságuknak és a miénknek is azután, hogy megdicsőült emberi természetében Ő már visszatért az Atyához. Az újdonság most "kérni az ő nevében". A Jézusban való hit bevezeti a tanítványokat az Atya megismerésébe, mivel Ő "az Út, az Igazság és az Élet" (Jn 14,6). A hit a szeretetben termi meg gyümölcsét: Jézus tanításának és parancsainak megtartását, a megmaradást Ővele az Atyában, aki minket Őbenne annyira szeret, hogy bennünk marad. Ebben az új Szövetségben a bizonyosság, hogy kéréseink meghallgatást nyernek, Jézus imádságára alapszik.
+
+**459** Az Ige testté lett, hogy a szentség példaképe legyen számunkra: "Vegyétek magatokra igámat és tanuljatok tőlem..." (Mt 11,29). "Én vagyok az Út, az Igazság és az Élet, senki sem jut az Atyához, csak énáltalam" (Jn 14,6). És a színeváltozás hegyén maga az Atya parancsolja: "Őt hallgassátok" (Mk 9,7). Ő csakugyan a boldogságok modellje és az új törvény normája: "Szeressétek egymást, amint én szerettelek titeket" (Jn 15,12). Ez a szeretet megköveteli, hogy az ő nyomában járva odaadjuk önmagunkat.
+
 #### KRISZTUS EGYETLEN PAPSÁGA (2020.május 3.)
 
 **1544** Az ószövetségi papság összes előképe Jézus Krisztusban teljesedik be, aki "az egyetlen közvetítő Isten és ember között" (1Tim 2,5). Melkizedekben, "a magasságbeli Isten papjában" (Ter 14,18) a keresztény hagyomány Krisztus papságának előképét látja; Ő az egyetlen "Melkizedek rendje szerint való főpap" (Zsid 5,10; 6,20), "a szent, ártatlan, szeplőtelen" (Zsid 7,26), aki "egyetlen áldozattal egyszer s mindenkorra tökéletességre vezette a megszentelteket" (Zsid 10,14), tudniillik egyetlen keresztáldozatával.
