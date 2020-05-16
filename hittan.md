@@ -77,6 +77,20 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL (2020.MÁJUS 17.)
+
+**79.** Így az önközlés, melyet az Atya Igéje által a Szentlélekben valósított meg, jelenvaló és tevékeny marad az Egyházban: "Isten, aki egykor szólt, megszakítás nélkül beszélget szeretett Fiának menyasszonyával, és a Szentlélek, aki által az Egyházban és az Egyház által a világban fölhangzik az evangélium élő szava, bevezeti a hívőket a teljes igazságba, és az Ő műve, hogy Krisztus igéje elevenen él bennük".
+
+**1101** A Szentlélek adja Isten igéjének lelki megértését az olvasóknak és a hallgatóknak szívük fölkészültsége szerint. A szavak, a cselekmények és a szimbólumok által, melyek az ünneplés szövetét alkotják, a hívőket és a fölszentelt szolgákat eleven kapcsolatba hozza Krisztussal, az Atya Igéjével és képmásával, hogy életükbe át tudják vinni azoknak a valóságoknak értelmét, melyeket az ünneplésben hallanak, szemlélnek és tesznek.
+
+**1102** "Az üdvösség igéje (...) a hívők szívében megerősíti a hitet, melyből születik és növekszik a hívők közössége." Isten igéjének hirdetése nem csupán valamiféle tanítás: a hit válaszát követeli mint egyetértést és elkötelezettséget Isten és népe Szövetsége iránt. A Szentlélek a hit kegyelmét adja, erősíti és növeli is a közösségben. A liturgikus közösség tehát elsősorban a hitben való közösség.
+
+**1974** Az evangéliumi tanácsok az ajándékozással soha meg nem elégedő szeretet élő teljességét fejezik ki. Ennek indító erejéről tanúskodnak és lelki serénységünket serkentik. Az új Törvény tökéletessége lényegében az Isten és felebarát iránti szeretet parancsában áll. A tanácsok megmutatják a rövidebb utakat, a hatékonyabb eszközöket, és mindenkinek saját hivatásának megfelelően kell gyakorolnia őket:
+
+"(Isten) nem akarja, hogy mindenki minden tanácsot betartson, hanem csak azokat, melyek a személyeknek, az időknek, az alkalmaknak és az erőknek megfelelőek, amint a szeretet megköveteli; mert a szeretet mint minden erény, minden parancs, minden tanács, egyszóval valamennyi keresztény törvény és cselekedet királynője szabja meg mindenkinek a maga helyét, rendjét, idejét és értékét."
+
+**2822** A mi Atyánk akarata az, hogy "minden ember (...) üdvözüljön és eljusson az igazság megismerésére" (1Tim 2,3--4). "Türelmes (...), mert nem akarja, hogy valaki is elvesszen" (2Pt 3,9). Az Ő minden egyebet összefoglaló parancsa, ami az Ő egész akaratát is kifejezi számunkra, az, hogy szeressük egymást, ahogy Ő szeretett minket.
+
 NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL (2020.MÁJUS 10.)
 
 **2664** A keresztény imának nincs más útja, mint Krisztus. Imádságunk -- akár közösségi, akár személyes, szóbeli vagy belső -- nem juthat el az Atyához, csak akkor, ha "Jézus nevében" imádkozunk. Jézus szent embersége tehát az út, melyen a Szentlélek megtanít minket imádkozni Istenhez, a mi Atyánkhoz.
