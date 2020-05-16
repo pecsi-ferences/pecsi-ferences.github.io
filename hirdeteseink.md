@@ -3,6 +3,68 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK HÚSVÉT 6. VASÁRNAPJÁN -2020.MÁJUS 17-23.**
+
+1\. Most vasárnap van a tömegtájékoztatás 54. világnapja egyházunkban.
+
+2\. Hétfőn lesz Dr. Szalay János tanár úr halálának 5. évfordulója. Imádságainkban emlékezünk meg róla, hiszen templomunknak hosszú ideig volt kisegítő lelkipásztora.
+
+3\.Hirdetjük a Kedves Testvéreknek, hogy hétköznapokon, mivel zömében 65 év feletti testvérek szoktak részt venni a szentmiséken, ezért nyilvános szentmisét még a jövő héten-hétköznapokon- nem tartunk.
+
+4\. A jelenleg érvényben lévő egyházi előírások szerint vasárnap- lehetőség szerint - szabadtéri szentmisék megtartása engedélyezett. Mivel templomunk környezetében nincs megfelelő mértékű egyházi tulajdonban lévő szabad tér, ezért a nyilvános szentmiséket a jövő héten szüneteltetjük.
+
+Azonban 2020.május 23-án (Szombaton) 17 órakor és 2020.május 24-én (Vasárnap) 11 órakor lehetőség lesz szentáldozáshoz járulni. Az áldoztatás- szabadtéri-helyszíne a templom mögötti parkoló lesz.
+
+5\. Az előírások világában, ha enyhülés áll be, akkor azt természetesen rugalmasan követjük.
+
+6\.A plébánia irodai szolgálata is szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is. Amiben tudunk, készséggel segítünk.
+
+Az egyházi adót a plébánia bankszámlájára lehet átutalni vagy befizetni.
+
+SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+7\. A szentgyónás elvégzésére előzetes időpont egyeztetés után van lehetőség.
+
+8\. Plébániánk internetes felületén megjelent a HÍRLEVÉL FELIRATKOZÁS menüpont. Az e-mail címünk megadásával a plébánia hirdetéseit hétről-hétre elküldjük e-mail fiókjába.
+
+9\. Május a Szűzanya hónapja. Ne feledkezzünk meg arról, hogy otthonainkban is imádkozzuk a Loretói litániát, valamint egyéb szép Mária imádságokat.
+
+# Túrmezei Erzsébet – Amerre most jár
+
+**Annyi szívben felébred valami  
+ hívogató vágy: útra kelni egyszer.  
+ Járni, amerre Jézus lába járt.  
+ Látni a Golgotát látó szemekkel.  
+ Hallgatni az olajfák suttogó  
+ beszédét… azt a titkos, bús beszédet.  
+ A szent helyen, hol imádkozva vérzett,  
+ belenézni a holdas éjszakába.  
+ Ellátogatni kis Betániába,  
+ mindenüvé, amerre elhaladt.  
+ És lélekben királlyá gazdagodni  
+ a szent, ezer emlékű út alatt.**
+
+**Nekem ez a vágy idegen maradt.  
+ Más volt a vágyam: Nőtt… növekedett…  
+ lett belőle sóvárgás, akarat,  
+ követelés: egyedül arra menni,  
+ amerre Jézus lába most halad.**
+
+**Nem von a régi csodák földje.  
+ Új csodák életföldje vár.  
+ Feltámadást, erőt ujjongva hirdet  
+ a százvirágba zsendülő határ.  
+ S az élő Krisztus feltámadva jár.  
+ Magyar nyomort gyógyít. Édestestvérem  
+ vak szemét nyitja színre, fényre meg.  
+ S bár útait szememmel el nem érem,  
+ A lelkemen sejtésük átremeg.**
+
+**Mért mennék messze, idegen vidékre  
+ keresni, földi útja merre vitt?  
+ Most akarom a lépteit követni:  
+ Az élő Krisztus lépteit.**
+
 **HIRDETÉSEINK HÚSVÉT 5. VASÁRNAPJÁN -2020.MÁJUS 10-17.**
 
 1\.Hirdetjük a Kedves Testvéreknek, hogy a rendkívüli járványügyi helyzetben elővigyázatosságból a jövő héten még nem lesznek nyilvános szentmisék templomunkban.
@@ -36,44 +98,44 @@ Hívja a **+36 72 513 030**-as telefonszámot **9.00–12.00** óráig és **15.
 Bódás János – Húsvéti hit
 
 **Bármit beszéltek, hitetlen Tamások,**  
- **a húsvéti hit győzedelmes marad.**  
- **Az Úr feltámadt, vallja millió szív,**  
- **s nem roskad össze semmi súly alatt.**
+**a húsvéti hit győzedelmes marad.**  
+**Az Úr feltámadt, vallja millió szív,**  
+**s nem roskad össze semmi súly alatt.**
 
 **Én nem hajlok a hitető beszédre,**  
- **világcsalók előtt se hódolok,**  
- **de tördelvén a titok néma zárát,**  
- **csak azt hiszem, amit megtapasztalok.**
+**világcsalók előtt se hódolok,**  
+**de tördelvén a titok néma zárát,**  
+**csak azt hiszem, amit megtapasztalok.**
 
 **De mit nem érzek vak, süket kezemmel,**  
- **s hová nem ér el káprázó szemem,**  
- **lelkemmel látom azt, amely ha szárnyal,**  
- **nem ér nyomába gyarló értelem.**
+**s hová nem ér el káprázó szemem,**  
+**lelkemmel látom azt, amely ha szárnyal,**  
+**nem ér nyomába gyarló értelem.**
 
 **Én hallom, mit súg virág a virágnak,**  
- **bár hangjának fülemben nincs nyoma.**  
- **Értem a tavasz illatos beszédét,**  
- **s érzem Istent, bár nem láttam soha.**
+**bár hangjának fülemben nincs nyoma.**  
+**Értem a tavasz illatos beszédét,**  
+**s érzem Istent, bár nem láttam soha.**
 
 **S bár győzött a bűn, mikor a keresztről**  
- **lelkeket mosva hullt alá a vér,**  
- **mégis hiszem a Krisztus diadalát,**  
- **s tudom, hogy feltámadt, mert bennem él!**
+**lelkeket mosva hullt alá a vér,**  
+**mégis hiszem a Krisztus diadalát,**  
+**s tudom, hogy feltámadt, mert bennem él!**
 
 **Ő áll mellettem könnyben és mosolyban,**  
- **amíg az élet rögeit töröm,**  
- **nyugodtan tűrök, mert tudom, hogy vár majd**  
- **egy új élet s fenn mennyei öröm.**
+**amíg az élet rögeit töröm,**  
+**nyugodtan tűrök, mert tudom, hogy vár majd**  
+**egy új élet s fenn mennyei öröm.**
 
 **E hit vigasztal minden megtiportat,**  
- **özvegyet, árvát, sír felé menőt,**  
- **gyermeket-vesztett, zokogó anyákat,**  
- **s aki beteg is, ebből nyer erőt.**
+**özvegyet, árvát, sír felé menőt,**  
+**gyermeket-vesztett, zokogó anyákat,**  
+**s aki beteg is, ebből nyer erőt.**
 
 **Az Úr feltámadt, vallja millió szív**  
- **s nem roskad össze semmi súly alatt.**  
- **Bármit beszéltek hitetlen Tamások,**  
- **a húsvéti hit győzelmes marad!**
+**s nem roskad össze semmi súly alatt.**  
+**Bármit beszéltek hitetlen Tamások,**  
+**a húsvéti hit győzelmes marad!**
 
 **2020.MÁJUS 9-ÉN A PÉCSI EGYHÁZMEGYE MÁRIAGYŰDI LELKI (ONLINE) KARANTÉN ZARÁNDOKLATOT HIRDET. Bővebb információ az Egyházmegye internetes felületén érhető el**:
 
