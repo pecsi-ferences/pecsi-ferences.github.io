@@ -13,6 +13,66 @@ title: Hittan
 
 **A Plébános**
 
+Kedves Elsőáldozó jelöltek!
+
+Elérkezett felkészülésünk első évének utolsó alkalma. Ezért kicsit elevenítsük fel, mi is történt velünk idén.
+
+Ismerkedtünk egymással és a templomi környezettel, volt kézműves foglalkozásunk és advent-záró játékos foglalkozásunk, templomi műsorral. Majd elkezdtük tanulmányainkat az Isten ingyenes kegyelmét közvetítő szentségekről, kiegészítve a húsvéti ünnepkör eseményeivel.
+
+Az eddig tanult szentségek a keresztség, a bűnbocsánat és az Oltáriszentség, mindegyik kapcsolódik a húsvéti időhöz:
+
+Az Oltáriszentség megalapítása Jézus utolsó vacsoráján történt, szorosan összefüggve a bűnbocsánat szentségével, ami pedig, Jézus kereszthalálának, megváltó áldozatának köszönhető.
+
+A keresztségre Jézus kéri az apostolokat mennybemenetele előtt.
+
+Hallhattok erről a következő 2 perces rajzfilmben: [https://www.youtube.com/watch?v=yyJyDIV0ZyM](https://www.youtube.com/watch?v=yyJyDIV0ZyM "https://www.youtube.com/watch?v=yyJyDIV0ZyM")
+
+A mai, utolsó foglalkozásunk alkalmával a bérmálás szentségével ismerkedünk, ami a húsvéti időszakot lezáró ünnepünkhöz, a pünkösdhöz kapcsolódik.
+
+A pünkösd szó görög eredetű és azt jelenti, hogy 50. nap. Húsvét után pontosan 50 nap telik el pünkösdig.
+
+Jézus mennybemenetele után tíz nappal, az akkori pünkösdkor Jeruzsálemben sok zsidó tartózkodott, mert az volt a szokás, hogy ott ünnepeljék közösen a 10 parancsolatot. Jézus tanítványai is, Máriával együtt Jeruzsálemben volt. Ekkor különös dolog történt velük. Egy 5 perces kis rajzfilm bemutatja:
+
+[https://www.youtube.com/watch?v=5YW7qqYYHrM](https://www.youtube.com/watch?v=5YW7qqYYHrM "https://www.youtube.com/watch?v=5YW7qqYYHrM")
+
+A Szentlelket mi is megkaphatjuk a bérmálás szentségében.
+
+A Szentlélek olyan nagy egyszeri ajándék, hogy fogadása érettséget és felkészültséget igényel, ezért legkorábban nyolcadikos korotokban kaphatjátok majd meg.
+
+A bérmálás szentmise keretében történik, a püspök vagy az erre meghatalmazott pap szolgáltatja ki, aki az evangéliumot követő hitvallás után lehívja a bérmálkozókra a Szentlelket. Majd a bérmálkozót bérmaszülője kíséri a püspökhöz, aki kézrátétel által, krizmával való megkenés közben a Szentlélek ajándékainak jelét adja át szavaival.
+
+Egy másfél perces videó bemutatja, hogyan is történik: [https://www.youtube.com/watch?v=B-7UM5MaEg4](https://www.youtube.com/watch?v=B-7UM5MaEg4 "https://www.youtube.com/watch?v=B-7UM5MaEg4")
+
+A bérmálás segít, hogy valóban Krisztushoz méltó életet élhessünk. Elmélyíti a keresztség kegyelmét, tagságunkat az egyházban, erőssé és készségessé tesz a hit melletti tanúságtételre
+
+A Szentlélek az, aki megerősíti a bérmálás szentsége által a szentség felvevőjét, és eltölti ajándékaival.
+
+A 7 ajándék a következő:
+
+1\. Bölcsesség - képesség arra, hogy Isten „logikájával” gondolkodjunk; belső fény;
+
+2\. Értelem - a dolgok megértése, a lényeg meglátása;
+
+3\. Tudomány - a világ értelmének felfedezése
+
+4\. Jótanács - a bizonytalanság, a kételkedés idején segítség ahhoz, hogy helyes döntést tudjunk hozni;
+
+5\. Lelki erősség - képesség, hogy kitartsunk a meghozott döntésünkben, végigjárjuk a megkezdett utat;
+
+6\. Jámborság - a másik ember iránti szeretet, szelídség, jóságos magatartás;
+
+7\. Istenfélelem - nem gyávaság vagy rettegés, hanem felelősségérzet Istennel szemben; annak tudata, hogy döntéseimért, tetteimért felelősséget viselek.
+
+Remélem nem csak új ismeretekkel gazdagodtatok most, hanem kedvet kaptatok ahhoz is, hogy pár év múlva a bérmálás szentsége által a Szentlélek megerősítsen benneteket is!
+
+Végezetül kívánok Zoli atya és hitoktató társaim nevében is pihentető, vidámságban gazdag és Isten által áldott nyári szünetet mindannyiótoknak!
+
+Zárjuk e digitális foglalkozásunkat egy énekes imádsággal: Szentlélek jöjj … [https://www.youtube.com/watch?v=fRStJFGLVCk](https://www.youtube.com/watch?v=fRStJFGLVCk "https://www.youtube.com/watch?v=fRStJFGLVCk")
+
+Dicsértessék a Jézus Krisztus!
+
+Üdvözlettel: Trixi néni
+
 Kedves gyerekek!
 
 Mint ahogy látjátok és tapasztaljátok a hittanóra is digitálisan történik. Sajnos az elsőáldozási felkészítőt is így kell tartanunk. Pedig milyen jó lett volna a templomban találkozni veletek J. De majd ősszel személyesen mi is örülhetünk egymásnak. Úgy, mint ahogyan az apostolok a feltámadt Jézusnak!
