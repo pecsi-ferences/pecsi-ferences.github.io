@@ -137,6 +137,28 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+URUNK MENNYBEMENETELE-2020.MÁJUS 24.
+
+NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL
+
+**659** "Az Úr Jézus, miután ezeket mondta, fölvétetett a mennybe és leült az Isten jobbján" (Mk 16,19). Krisztus teste föltámadásának pillanatától megdicsőült, amint azt az új és természetfölötti tulajdonságai mutatják, melyekkel attól kezdve állandóan rendelkezik. De negyven napon át, amikor tanítványaival bensőségesen együtt evett és ivott és az Országról tanította őket, dicsősége még a megszokott emberség körvonalai alatt elfátyolozott marad. Jézus utolsó megjelenését az zárja le, hogy embersége visszavonhatatlanul belép az isteni dicsőségbe, melyet a felhő és az ég -- ahol ettől kezdve Isten jobbján ül -- jelez. Végül teljesen kivételes és egyedülálló módon Pálnak -- "mint egy elvetéltnek" (1Kor 15,8) -- egy utolsó jelenésben megmutatkozik, mellyel apostollá teszi őt.
+
+**660** A Föltámadott dicsőségének ez időben elfátyolozott jellege átragyog Mária Magdolnához intézett titokzatos szavain: "Még nem (...) mentem föl az Atyához; de menj az én testvéreimhez, és mondd nekik: Fölmegyek az én Atyámhoz és a ti Atyátokhoz, az én Istenemhez és a ti Istenetekhez" (Jn 20,17). Ez a föltámadott Krisztus és az Atya jobbjára fölmagasztalt Krisztus dicsősége közötti különbségre utal. A mennybemenetel egyszerre történeti és transzcendens eseménye az átmenetet jelenti az egyikből a másikba.
+
+**661** Ez az utolsó lépés szoros egységben marad az elsővel, azaz a mennyből való alászállással, ami a megtestesülésben valósult meg. Csak az "térhet vissza az Atyához", aki az "Atyától jött ki": Krisztus. "Senki sem ment föl az égbe, csak aki alászállott az égből, az Emberfia" (Jn 3,13). Az emberség saját természetes erőire hagyva nem képes bemenni az "atyai házba", Isten életébe és boldogságába. Egyedül Krisztus nyithatta meg az embernek az utat: "hogy nekünk, az Ő tagjainak megadja a reményt, hogy mi is eljuthatunk oda, ahová Ő elsőként előrement".
+
+**662** "Én pedig, majd ha magasba emelnek a földről, mindeneket magamhoz fogok vonzani" (Jn 12,32). A kereszten való fölmagasztalás a mennybemenetel fölmagasztalását jelzi és jövendöli. Az ennek a kezdete. Jézus Krisztus, az új és örök szövetség egyetlen Papja "nem emberi kézzel épített szentélybe lépett be (...), hanem magába a mennybe, hogy most Isten színe előtt közbenjárjon értünk" (Zsid 9,24). Krisztus a mennyben szüntelenül gyakorolja a maga papságát: "hiszen örökké él, hogy közbenjárjon" azokért, "akik általa járulnak Istenhez" (Zsid 7,25). Mint "az eljövendő javak főpapja" (Zsid 9,11), középpontja és főcelebránsa annak a liturgiának, amely az Atyát az égben dicsőíti.
+
+**663** Ettől kezdve Krisztus az Atya jobbján ül: "Az Atya jobbján kifejezéssel azt az isteni tiszteletet és dicsőséget jelezzük, amelyben Isten Fia mint az Atyával egylényegű Isten az idő kezdete előtt volt, és ahol az idők végén, megtestesülvén, testi módon is helyet foglal, mert teste ugyanabba a dicsőségbe került."
+
+**664** Az Atya jobbjára ülés a Messiás országának kezdetét jelenti, Dániel próféta az Emberfiára vonatkozó látomásának beteljesedését: "és hatalom, tisztelet és ország adatott neki; és minden nép, törzs és nyelv neki szolgált: hatalma örök hatalom, mely nem vétetik el, és országa nem fog megsemmisülni." (Dán 7,14). Ettől az időponttól kezdve az apostolok tanúi lettek annak az "országnak, melynek nem lesz vége".
+
+**665** Krisztus mennybemenetele Jézus emberségének végleges bemenetelét jelenti Isten mennyei országába, ahonnan ismét el fog jönni,de a közbülső idő elrejti Őt az emberek szeme elől.
+
+**666** Jézus Krisztus az Egyház feje, előttünk ment be az Atya dicsőséges országába, hogy mi, az Ő testének tagjai abban a reményben éljünk, hogy egykor örökre együtt leszünk Vele.
+
+**667** Jézus Krisztus egyszer s mindenkorra belépett a mennyei szentélybe, és szüntelenül közbenjár értünk mint közvetítő, aki állandóan árasztja ránk a Szentlelket.
+
 NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL (2020.MÁJUS 17.)
 
 **79.** Így az önközlés, melyet az Atya Igéje által a Szentlélekben valósított meg, jelenvaló és tevékeny marad az Egyházban: "Isten, aki egykor szólt, megszakítás nélkül beszélget szeretett Fiának menyasszonyával, és a Szentlélek, aki által az Egyházban és az Egyház által a világban fölhangzik az evangélium élő szava, bevezeti a hívőket a teljes igazságba, és az Ő műve, hogy Krisztus igéje elevenen él bennük".
