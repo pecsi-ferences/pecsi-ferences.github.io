@@ -3,6 +3,73 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK URUNK MENNYBEMENETELÉNEK FŐÜNNEPÉN -2020.MÁJUS 24-31.**
+
+1\.Hétfőtől megpróbálkozunk a nyilvános misék megtartásával templomunkban.
+
+Arra kérjük a kedves híveket, hogy tartsuk be a szükséges előírásokat. Viseljünk maszkot, tartsunk távolságot egymástól! A 65 év feletti testvéreket pedig arra kérjük, hogy lehetőség szerint maradjanak otthon.
+
+A szentmisére- elővigyázatosságból- csak a templom keleti kapuján keresztül lehet majd bejutni. ( A Collegium Seraphicum felől.)
+
+Hétfőtől-szombatig tehát 17 órakor lesz a szentmise. Vasárnap 8 órakor és 17 órakor. A jövő héten minden esetben csendes szentmise lesz a templomban.
+
+2\.A plébánia irodai szolgálata június első napjától indul újra, addig szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a 06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is. Amiben tudunk, készséggel segítünk.
+
+Az egyházi adót a plébánia bankszámlájára lehet átutalni vagy befizetni.
+
+SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+
+3\. A szentgyónás elvégzésére előzetes időpont egyeztetés után van lehetőség.
+
+4\. Plébániánk internetes felületén megjelent a HÍRLEVÉL FELIRATKOZÁS menüpont. Az e-mail címünk megadásával a plébánia hirdetéseit hétről-hétre elküldjük e-mail fiókjába.
+
+5\. Jövő vasárnap Pünkösd főünnepe lesz egyházunkban.
+
+## [GALILEAI FÉRFIAK](http://keresztenyversek.weebly.com/versek/galileai-frfiak)
+
+(Sík Sándor (Szent vagy, Uram! 94))  
+   
+ Galileai férfiak,  
+ mért néztek az égre?   
+ Mért, hogy forró könny fakad  
+ férfiak szemébe? -  
+ Jézus Krisztus visszajön,  
+ Jézus Krisztus él!  
+ Galileai férfiak,  
+ mért, hogy tétlen álltok?   
+ Vár a Kelet és Nyugat,  
+ Krisztus bízta rátok.  
+ Hirdessétek mindenütt:  
+ Jézus Krisztus él!  
+   
+ Galileai férfiak,  
+ Fel a küzdőtérre,  
+ Minden népek szomjasak  
+ Az Élet Vizére,  
+ Választottak, bennetek  
+ Jézus Krisztus él!  
+   
+ Galileai férfiak,  
+ milyen jelre vártok?  
+ Ő tinéktek Lángot ad,  
+ Égből küldi rátok.   
+ Várjatok még tíz napig,  
+ Jézus Krisztus él!  
+   
+ Galileai férfiak,   
+ Mért, hogy sírva néztek,  
+ Jézus Krisztus itt marad,  
+ Úgy ígérte néktek!  
+ Világvégig véletek,  
+ Jézus Krisztus él!  
+   
+ Galileai férfiak,  
+ ha majd jön az óra,  
+ élőket és holtakat  
+ hív majd számadóra:  
+ a nagy Bíró visszajön,  
+ Jézus Krisztus él.
+
 **HIRDETÉSEINK HÚSVÉT 6. VASÁRNAPJÁN -2020.MÁJUS 17-23.**
 
 1\. Most vasárnap van a tömegtájékoztatás 54. világnapja egyházunkban.
@@ -32,38 +99,38 @@ SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
 # Túrmezei Erzsébet – Amerre most jár
 
 **Annyi szívben felébred valami  
- hívogató vágy: útra kelni egyszer.  
- Járni, amerre Jézus lába járt.  
- Látni a Golgotát látó szemekkel.  
- Hallgatni az olajfák suttogó  
- beszédét… azt a titkos, bús beszédet.  
- A szent helyen, hol imádkozva vérzett,  
- belenézni a holdas éjszakába.  
- Ellátogatni kis Betániába,  
- mindenüvé, amerre elhaladt.  
- És lélekben királlyá gazdagodni  
- a szent, ezer emlékű út alatt.**
+hívogató vágy: útra kelni egyszer.  
+Járni, amerre Jézus lába járt.  
+Látni a Golgotát látó szemekkel.  
+Hallgatni az olajfák suttogó  
+beszédét… azt a titkos, bús beszédet.  
+A szent helyen, hol imádkozva vérzett,  
+belenézni a holdas éjszakába.  
+Ellátogatni kis Betániába,  
+mindenüvé, amerre elhaladt.  
+És lélekben királlyá gazdagodni  
+a szent, ezer emlékű út alatt.**
 
 **Nekem ez a vágy idegen maradt.  
- Más volt a vágyam: Nőtt… növekedett…  
- lett belőle sóvárgás, akarat,  
- követelés: egyedül arra menni,  
- amerre Jézus lába most halad.**
+Más volt a vágyam: Nőtt… növekedett…  
+lett belőle sóvárgás, akarat,  
+követelés: egyedül arra menni,  
+amerre Jézus lába most halad.**
 
 **Nem von a régi csodák földje.  
- Új csodák életföldje vár.  
- Feltámadást, erőt ujjongva hirdet  
- a százvirágba zsendülő határ.  
- S az élő Krisztus feltámadva jár.  
- Magyar nyomort gyógyít. Édestestvérem  
- vak szemét nyitja színre, fényre meg.  
- S bár útait szememmel el nem érem,  
- A lelkemen sejtésük átremeg.**
+Új csodák életföldje vár.  
+Feltámadást, erőt ujjongva hirdet  
+a százvirágba zsendülő határ.  
+S az élő Krisztus feltámadva jár.  
+Magyar nyomort gyógyít. Édestestvérem  
+vak szemét nyitja színre, fényre meg.  
+S bár útait szememmel el nem érem,  
+A lelkemen sejtésük átremeg.**
 
 **Mért mennék messze, idegen vidékre  
- keresni, földi útja merre vitt?  
- Most akarom a lépteit követni:  
- Az élő Krisztus lépteit.**
+keresni, földi útja merre vitt?  
+Most akarom a lépteit követni:  
+Az élő Krisztus lépteit.**
 
 **HIRDETÉSEINK HÚSVÉT 5. VASÁRNAPJÁN -2020.MÁJUS 10-17.**
 
