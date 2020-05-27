@@ -5,6 +5,10 @@ admin_path:
 webhook_url: 
 sections:
 - type: document
+  path: index.html
+  label: Főoldal
+  match: "**/*"
+- type: document
   path: hittan.md
   label: Hittan
 - type: document
