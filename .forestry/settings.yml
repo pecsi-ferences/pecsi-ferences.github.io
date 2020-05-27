@@ -1,19 +1,33 @@
 ---
 new_page_extension: md
 auto_deploy: false
-admin_path: 
-webhook_url: 
+admin_path:
+webhook_url:
 sections:
 - type: document
-  path: index.html
+  path: index.md
   label: Főoldal
-  match: "**/*"
 - type: document
-  path: hittan.md
-  label: Hittan
+  path: tortenet.md
+  label: Templomunk története
+- type: document
+  path: betlehem.md
+  label: Betlehem
+- type: document
+  path: miserend.md
+  label: Miserend
+- type: document
+  path: nyitvatartas.md
+  label: Hivatal nyitvatartása
+- type: document
+  path: baratok.md
+  label: Barátok lapja
 - type: document
   path: hirdeteseink.md
   label: Hirdetéseink
+- type: document
+  path: hittan.md
+  label: Hittan
 upload_dir: assets/pdfs
 public_path: "/assets/pdfs"
 front_matter_path: ''
