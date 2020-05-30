@@ -1,11 +1,17 @@
 ---
 layout: default
 title: Hivatal nyitvatartása
+
 ---
 # Hivatal nyitvatartása
 
-**A plébánia irodai szolgálata szünetel. Sürgős esetben és temetési ügyintézés esetén a 72-313-565-ös vagy a
-  06-30-483-36-29-es számot lehet hívni, illetve kereshetnek bennünket e-mailban is.**
+**Hétfőtől-Péntekig** 
+
+DÉLELŐTT 10 órától-12 óráig
+
+DÉLUTÁN 15 óra 30 perctől-16 óra 30 percig
+
+Pünkösdhétfőn a hivatal zárva tart.
 
 **Amiben tudunk, készséggel segítünk.**
 
@@ -14,5 +20,4 @@ title: Hivatal nyitvatartása
 30/483-36-29<br>
 <a href="mailto:dohanyz@gmail.com">dohanyz@gmail.com</a>
 
-Az egyházi adót a plébánia bankszámlájára lehet átutalni vagy befizetni.<br>
-SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
+Az egyházi adót átutalással vagy a plébánia bankszámlájára való befizetéssel is lehet rendezni.<br> SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
