@@ -137,6 +137,26 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+PÜNKÖSD FŐÜNNEPE-2020.május 31.
+
+NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL
+
+**767** "A mű elkészülte után, melyet az Atya a Fiúra bízott, hogy elvégezze a földön, pünkösdkor elküldetett a Szentlélek, hogy szüntelenül megszentelje az Egyházat." Az Egyház ekkor lett "nyilvánossá a sokaság előtt, és az igehirdetés által megkezdődött az evangélium terjedése a nemzetek között". Mivel az Egyház minden ember "összehívása" az üdvösségre, természete szerint missziós, Krisztus küldi az összes néphez, hogy minden embert tanítvánnyá tegyen.
+
+**1076** Pünkösd napján a Szentlélek kiáradása által az Egyház kinyilváníttatott a világnak. A Szentlélek ajándéka új időt nyit "a misztérium rendjében": az Egyház idejét, melynek folyamán Krisztus Egyházának liturgiája által nyilvánítja ki, teszi jelenvalóvá és közli üdvözítő művét, "amíg el nem jön" (1Kor 11,26). Az Egyház ezen idejében Krisztus már él és cselekszik Egyházában és Egyházával ennek az új időnek sajátos új módján. Cselekszik a szentségek által; Kelet és Nyugat közös hagyománya ezt "szentségi ökonómiának" nevezi; ez az ökonómia Krisztus húsvéti misztériumai gyümölcseinek közlése (vagy "kiszolgáltatása") az Egyház "szentségi" liturgiájának ünneplésében.
+
+**732** Ezen a napon a Szentháromság teljesen ki lett nyilatkoztatva. E naptól kezdve a Krisztus által hirdetett Ország megnyílik azoknak, akik benne hisznek: a test alázatában és a hitben már részesednek a Szentháromság közösségében. A Szentlélek a maga szüntelen eljövetele által vezeti be a világot "a végső időkbe", az Egyház idejébe, az Országba, amely már örökségként a birtokunkban van, de még nem teljesedett be:
+
+Láttuk az igaz Világosságot, megkaptuk az égi Lelket, megtaláltuk az igaz hitet: imádjuk az oszthatatlan Háromságot, mert Ő üdvözített minket.
+
+**696 Tűz.** Míg a víz a Szentlélekben adott élet születését és termékenységét jelezte, a tűz a Szentlélek cselekedeteinek átalakító erejét szimbolizálja. Illés próféta, aki "mint tűzvész jött, és szava lángolt, mint az égő kemence" (Sir 48,1), imádsága által tüzet hozott le az égből a Kármel-hegyi áldozatra mint a Szentlélek tüzének előképét, mely átalakít mindent, amit megérint. Keresztelő János, "aki Illés erejében és »lelkében«" (Lk 1,17) jár az Úr előtt, úgy hirdeti Krisztust, mint "aki Szentlélekben és tűzben fog keresztelni" (Lk 3,16), abban a Szentlélekben, akiről Jézus mondja később: "Azért jöttem, hogy tüzet gyújtsak a földön. Mi mást akarnék, mint hogy lángra lobbanjon." (Lk 12,49) A Szentlélek "lángnyelvek alakjában" száll a tanítványokra pünkösd reggelén, és tölti el őket. A lelki hagyomány megtartja a tűz szimbolikáját, mint ami a legjobban kifejezi a Szentlélek működését: **"Ne oltsátok ki a Lelket" (1Tesz 5,19).**
+
+**731** Pünkösd napján (a hét húsvéti hét végén) Krisztus húsvétja a Szentlélek kiáradásában teljesedik be, aki mint isteni személy nyilváníttatik ki, adatik és közöltetik: az Úr Krisztus a maga teljességéből bőségesen árasztja a Lelket.
+
+**1287** A Léleknek ez a teljessége azonban nem maradt egyedül a Messiásé, hanem közölni kellett az egész messiási néppel. Krisztus ismételten megígérte a Lélek e kiáradását,és az ígéretet először húsvét napján,majd még ragyogóbban pünkösdkor teljesítette. A Szentlélektől eltelve kezdik az Apostolok hirdetni "Isten nagy tetteit" (ApCsel 2,11); és Péter elmagyarázza, hogy a Léleknek ez a kiáradása a messiási idők jele. Akik akkor hittek az Apostolok prédikációjának és megkeresztelkedtek, elnyerték a Szentlélek ajándékát.
+
+**2623** Pünkösd napján az Ígéret Lelke kiáradt a tanítványokra, akik "mind együtt voltak ugyanazon a helyen" (ApCsel 2,1), Őt várva "mind ... állhatatosan egy szívvel és egy lélekkel imádkoztak" (ApCsel 1,14). A Lélek, aki tanítja az Egyházat és eszébe juttatja mindazt, amit Jézus mondott, az imádságos életre is nevelni fogja.
+
 URUNK MENNYBEMENETELE-2020.MÁJUS 24.
 
 NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL
