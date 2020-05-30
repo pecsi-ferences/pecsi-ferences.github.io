@@ -3,6 +3,58 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK PÜNKÖSD FŐÜNNEPÉN -2020.MÁJUS 31 - JÚNIUS 7.**
+
+1\.Hétfőtől folytatjuk a nyilvános misék megtartását templomunkban.
+
+Arra kérjük a kedves híveket, hogy tartsuk be a szükséges előírásokat. Viseljünk maszkot, tartsunk távolságot egymástól! Az idősebb testvéreket pedig arra kérjük, hogy lehetőség szerint maradjanak otthon.
+
+A szentmisére-elővigyázatosságból- csak a templom keleti kapuján keresztül lehet bejutni.( A Collegium Seraphicum felől.)
+
+Hétfőtől-szombatig tehát 17 órakor lesz a szentmise. Vasárnap 8 órakor és 17 órakor. A jövő héten minden esetben csendes szentmise lesz a templomban.
+
+2\.Keddtől újra elindul a plébánia irodai szolgálata. Hétköznapokon délelőtt 10 órától- 12 óráig és délután 15 óra 30 perctól-16 óra 30 percig nyitva tart az iroda.
+
+3\. A szentgyónás elvégzésére előzetes időpont egyeztetés után van lehetőség. A hagyományos gyóntatószéki gyónás- egyenlőre- szünetel. (A hatályban lévő előírások szerint a gyónó és a gyóntató között két méter távolságot kell tartani. A gyónónak és a gyóntatónak is maszkot kell viselni.)
+
+4\. Plébániánk internetes felületén megjelent a HÍRLEVÉL FELIRATKOZÁS menüpont. Az e-mail címünk megadásával a plébánia hirdetéseit hétről-hétre elküldjük e-mail fiókjába.
+
+5\. Jövő vasárnap Szentháromság főünnepe lesz egyházunkban. Mivel a hónap első vasárnapja lesz, ezért 16 óra 30 perctől szentségimádási órát tartunk templomunkban.
+
+6\. A Pécsi Püspöki Hittudományi Főiskola a 2020/21-es akadémiai évben is gazdag tanulmányi kínálattal várja az egyházi, oktatási és szociális tanulmányok iránt érdeklődő diákjait. Az államilag finanszírozott képzésekre elektronikusan a pphf.hu oldalon lehet 2020. június 10-ig jelentkezni.
+
+„Pünkösdig hallgattak. Vártak. Hallgattak.
+
+Szívükben szunnyadt a húsvéti hír.
+
+Nem mentek vele. Egyhelyben maradtak.
+
+Aztán pünkösd lett, és ütött az óra.
+
+Zendült a szó: Lélek volt és erő.
+
+És háromezren állottak elő
+
+egyetlen prédikációra…” (Túrmezei Erzsébet)
+
+Túrmezei Erzsébet: Pünkösd után
+
+Pünkösd előtt - sóvárgás titkos mélye.  
+ Pünkösd előtt - ígéretek zenéje.  
+ Pünkösd előtt - esedezés, esengés.  
+ Pünkösd előtt - halk hajnali derengés.  
+ Pünkösd előtt - szent vágyak mozdulása.  
+ Pünkösd előtt - koldusszív tárulása.  
+ Csendesen várni - várni, hinni, kérni!  
+ Aztán - boldog pünkösd utánba érni!  
+ S pünkösd után - szent égi erőt-vetten,  
+ pünkösd után - Lélekkel telítetten.  
+ pünkösd után - bátor tanúvá lenni,  
+ pünkösd után - régit kárnak ítélni.  
+ Krisztusnak élni és másoknak élni,  
+ minden mennyei kincset elfogadni,  
+ és pünkösd után - adni, adni, adni!
+
 **HIRDETÉSEINK URUNK MENNYBEMENETELÉNEK FŐÜNNEPÉN -2020.MÁJUS 24-31.**
 
 1\.Hétfőtől megpróbálkozunk a nyilvános misék megtartásával templomunkban.
@@ -27,48 +79,48 @@ SZENT FERENC PLÉBÁNIA PÉCS 11731001-20126560
 
 ## [GALILEAI FÉRFIAK](http://keresztenyversek.weebly.com/versek/galileai-frfiak)
 
-(Sík Sándor (Szent vagy, Uram! 94))  
-   
- Galileai férfiak,  
- mért néztek az égre?   
- Mért, hogy forró könny fakad  
- férfiak szemébe? -  
- Jézus Krisztus visszajön,  
- Jézus Krisztus él!  
- Galileai férfiak,  
- mért, hogy tétlen álltok?   
- Vár a Kelet és Nyugat,  
- Krisztus bízta rátok.  
- Hirdessétek mindenütt:  
- Jézus Krisztus él!  
-   
- Galileai férfiak,  
- Fel a küzdőtérre,  
- Minden népek szomjasak  
- Az Élet Vizére,  
- Választottak, bennetek  
- Jézus Krisztus él!  
-   
- Galileai férfiak,  
- milyen jelre vártok?  
- Ő tinéktek Lángot ad,  
- Égből küldi rátok.   
- Várjatok még tíz napig,  
- Jézus Krisztus él!  
-   
- Galileai férfiak,   
- Mért, hogy sírva néztek,  
- Jézus Krisztus itt marad,  
- Úgy ígérte néktek!  
- Világvégig véletek,  
- Jézus Krisztus él!  
-   
- Galileai férfiak,  
- ha majd jön az óra,  
- élőket és holtakat  
- hív majd számadóra:  
- a nagy Bíró visszajön,  
- Jézus Krisztus él.
+(Sík Sándor (Szent vagy, Uram! 94))
+
+Galileai férfiak,  
+mért néztek az égre?  
+Mért, hogy forró könny fakad  
+férfiak szemébe? -  
+Jézus Krisztus visszajön,  
+Jézus Krisztus él!  
+Galileai férfiak,  
+mért, hogy tétlen álltok?  
+Vár a Kelet és Nyugat,  
+Krisztus bízta rátok.  
+Hirdessétek mindenütt:  
+Jézus Krisztus él!
+
+Galileai férfiak,  
+Fel a küzdőtérre,  
+Minden népek szomjasak  
+Az Élet Vizére,  
+Választottak, bennetek  
+Jézus Krisztus él!
+
+Galileai férfiak,  
+milyen jelre vártok?  
+Ő tinéktek Lángot ad,  
+Égből küldi rátok.  
+Várjatok még tíz napig,  
+Jézus Krisztus él!
+
+Galileai férfiak,  
+Mért, hogy sírva néztek,  
+Jézus Krisztus itt marad,  
+Úgy ígérte néktek!  
+Világvégig véletek,  
+Jézus Krisztus él!
+
+Galileai férfiak,  
+ha majd jön az óra,  
+élőket és holtakat  
+hív majd számadóra:  
+a nagy Bíró visszajön,  
+Jézus Krisztus él.
 
 **HIRDETÉSEINK HÚSVÉT 6. VASÁRNAPJÁN -2020.MÁJUS 17-23.**
 
