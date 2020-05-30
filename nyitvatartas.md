@@ -5,7 +5,7 @@ title: Hivatal nyitvatartása
 ---
 # Hivatal nyitvatartása
 
-**Hétfőtől-Péntekig** 
+**Hétfőtől-Péntekig**
 
 DÉLELŐTT 10 órától-12 óráig
 
@@ -15,7 +15,7 @@ Pünkösdhétfőn a hivatal zárva tart.
 
 **Amiben tudunk, készséggel segítünk.**
 
-**7621 Pécs, Alkotmány utca 4.**<br>
+**7624 Pécs, Alkotmány utca 4.**<br>
 72/313-565<br>
 30/483-36-29<br>
 <a href="mailto:dohanyz@gmail.com">dohanyz@gmail.com</a>
