@@ -3,6 +3,67 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK SZENTHÁROMSÁG VASÁRNAPJÁN**
+
+**2020.JÚNIUS 7-14.**
+
+1\. Ma Szentháromság Vasárnapjának főünnepe van egyházunkban. Ezen a napon 16 óra 30 perctől rövid szentségimádást tartunk- HÁLÁBÓL- templomunkban.
+
+2\.Hétfőtől folytatjuk a nyilvános misék megtartását templomunkban.
+
+Arra kérjük a kedves híveket, hogy tartsuk be a szükséges előírásokat. Viseljünk maszkot, tartsunk távolságot egymástól! Az idősebb testvéreket pedig arra kérjük, hogy lehetőség szerint maradjanak otthon.
+
+A szentmisére-elővigyázatosságból- csak a templom keleti kapuján keresztül lehet bejutni.( A Collegium Seraphicum felől.)
+
+Hétfőtől-szombatig tehát 17 órakor lesz a szentmise. Vasárnap 8 órakor és 17 órakor. A jövő héten minden esetben csendes szentmise lesz a templomban.
+
+3\. Elindult a plébánia irodai szolgálata. Hétköznapokon délelőtt 10 órától- 12 óráig és délután 15 óra 30 perctól-16 óra 30 percig nyitva tart az iroda.
+
+4\. A szentgyónás elvégzésére előzetes időpont egyeztetés után van lehetőség. A hagyományos gyóntatószéki gyónás- egyenlőre- szünetel. (A hatályban lévő előírások szerint a gyónó és a gyóntató között két méter távolságot kell tartani. A gyónónak és a gyóntatónak is maszkot kell viselni.)
+
+5\. Plébániánk internetes felületén megjelent a HÍRLEVÉL FELIRATKOZÁS menüpont. Az e-mail címünk megadásával a plébánia hirdetéseit hétről-hétre elküldjük e-mail fiókjába.
+
+6\. Szombaton- Úrnapja előestéjén -16 óra 30 perctől -17 óráig szentségimádást tartunk templomunkban. Ezzel a szentségimádással csatlakozunk a Nemzetközi Eucharisztikus Kongresszus világméretű felhívásához.
+
+7\. Jövő vasárnap lesz Úrnapja. A hagyományos második vasárnapi szentségimádási óránkat 16 óra 30 perctől tartjuk meg.
+
+8\. A Pécsi Püspöki Hittudományi Főiskola a 2020/21-es akadémiai évben is gazdag tanulmányi kínálattal várja az egyházi, oktatási és szociális tanulmányok iránt érdeklődő diákjait. Az államilag finanszírozott képzésekre elektronikusan a pphf.hu oldalon lehet 2020. június 10-ig jelentkezni.
+
+9\. Megjelent a Barátok Lapja plébániai tájékoztató júniusi száma. A koronavírus járvány miatt az áprilisi, valamint a májusi szám nyomtatásban nem jelent meg, de a plébánia internetes felületén elérhető. 
+
+[https://pecsi-ferences.github.io/assets/pdfs/2020-06.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-06.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-06.pdf")
+
+**Kozma László**
+
+**Szentháromság**
+
+A világnak szétosztotta  
+ Bor, s kenyérben önmagát.  
+ Mert testévé lesz az ostya,  
+ És a bor vérére vált.  
+ Életét így sokszorozza  
+ Ki legyőzte a halált.  
+ Keresztjén az ember sorsa  
+ Megváltásra így talált.
+
+S mert igéje rendelé így,  
+ Valódi az ostya-test.  
+ Kegyelme a szívben érik,  
+ Gyümölcsöt hoz a kereszt.  
+ Feltámadjon a remény, hit,  
+ S vigasztaló szeretet.  
+ Kehely tükrözi a vérit,  
+ Aki értünk szenvedett.
+
+Szentháromság súlyos titka,  
+ Hogy a Három mégis Egy.  
+ S eggyé fogad – így tanítja,  
+ Ha veszed a kenyeret.  
+ Örök-Egybe térjen vissza,  
+ Ki testével egy lehet.  
+ S borban a kegyelmet issza,  
+ Ki e földön vétkezett.
+
 **HIRDETÉSEINK PÜNKÖSD FŐÜNNEPÉN -2020.MÁJUS 31 - JÚNIUS 7.**
 
 1\.Hétfőtől folytatjuk a nyilvános misék megtartását templomunkban.
@@ -40,20 +101,20 @@ egyetlen prédikációra…” (Túrmezei Erzsébet)
 Túrmezei Erzsébet: Pünkösd után
 
 Pünkösd előtt - sóvárgás titkos mélye.  
- Pünkösd előtt - ígéretek zenéje.  
- Pünkösd előtt - esedezés, esengés.  
- Pünkösd előtt - halk hajnali derengés.  
- Pünkösd előtt - szent vágyak mozdulása.  
- Pünkösd előtt - koldusszív tárulása.  
- Csendesen várni - várni, hinni, kérni!  
- Aztán - boldog pünkösd utánba érni!  
- S pünkösd után - szent égi erőt-vetten,  
- pünkösd után - Lélekkel telítetten.  
- pünkösd után - bátor tanúvá lenni,  
- pünkösd után - régit kárnak ítélni.  
- Krisztusnak élni és másoknak élni,  
- minden mennyei kincset elfogadni,  
- és pünkösd után - adni, adni, adni!
+Pünkösd előtt - ígéretek zenéje.  
+Pünkösd előtt - esedezés, esengés.  
+Pünkösd előtt - halk hajnali derengés.  
+Pünkösd előtt - szent vágyak mozdulása.  
+Pünkösd előtt - koldusszív tárulása.  
+Csendesen várni - várni, hinni, kérni!  
+Aztán - boldog pünkösd utánba érni!  
+S pünkösd után - szent égi erőt-vetten,  
+pünkösd után - Lélekkel telítetten.  
+pünkösd után - bátor tanúvá lenni,  
+pünkösd után - régit kárnak ítélni.  
+Krisztusnak élni és másoknak élni,  
+minden mennyei kincset elfogadni,  
+és pünkösd után - adni, adni, adni!
 
 **HIRDETÉSEINK URUNK MENNYBEMENETELÉNEK FŐÜNNEPÉN -2020.MÁJUS 24-31.**
 
