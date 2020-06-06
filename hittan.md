@@ -137,6 +137,20 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+#### NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚNIUS 7.
+
+#### A SZENTHÁROMSÁG DOGMÁJA
+
+**253** _A Szentháromság egy._ Mi nem három istent vallunk, hanem egy Istent három személyben: "egylényegű Háromságot". Az isteni személyek nem osztják meg egymás között az egyetlen istenséget, hanem mindegyik teljes egészében Isten: "Az Atya egészében az, ami a Fiú, a Fiú egészében az, ami az Atya, az Atya és a Fiú egészében az, ami a Szentlélek: azaz egyetlen Isten a természetet illetően". "A három Személy bármelyike az a valóság, tudniillik isteni substantia, essentia, vagyis natura."
+
+**254** _Az isteni személyek valóságosan különböznek egymástól._ "Tiszteljük és megvalljuk az egy Istent, nem úgy, mintha magányos lenne." Az "Atya", a "Fiú" és a "Szentlélek" nem egyszerűen az isteni "Lét" módozatainak nevei, mert valóságosan különböznek egymástól: "Az Atya nem ugyanaz, mint a Fiú, sem a Fiú nem ugyanaz, mint az Atya, sem a Szentlélek nem ugyanaz, mint az Atya vagy a Fiú." Eredési relációik által különböznek egymástól: "Az Atya az, aki nemz, a Fiú az, aki születik, a Szentlélek az, aki származik". _Az isteni Egység Háromság._
+
+**255** _A három isteni személy vonatkozásban (relatio) van egymással._ Az isteni személyek közötti valóságos különbség, mivelhogy ez nem osztja meg az isteni egységet, kizárólag azokban a vonatkozásokban van, amelyek az egyik személynek a másik kettőhöz való viszonyát adják. "A személyek vonatkozást kifejező neveiben az Atya vonatkozásban van a Fiúval, a Fiú az Atyával, a Szentlélek mindkettővel; amikor erről a három személyről beszélünk, a vonatkozásokra vagyunk tekintettel, ugyanakkor egy természetben vagy lényegben hiszünk." Közöttük tehát "minden (...) egy, ahol a relatio szembenállása nincs jelen". "Ezen egység folytán az Atya egészen a Fiúban és egészen a Szentlélekben van; a Fiú egészen az Atyában és egészen a Szentlélekben van; a Szentlélek egészen az Atyában és egészen a Fiúban van."
+
+**256** Nazianzi Szent Gergely, akit "teológusnak" is neveznek, a konstantinápolyi katekumenoknak a Szentháromságos hit ezen összefoglalását adja:
+
+"Mindenekelőtt kérlek, őrizd a jó letéteményt, amelynek élek és amelyért harcolok, mely bárcsak ez életből távozóban kísérne engem, mellyel az élet minden nehézségét elviselem, és minden gyönyörűséget megvetek és semminek tartok; a hitet, mondom, és a hitvallást az Atyában, a Fiúban és a Szentlélekben. Ezt bízom rád a mai napon, amikor elmerítelek a tisztító vízben, és a magasba emellek. Egész életed kísérőjéül és oltalmazójául adom neked az egy Istenséget és hatalmat, mely a Háromban együtt van, és a Három különbözőt magában foglalja, mely nem különbözik bennük sem állagban vagy természetben, sem alá- vagy fölérendeltség nem növeli vagy csökkenti (...); a Három végtelen végtelen egységét \[adom neked\], a Három egyformán Istent, ha külön-külön nézzük (...) ismét Háromságos Istent, ha együtt gondoljuk (...). Alig kezdek gondolkodni az Egyről, azonnal körülragyog a Háromság. Alig kezdem megkülönböztetni a Hármat, visszajutok az Egyhez."
+
 PÜNKÖSD FŐÜNNEPE-2020.május 31.
 
 NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL
