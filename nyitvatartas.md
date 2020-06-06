@@ -11,8 +11,6 @@ DÉLELŐTT 10 órától-12 óráig
 
 DÉLUTÁN 15 óra 30 perctől-16 óra 30 percig
 
-Pünkösdhétfőn a hivatal zárva tart.
-
 **Amiben tudunk, készséggel segítünk.**
 
 **7624 Pécs, Alkotmány utca 4.**<br>
