@@ -3,6 +3,148 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÚRNAPJÁN**
+
+**2020.JÚNIUS 14-21.**
+
+1\. Ma van Úrnapja. A hagyományos második vasárnapi szentségimádási óránkat 16 óra 30 perctől tartjuk meg.
+
+2\. Pénteken lesz Jézus Szíve Főünnepe egyházunkban.
+
+3\. Szombaton a 17 órai szentmise német-magyar kétnyelvű lesz. A szentmise főcelebránsa Berecz Tibor atya lesz.
+
+4\. Jövő vasárnap az évközi idő 12. vasárnapját fogjuk ünnepelni.
+
+**BABAITS MIHÁLY**
+
+**ÚRNAPI ÉNEKE**
+
+Dicsérd, Sion, a Megváltót,  
+ dicsérd a vezért, a pásztort,
+
+| --- | --- |
+|  | zengj himnuszt, zengj éneket! |
+
+Ahogy bírod, akként merjed:  
+ nagyobb Ő mint a dicséret,
+
+| --- | --- |
+|  | méltón nem dicsérheted. |
+
+S a dicséret külön tárgya  
+ ma hogy a Kenyeret áldja,
+
+| --- | --- |
+|  | mely éltet és eleven, |
+
+s hogy végvacsoráján kapta  
+ a Tizenkettők csapatja,
+
+| --- | --- |
+|  | nem kétséges semmiben. |
+
+Legyen teljes, legyen zengő,  
+ legyen vidám és illendő
+
+| --- | --- |
+|  | szivünk ujjongása ma: |
+
+mert azt a napot jelzi ünnepünk,  
+ melyen először adatott nekünk
+
+| --- | --- |
+|  | ez a lelki lakoma |
+
+Új királynak asztalára  
+ új törvénynek szállt páskája:
+
+| --- | --- |
+|  | elavult a régi már. |
+
+Fut az ujtól ami agg,  
+ igazságtól ami vak;
+
+| --- | --- |
+|  | fut a fénytől a homály. |
+
+Amit Krisztus tett ez estén,  
+ hagyta hogy rá emlékezvén
+
+| --- | --- |
+|  | cselekedjük mi is azt. |
+
+Okultunk szent törvényéből:  
+ így lesz borból és kenyérből
+
+| --- | --- |
+|  | üdvösséges áldozat. |
+
+Más és más - de nem lényegben,  
+ csak jel szerint más - szinekben
+
+| --- | --- |
+|  | égi jók lappanganak. |
+
+A vér ital, a hús étel:  
+ mégis Krisztus, lényegével,
+
+| --- | --- |
+|  | teljes mindkét szín alatt. |
+
+Oly kenyér, melyet meg nem tör,  
+ aki vesz miként étekből,
+
+| --- | --- |
+|  | s el se vág, és meg se szel. |
+
+Veszi egy és veszik ezren:  
+ annyit egy; amennyit ezren;
+
+| --- | --- |
+|  | fogyasztják és nem fogy el. |
+
+Veszik jók és veszik rosszak:  
+ csakhogy különböző sorsnak
+
+| --- | --- |
+|  | részesei ők vele. |
+
+Rossznak halál, jónak élet:  
+ ilyen az egyforma étek
+
+| --- | --- |
+|  | különböző ereje. |
+
+Im az angyalok kenyere,  
+ utonjárók eledele,  
+ édesfiaknak étele,
+
+| --- | --- |
+|  | nem ebek számára szánt, |
+
+melynek előképe már a  
+ husvéti bárány halála,  
+ valamint Izsák oltára,
+
+| --- | --- |
+|  | s hogy az égből manna szállt. |
+
+Óh igaz Kenyér, jó Pásztor,  
+ Jézus, óvj az elbukástól,  
+ te táplálj és te palástolj  
+ s add hogy a feltámadáskor
+
+| --- | --- |
+|  | üdvnek látói legyünk. |
+
+Te, ki mindent bírsz és értesz,  
+ s e földön táplálsz és éltetsz,  
+ tedd, hogy szent népeddel, ékes  
+ asztalodnál majd az édes
+
+| --- | --- |
+|  | örökségben résztvegyünk! |
+
 **HIRDETÉSEINK SZENTHÁROMSÁG VASÁRNAPJÁN**
 
 **2020.JÚNIUS 7-14.**
@@ -29,7 +171,7 @@ Hétfőtől-szombatig tehát 17 órakor lesz a szentmise. Vasárnap 8 órakor é
 
 8\. A Pécsi Püspöki Hittudományi Főiskola a 2020/21-es akadémiai évben is gazdag tanulmányi kínálattal várja az egyházi, oktatási és szociális tanulmányok iránt érdeklődő diákjait. Az államilag finanszírozott képzésekre elektronikusan a pphf.hu oldalon lehet 2020. június 10-ig jelentkezni.
 
-9\. Megjelent a Barátok Lapja plébániai tájékoztató júniusi száma. A koronavírus járvány miatt az áprilisi, valamint a májusi szám nyomtatásban nem jelent meg, de a plébánia internetes felületén elérhető. 
+9\. Megjelent a Barátok Lapja plébániai tájékoztató júniusi száma. A koronavírus járvány miatt az áprilisi, valamint a májusi szám nyomtatásban nem jelent meg, de a plébánia internetes felületén elérhető.
 
 [https://pecsi-ferences.github.io/assets/pdfs/2020-06.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-06.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-06.pdf")
 
@@ -38,31 +180,31 @@ Hétfőtől-szombatig tehát 17 órakor lesz a szentmise. Vasárnap 8 órakor é
 **Szentháromság**
 
 A világnak szétosztotta  
- Bor, s kenyérben önmagát.  
- Mert testévé lesz az ostya,  
- És a bor vérére vált.  
- Életét így sokszorozza  
- Ki legyőzte a halált.  
- Keresztjén az ember sorsa  
- Megváltásra így talált.
+Bor, s kenyérben önmagát.  
+Mert testévé lesz az ostya,  
+És a bor vérére vált.  
+Életét így sokszorozza  
+Ki legyőzte a halált.  
+Keresztjén az ember sorsa  
+Megváltásra így talált.
 
 S mert igéje rendelé így,  
- Valódi az ostya-test.  
- Kegyelme a szívben érik,  
- Gyümölcsöt hoz a kereszt.  
- Feltámadjon a remény, hit,  
- S vigasztaló szeretet.  
- Kehely tükrözi a vérit,  
- Aki értünk szenvedett.
+Valódi az ostya-test.  
+Kegyelme a szívben érik,  
+Gyümölcsöt hoz a kereszt.  
+Feltámadjon a remény, hit,  
+S vigasztaló szeretet.  
+Kehely tükrözi a vérit,  
+Aki értünk szenvedett.
 
 Szentháromság súlyos titka,  
- Hogy a Három mégis Egy.  
- S eggyé fogad – így tanítja,  
- Ha veszed a kenyeret.  
- Örök-Egybe térjen vissza,  
- Ki testével egy lehet.  
- S borban a kegyelmet issza,  
- Ki e földön vétkezett.
+Hogy a Három mégis Egy.  
+S eggyé fogad – így tanítja,  
+Ha veszed a kenyeret.  
+Örök-Egybe térjen vissza,  
+Ki testével egy lehet.  
+S borban a kegyelmet issza,  
+Ki e földön vétkezett.
 
 **HIRDETÉSEINK PÜNKÖSD FŐÜNNEPÉN -2020.MÁJUS 31 - JÚNIUS 7.**
 
