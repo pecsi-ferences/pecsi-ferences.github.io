@@ -137,6 +137,18 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚNIUS 14.**
+
+**Az Eucharisztia -- az egyházi élet forrása és csúcsa**
+
+**1324** Az Eucharisztia "az egész keresztény élet forrása és csúcsa". "Az összes szentség, mint minden más egyházi szolgálat és az apostoli tevékenység is, a szent Eucharisztiához tartozik és reá irányul. Az Eucharisztiában ugyanis benne van az Egyház minden lelki java, tudniillik maga Krisztus, a mi Húsvétunk."
+
+**1325** "Az isteni élet közösségét és Isten népének egységét, melyekben az Egyház létezik, az Eucharisztia jól jelzi és csodálatosan megvalósítja. Benne éri el csúcspontját a tevékenység, mellyel Isten Krisztusban megszenteli a világot, és a kultuszt, melyet az emberek Krisztusnak és általa az Atyának a Szentlélekben nyújtanak."
+
+**1326** Végül az Eucharisztia ünneplése által már most részt veszünk az égi liturgiában és elővételezzük az örök életet, amelyben "Isten lesz minden mindenben" (1Kor 15,28).
+
+**1327** Röviden tehát az Eucharisztia hitünk összefoglalása és összegezése: "Tanításunk egyöntetű az Eucharisztiáról, és az Eucharisztia megerősíti a tanításunkat."
+
 #### NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚNIUS 7.
 
 #### A SZENTHÁROMSÁG DOGMÁJA
