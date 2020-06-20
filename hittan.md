@@ -137,6 +137,30 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL**
+
+2020\.JÚNIUS 21.
+
+**Isten megvalósítja a maga tervét: az isteni gondviselés**
+
+**302** A teremtésnek megvan a maga jósága és tökéletessége. Azonban nem egészen készen került ki a Teremtő kezéből. Úgy lett teremtve, hogy még "úton van" (in statu viae) az elérendő végső teljesség felé, amit Isten gondolt el róla. Azokat a rendelkezéseket, amelyekkel Isten a teremtését e tökéletességre vezeti, nevezzük isteni "gondviselésnek".
+
+"Mindent, amit alkotott, Isten a maga gondviselésével oltalmaz és kormányoz, »erejével elérvén \[a világ\] egyik végétől a másikig, és jóságosan elrendez mindent« (vö. Bölcs 8,1). Mert »minden mezítelen és fedetlen szemei előtt« (Zsid 4,13), azok is, amiket teremtményei szabadon fognak cselekedni."
+
+**303** A Szentírás tanúsága következetes: az isteni gondviselés gondoskodása konkrét és közvetlen, mindennel törődik a legkisebb dologtól a világ és a történelem legnagyobb eseményéig. A Szent Könyvek határozottan állítják Isten abszolút uralmát az események folyásában: "A mi Istenünk a mennyben van, mindent, amit akart, megcselekedett" (Zsolt 115,3); és Krisztusról mondja: "aki kinyit, és senki be nem zárja, bezár, és senki ki nem nyitja" (Jel 3,7); "Sok gondolat van a férfi szívében, az Úr akarata azonban megmarad" (Péld 19,21).
+
+**304** Így válik láthatóvá, hogy a Szentlélek, a Szentírás fő szerzője gyakran Istennek tulajdonít cselekedeteket, anélkül, hogy a másodlagos okokat megemlítené. Ez nem primitív kifejezési forma, hanem mélyértelmű emlékeztetés arra, hogy Isten fölötte áll a történelemnek és a világnak, ezeknek abszolút Ura, és nevelés az Istenbe vetett bizalomra. A zsoltárok imádkozása e bizalomnak nagy iskolája.
+
+**305** Jézus gyermeki ráhagyatkozást vár el a mennyei Atya gondviselése iránt, aki gyermekeinek legkisebb szükségleteire is gondot visel: "Ne aggodalmaskodjatok tehát, ezeket mondva: »Mit együnk?« vagy: »Mit igyunk?« (...) Mennyei Atyátok ugyanis tudja, hogy mindezekre szükségetek van. Ti keressétek először Isten országát és annak igazságát, és mindezeket megkapjátok hozzá." (Mt 6,31--33)
+
+**A GONDVISELÉS ÉS A MÁSODLAGOS OKOK**
+
+**306** Isten szuverén Ura a maga tervének, megvalósításához mégis igénybe veszi a teremtmények együttműködését is. Ez nem a gyöngeség, hanem Isten nagyságának és jóságának jele. Isten ugyanis teremtményeinek nemcsak létet ad, hanem a méltóságot is adja, hogy önállóan cselekedjenek, egymás okai és principiumai legyenek, és így együttműködjenek terve megvalósításában.
+
+**307** Az embereknek Isten még arra is hatalmat adott, hogy szabadon vegyenek részt gondviselésében, amikor rájuk bízza annak felelősségét, hogy hajtsák uralmuk alá a földet és uralkodjanak rajta. Így Isten lehetővé teszi az embereknek, hogy értelmes, szabad okok legyenek a teremtés művének beteljesítésében, s önmaguk és felebarátaik javára a teremtés harmóniájának tökéletesítésében. Az emberek, akik gyakran nem tudják, hogy munkatársai az isteni akaratnak, az isteni tervnek megfontoltan lehetnek részesei cselekedeteikkel, imáikkal, sőt még szenvedéseikkel is.Így lesznek egészen Isten és az ő országának "munkatársai" (1Kor 3,9).
+
+**308** A teremtő Istenbe vetett hittől elválaszthatatlan igazság: Isten teremtményei minden cselekedetében tevékeny. Ő az első ok, mely a másodlagos okokban és azok által hat: "Isten maga ébreszti bennetek a szándékot, s hajtja végre a tettet tetszésének megfelelően" (Fil 2,13). Ez az igazság sem csorbítja, hanem növeli a teremtmény méltóságát. Mivel Isten hatalma, bölcsessége és jósága a semmiből emelte ki, a teremtmény semmire sem képes, ha elszakad eredetétől, hiszen "a teremtmény a Teremtő nélkül szertefoszlik"; még kevésbé képes végső célját elérni a kegyelem segítsége nélkül.
+
 **NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚNIUS 14.**
 
 **Az Eucharisztia -- az egyházi élet forrása és csúcsa**
