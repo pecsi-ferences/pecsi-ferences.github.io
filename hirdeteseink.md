@@ -3,6 +3,62 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 12. VASÁRNAP**
+
+**2020.JÚNIUS 21-28.**
+
+1\. Hétfőn lesz 45. esztendeje, hogy Dr. Varga László kanonok urat pappá szentelték. 1975-ben június 22. napja vasárnap volt. A Pécsi Székesegyház felszentelésének ünnepén Egri József; Dr.Gesztesy András és Dr. Varga László diákonúsokat szentelték pappá. Holnap (hétfőn) a 17 órai szentmisében Dr. Varga László és Egri József atyák adnak hálát az elmúlt 45 évért.
+
+2\. A héten lesz Wolleszky Tibor atya halálának 5. évfordulója. Tibor atya hosszú ideig szolgált templomunkban, ezért csütörtökön érte imádkozunk.
+
+3\. Ugyancsak a héten lesz Bérczi Bernát zirci ciszterci apát születésnapja, aki pécsi szolgálatának idején sokszor segített templomunkban. Csütörtökön érte is imádkozunk.
+
+4\. Jövő vasárnap Évközi 13. Vasárnap.
+
+[NEM EJTI LE](https://keresztyenversek.wordpress.com/2010/04/29/nem-ejti-le/)
+
+Földgömb az utazási irodában.  
+ Szép, nagy, kerek.  
+ Forgatni is lehet.  
+ Ragyogó szemmel nézi egy gyerek.
+
+S míg édesanyja sorra  
+ intéz ügyeket, jegyeket,  
+ Ő is bekalandozna  
+ Tengereket és hegyeket.
+
+De anyai szem ilyet  
+ Szó nélkül hogyan nézne!  
+ „Kisfiam, ne nyúlj hozzá,  
+ mert ha leejted, vége!”
+
+Elkapja kis kezét,  
+ S csodálja mozdulatlan.  
+ Kimennek. Elvegyülnek  
+ Az utcaforgatagban.
+
+Tűnődik. Hiába hívja  
+ Kirakatok szépsége.  
+ „Ha a jó Isten ejti le,  
+ Anyu, akkor is vége?”
+
+„Minek, kisfiam?” „Hát a Földnek!  
+ Azt mondtad, Ő tartja kezében.  
+ De ha elfárad a keze?  
+ Ha leejti valamiképpen?”
+
+„Kisfiam, attól sose félj!  
+ Ha leejtené, nagy baj lenne.  
+ De Isten keze oly erős,  
+ A Föld biztosan pihen benne.”
+
+S a fényes, tiszta gyerekszemben  
+ Felragyog a csoda titka:  
+ „Ugye, ha az egyik elfárad,  
+ akkor átveszi a másikba?!”
+
+_Túrmezei Erzsébet_
+
 **HIRDETÉSEINK ÚRNAPJÁN**
 
 **2020.JÚNIUS 14-21.**
@@ -20,127 +76,127 @@ title: Hirdetéseink
 **ÚRNAPI ÉNEKE**
 
 Dicsérd, Sion, a Megváltót,  
- dicsérd a vezért, a pásztort,
+dicsérd a vezért, a pásztort,
 
 | --- | --- |
 |  | zengj himnuszt, zengj éneket! |
 
 Ahogy bírod, akként merjed:  
- nagyobb Ő mint a dicséret,
+nagyobb Ő mint a dicséret,
 
 | --- | --- |
 |  | méltón nem dicsérheted. |
 
 S a dicséret külön tárgya  
- ma hogy a Kenyeret áldja,
+ma hogy a Kenyeret áldja,
 
 | --- | --- |
 |  | mely éltet és eleven, |
 
 s hogy végvacsoráján kapta  
- a Tizenkettők csapatja,
+a Tizenkettők csapatja,
 
 | --- | --- |
 |  | nem kétséges semmiben. |
 
 Legyen teljes, legyen zengő,  
- legyen vidám és illendő
+legyen vidám és illendő
 
 | --- | --- |
 |  | szivünk ujjongása ma: |
 
 mert azt a napot jelzi ünnepünk,  
- melyen először adatott nekünk
+melyen először adatott nekünk
 
 | --- | --- |
 |  | ez a lelki lakoma |
 
 Új királynak asztalára  
- új törvénynek szállt páskája:
+új törvénynek szállt páskája:
 
 | --- | --- |
 |  | elavult a régi már. |
 
 Fut az ujtól ami agg,  
- igazságtól ami vak;
+igazságtól ami vak;
 
 | --- | --- |
 |  | fut a fénytől a homály. |
 
 Amit Krisztus tett ez estén,  
- hagyta hogy rá emlékezvén
+hagyta hogy rá emlékezvén
 
 | --- | --- |
 |  | cselekedjük mi is azt. |
 
 Okultunk szent törvényéből:  
- így lesz borból és kenyérből
+így lesz borból és kenyérből
 
 | --- | --- |
 |  | üdvösséges áldozat. |
 
 Más és más - de nem lényegben,  
- csak jel szerint más - szinekben
+csak jel szerint más - szinekben
 
 | --- | --- |
 |  | égi jók lappanganak. |
 
 A vér ital, a hús étel:  
- mégis Krisztus, lényegével,
+mégis Krisztus, lényegével,
 
 | --- | --- |
 |  | teljes mindkét szín alatt. |
 
 Oly kenyér, melyet meg nem tör,  
- aki vesz miként étekből,
+aki vesz miként étekből,
 
 | --- | --- |
 |  | s el se vág, és meg se szel. |
 
 Veszi egy és veszik ezren:  
- annyit egy; amennyit ezren;
+annyit egy; amennyit ezren;
 
 | --- | --- |
 |  | fogyasztják és nem fogy el. |
 
 Veszik jók és veszik rosszak:  
- csakhogy különböző sorsnak
+csakhogy különböző sorsnak
 
 | --- | --- |
 |  | részesei ők vele. |
 
 Rossznak halál, jónak élet:  
- ilyen az egyforma étek
+ilyen az egyforma étek
 
 | --- | --- |
 |  | különböző ereje. |
 
 Im az angyalok kenyere,  
- utonjárók eledele,  
- édesfiaknak étele,
+utonjárók eledele,  
+édesfiaknak étele,
 
 | --- | --- |
 |  | nem ebek számára szánt, |
 
 melynek előképe már a  
- husvéti bárány halála,  
- valamint Izsák oltára,
+husvéti bárány halála,  
+valamint Izsák oltára,
 
 | --- | --- |
 |  | s hogy az égből manna szállt. |
 
 Óh igaz Kenyér, jó Pásztor,  
- Jézus, óvj az elbukástól,  
- te táplálj és te palástolj  
- s add hogy a feltámadáskor
+Jézus, óvj az elbukástól,  
+te táplálj és te palástolj  
+s add hogy a feltámadáskor
 
 | --- | --- |
 |  | üdvnek látói legyünk. |
 
 Te, ki mindent bírsz és értesz,  
- s e földön táplálsz és éltetsz,  
- tedd, hogy szent népeddel, ékes  
- asztalodnál majd az édes
+s e földön táplálsz és éltetsz,  
+tedd, hogy szent népeddel, ékes  
+asztalodnál majd az édes
 
 | --- | --- |
 |  | örökségben résztvegyünk! |
