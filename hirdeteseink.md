@@ -3,6 +3,90 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP**
+
+**2020.JÚNIUS 28 - JÚLIUS 5.**
+
+1\. Pénteken lesz Dr. Goják János atya halálának 8. évfordulója. Imádságainkban emlékezzünk meg János atyáról.
+
+2\. Jövő vasárnap évközi 14. Vasárnap. Ezen a vasárnapon Péter-fillér gyűjtés lett volna egyházunkban, de Ferenc pápa a világjárványra tekintettel ezt a gyűjtés áthelyezte október 4-re, Assisi Szent Ferenc ünnepére, Évközi 27.Vasárnapra.
+
+3\. Július hónaptól keddenként megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+## KRISZTUS KÖVETÉSE
+
+Városokon át, falvakon által  
+ ott halad Ő és telve csodákkal,  
+ a levegő: mert szökdel a sánta,  
+ vakok ujjongnak a napot látva,  
+ néma ajkon is örömdal zendül.  
+ Halott lép elő hideg verembül.  
+ A csodatevőt kíséri, amerre  
+ megy, lépdel a lába, betegek ezerje.  
+ Tódul a nép, hogy ámuljon, lásson.  
+ Úr a halálon! Úr elmúláson!  
+ Nevét a hír is szárnyra kapja.  
+ Tanítványai kicsiny csapatja  
+ boldog, hogy benne Urára tekinthet.  
+ Úgy szereti mindet és vezeti mindet!  
+ Galilea fénylő ege alatt  
+ Isten fia halad, halad, halad.
+
+…Valakit ott a koponyák hegyére  
+ kísér a nép. Száz sebből csorog a vére.  
+ Ostormegtépte vállán durva fábul  
+ nehéz kereszt. A tömeg zajong, bámul.  
+ Gőgös gúnnyal farizeusok nézik,  
+ vad poroszló hogyan sújt rajta végig.  
+ Körültekint. A lázas két szeme  
+ mintha keresne, mintha kérdene:  
+ hányan vele és hányan ellene?
+
+Hányan vele? Fenne a kereszt alatt  
+ viharvert, könnyes, árva kis csapat:  
+ a tanítvány, akit szeret vala…  
+ néhány asszony még… zeng a kardala  
+ hideg közönynek, hahotázó gúnynak.  
+ Fekete földre véres cseppek hullnak.  
+ Mit vétkezett, hogy így kell halnia?!  
+ Szenved, szenved az Isten Fia!  
+ Szenved, szenved az Isten Fia.
+
+Ő ment az úton. Hátra nem tekintett.  
+ Életet mentett, égi magot hintett,  
+ s bár százak, ezrek léptek nyomára,  
+ tudta, hogy megy: fel a Golgotára.  
+ Tudta, hányan maradnak el mögötte.  
+ Azt kérdezik csak, uralkodni jött-e.  
+ Ha nem, hát vissza, rettenve, ijedve.  
+ Szenvedni vele kinek volna kedve?  
+ Tudta, hogy fenn, fenn a kereszt alatt,  
+ csak egy viharvert, árva kis csapat,  
+ csak annyi lesz az, ami megmarad.
+
+Isten Fia halad, mégis halad  
+ ma is. Napfényen… viharon keresztül…  
+ vad tengeren is hívó szava rezdül.  
+ Elő, tengeren járó Péterek!  
+ Hány riad vissza: Tovább nem merek.  
+ Pedig tovább még, a főpap elébe,  
+ hol rágalom tőrét döfik a szívébe.  
+ Ki vele járt viharzó tengeren,  
+ Hány mondja most gyáván: „Nem ismerem.”  
+ Tovább, tovább! Kereszt gyalázatát  
+ hordva ki éri el a Golgotát?!
+
+A könnyes, árva, viharvert csapatnak  
+ odaát pálmát és koronát adnak  
+ fehér, hótiszta angyalseregek.  
+ Kitárulnak tündöklő egek.  
+ Ujjongva zeng az örök hálaének.  
+ De hányan lesznek, akik odaérnek?
+
+_Túrmezei Erzsébet_
+
+### 
+
 **HIRDETÉSEINK ÉVKÖZI 12. VASÁRNAP**
 
 **2020.JÚNIUS 21-28.**
@@ -18,44 +102,44 @@ title: Hirdetéseink
 [NEM EJTI LE](https://keresztyenversek.wordpress.com/2010/04/29/nem-ejti-le/)
 
 Földgömb az utazási irodában.  
- Szép, nagy, kerek.  
- Forgatni is lehet.  
- Ragyogó szemmel nézi egy gyerek.
+Szép, nagy, kerek.  
+Forgatni is lehet.  
+Ragyogó szemmel nézi egy gyerek.
 
 S míg édesanyja sorra  
- intéz ügyeket, jegyeket,  
- Ő is bekalandozna  
- Tengereket és hegyeket.
+intéz ügyeket, jegyeket,  
+Ő is bekalandozna  
+Tengereket és hegyeket.
 
 De anyai szem ilyet  
- Szó nélkül hogyan nézne!  
- „Kisfiam, ne nyúlj hozzá,  
- mert ha leejted, vége!”
+Szó nélkül hogyan nézne!  
+„Kisfiam, ne nyúlj hozzá,  
+mert ha leejted, vége!”
 
 Elkapja kis kezét,  
- S csodálja mozdulatlan.  
- Kimennek. Elvegyülnek  
- Az utcaforgatagban.
+S csodálja mozdulatlan.  
+Kimennek. Elvegyülnek  
+Az utcaforgatagban.
 
 Tűnődik. Hiába hívja  
- Kirakatok szépsége.  
- „Ha a jó Isten ejti le,  
- Anyu, akkor is vége?”
+Kirakatok szépsége.  
+„Ha a jó Isten ejti le,  
+Anyu, akkor is vége?”
 
 „Minek, kisfiam?” „Hát a Földnek!  
- Azt mondtad, Ő tartja kezében.  
- De ha elfárad a keze?  
- Ha leejti valamiképpen?”
+Azt mondtad, Ő tartja kezében.  
+De ha elfárad a keze?  
+Ha leejti valamiképpen?”
 
 „Kisfiam, attól sose félj!  
- Ha leejtené, nagy baj lenne.  
- De Isten keze oly erős,  
- A Föld biztosan pihen benne.”
+Ha leejtené, nagy baj lenne.  
+De Isten keze oly erős,  
+A Föld biztosan pihen benne.”
 
 S a fényes, tiszta gyerekszemben  
- Felragyog a csoda titka:  
- „Ugye, ha az egyik elfárad,  
- akkor átveszi a másikba?!”
+Felragyog a csoda titka:  
+„Ugye, ha az egyik elfárad,  
+akkor átveszi a másikba?!”
 
 _Túrmezei Erzsébet_
 
