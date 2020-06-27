@@ -139,6 +139,22 @@ Dicsértessék a Jézus Krisztus!
 
 **NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL**
 
+**520** Jézus egész életében példaképül adta magát nekünk: Ő a "tökéletes ember", aki arra hív, hogy tanítványai legyünk és kövessük őt: alázatosságával példát adott nekünk a követésre, imádságával imádkozni tanít, szegénységével arra szólít, hogy a nélkülözéseket és üldözéseket készséggel vállaljuk.
+
+**618** A kereszt Krisztusnak, az Isten és az ember közötti egyedüli közvetítőnek az egyetlen áldozata. Mivel azonban megtestesült isteni személyében "valamiképpen minden emberrel egyesült", "mindenkinek fölkínálja a lehetőséget, hogy Istennél ismert módon (...) társuljon ehhez a húsvéti misztériumhoz". Hívja Apostolait, hogy vegyék föl keresztjüket és kövessék Őt, mert Ő szenvedett értünk, példát hagyván nekünk, hogy kövessük nyomdokait. Ő ugyanis megváltó áldozatához azokat is társítani akarja, akik annak első kedvezményezettjei. Ez valósul meg legfelső fokon az Ő Anyjának személyében, aki mindenkinél bensőségesebben társult megváltó szenvedésének misztériumához.
+
+**IV. A család és az Ország**
+
+**2232** A családi kötelékek jelentősek, de nem mindentől függetlenek. Ahogy a gyermek növekszik érettsége és emberi, lelki önállósága felé, úgy világosodik és erősödik Istentől kapott, sajátos hivatása. A szülők tartsák tiszteletben ezt a meghívást, és segítsék gyermekeik válaszát a hívás követésében. Meggyőződésünknek kell lennie, hogy a keresztény első hivatása Jézus követése: "Aki apját vagy anyját jobban szereti, mint engem, nem méltó hozzám, és aki fiát vagy lányát jobban szereti, mint engem, nem méltó hozzám" (Mt 10,37).
+
+**2233** Jézus tanítványává válni annyit jelent, mint elfogadni az Isten családjához tartozás meghívását, az Ő életmódja szerinti életet: "Aki teljesíti mennyei Atyám akaratát, az nekem mind testvérem, nővérem és anyám" (Mt 12,50).
+
+A szülők fogadják el és örömmel és hálaadással tartsák tiszteletben a meghívást, amellyel az Úr egy gyermeküket arra hívja, hogy a mennyek országért vállalt szüzességben, az Istennek szentelt életben vagy a papi szolgálatban kövesse Őt.
+
+**2253** A szülőknek tiszteletben kell tartaniuk és támogatniuk kell gyermekeik hivatását. Ne feledjék és tanítsák, hogy a keresztény ember első hivatása Jézus követése.
+
+**NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL**
+
 2020\.JÚNIUS 21.
 
 **Isten megvalósítja a maga tervét: az isteni gondviselés**
