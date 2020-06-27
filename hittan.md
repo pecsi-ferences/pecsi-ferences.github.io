@@ -137,7 +137,7 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
-**NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL**
+**NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚNIUS 27.**
 
 **520** Jézus egész életében példaképül adta magát nekünk: Ő a "tökéletes ember", aki arra hív, hogy tanítványai legyünk és kövessük őt: alázatosságával példát adott nekünk a követésre, imádságával imádkozni tanít, szegénységével arra szólít, hogy a nélkülözéseket és üldözéseket készséggel vállaljuk.
 
