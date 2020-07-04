@@ -137,6 +137,10 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚLIUS 5.**
+
+**544** Az ország a szegényeké és a kicsinyeké, vagyis azoké, akik alázatos szívvel elfogadták. Jézus küldetése az, hogy "örömhírt vigyen a szegényeknek" (Lk 4,18). Boldognak mondja őket, mert "övék a mennyek országa" (Mt 5,3); az Atya a "kicsinyeknek" akarta kinyilatkoztatni azt, ami rejtve marad a bölcsek és az okosok előtt. A jászoltól a keresztig Jézus megosztja életét a szegényekkel; ismeri az éhséget, a szomjúságot és a nélkülözést. Sőt, azonosítja magát minden szegénnyel, és az irántuk tanúsított tevékeny szeretetet teszi az országába belépés föltételéül.
+
 **NÉHÁNY PONT A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚNIUS 27.**
 
 **520** Jézus egész életében példaképül adta magát nekünk: Ő a "tökéletes ember", aki arra hív, hogy tanítványai legyünk és kövessük őt: alázatosságával példát adott nekünk a követésre, imádságával imádkozni tanít, szegénységével arra szólít, hogy a nélkülözéseket és üldözéseket készséggel vállaljuk.
