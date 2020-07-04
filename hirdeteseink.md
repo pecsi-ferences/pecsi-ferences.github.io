@@ -3,6 +3,57 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 14. VASÁRNAP**
+
+**2020.JÚLIUS 5-12.**
+
+1\. Ma Péter-fillér gyűjtés lett volna egyházunkban, de Ferenc pápa a világjárványra tekintettel ezt a gyűjtés áthelyezte október 4-re, Assisi Szent Ferenc ünnepére, Évközi 27.Vasárnapra.
+
+2\. Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+3\. Szombaton lesz Szent Benedek apát, Európa fővédőszentjének ünnepe egyházunkban.
+
+4\. Jövő vasárnap, mivel a hónap második vasárnapja lesz, megtartjuk a hagyományos szentségimádási óránkat, mégpedig a szokott időben, vagyis 16 órától.
+
+**_Sík Sándor:_**
+
+**Kérdések felelet nélkül**
+
+Aranymisémig kisfiú koromtól  
+ Bűneimet meggyóntam számtalanszor,  
+ Papok térdére, angyalok fülébe,  
+ Az Isten irgalmának tengerébe.  
+ Látszik-e vajon emberi valómon,  
+ Hogy ötven éve mindugyanazt gyónom?
+
+Polcaimon a könyvek százai,  
+ Ó ifjú olvasások lázai!  
+ Sok költőm, szentem, mesterem,  
+ Titeket iszlak most is szűntelen.  
+ Meglátszik-e viseltes arcomon,  
+ Hogy én is a családhoz tartozom?
+
+Mint gyümölcsfákra májusi eső  
+ Zúgtak le rám a dallamkereső  
+ Élni akaró gondolatcsírák,  
+ S én nekiültem, mint szorgos diák,  
+ Írtam, daloltam a tőlem telőt.  
+ Egy pohár vizet ért-e más előtt?
+
+Egy volt minden második szó a számban:  
+ A szeretetet oly nagyon kívántam,  
+ Mint édesanyja emlejét a kisded.  
+ Mindent vágytam szeretni, mint az Isten.  
+ Akartam mindent szeretetből tenni, –  
+ Amit tettem, több volt-e, mint a semmi?
+
+De minek ez a sok mihaszna kérdés?  
+ A tett a fontos, nem a szürke értés.  
+ Zárlatig úgyis elkészül a mérleg.  
+ Csak egy a fontos: égjek s el ne égjek.  
+ Mint a pusztai vadrózsabokor.  
+ A nap is legszebb naplementekor.
+
 **HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP**
 
 **2020.JÚNIUS 28 - JÚLIUS 5.**
@@ -16,72 +67,72 @@ title: Hirdetéseink
 ## KRISZTUS KÖVETÉSE
 
 Városokon át, falvakon által  
- ott halad Ő és telve csodákkal,  
- a levegő: mert szökdel a sánta,  
- vakok ujjongnak a napot látva,  
- néma ajkon is örömdal zendül.  
- Halott lép elő hideg verembül.  
- A csodatevőt kíséri, amerre  
- megy, lépdel a lába, betegek ezerje.  
- Tódul a nép, hogy ámuljon, lásson.  
- Úr a halálon! Úr elmúláson!  
- Nevét a hír is szárnyra kapja.  
- Tanítványai kicsiny csapatja  
- boldog, hogy benne Urára tekinthet.  
- Úgy szereti mindet és vezeti mindet!  
- Galilea fénylő ege alatt  
- Isten fia halad, halad, halad.
+ott halad Ő és telve csodákkal,  
+a levegő: mert szökdel a sánta,  
+vakok ujjongnak a napot látva,  
+néma ajkon is örömdal zendül.  
+Halott lép elő hideg verembül.  
+A csodatevőt kíséri, amerre  
+megy, lépdel a lába, betegek ezerje.  
+Tódul a nép, hogy ámuljon, lásson.  
+Úr a halálon! Úr elmúláson!  
+Nevét a hír is szárnyra kapja.  
+Tanítványai kicsiny csapatja  
+boldog, hogy benne Urára tekinthet.  
+Úgy szereti mindet és vezeti mindet!  
+Galilea fénylő ege alatt  
+Isten fia halad, halad, halad.
 
 …Valakit ott a koponyák hegyére  
- kísér a nép. Száz sebből csorog a vére.  
- Ostormegtépte vállán durva fábul  
- nehéz kereszt. A tömeg zajong, bámul.  
- Gőgös gúnnyal farizeusok nézik,  
- vad poroszló hogyan sújt rajta végig.  
- Körültekint. A lázas két szeme  
- mintha keresne, mintha kérdene:  
- hányan vele és hányan ellene?
+kísér a nép. Száz sebből csorog a vére.  
+Ostormegtépte vállán durva fábul  
+nehéz kereszt. A tömeg zajong, bámul.  
+Gőgös gúnnyal farizeusok nézik,  
+vad poroszló hogyan sújt rajta végig.  
+Körültekint. A lázas két szeme  
+mintha keresne, mintha kérdene:  
+hányan vele és hányan ellene?
 
 Hányan vele? Fenne a kereszt alatt  
- viharvert, könnyes, árva kis csapat:  
- a tanítvány, akit szeret vala…  
- néhány asszony még… zeng a kardala  
- hideg közönynek, hahotázó gúnynak.  
- Fekete földre véres cseppek hullnak.  
- Mit vétkezett, hogy így kell halnia?!  
- Szenved, szenved az Isten Fia!  
- Szenved, szenved az Isten Fia.
+viharvert, könnyes, árva kis csapat:  
+a tanítvány, akit szeret vala…  
+néhány asszony még… zeng a kardala  
+hideg közönynek, hahotázó gúnynak.  
+Fekete földre véres cseppek hullnak.  
+Mit vétkezett, hogy így kell halnia?!  
+Szenved, szenved az Isten Fia!  
+Szenved, szenved az Isten Fia.
 
 Ő ment az úton. Hátra nem tekintett.  
- Életet mentett, égi magot hintett,  
- s bár százak, ezrek léptek nyomára,  
- tudta, hogy megy: fel a Golgotára.  
- Tudta, hányan maradnak el mögötte.  
- Azt kérdezik csak, uralkodni jött-e.  
- Ha nem, hát vissza, rettenve, ijedve.  
- Szenvedni vele kinek volna kedve?  
- Tudta, hogy fenn, fenn a kereszt alatt,  
- csak egy viharvert, árva kis csapat,  
- csak annyi lesz az, ami megmarad.
+Életet mentett, égi magot hintett,  
+s bár százak, ezrek léptek nyomára,  
+tudta, hogy megy: fel a Golgotára.  
+Tudta, hányan maradnak el mögötte.  
+Azt kérdezik csak, uralkodni jött-e.  
+Ha nem, hát vissza, rettenve, ijedve.  
+Szenvedni vele kinek volna kedve?  
+Tudta, hogy fenn, fenn a kereszt alatt,  
+csak egy viharvert, árva kis csapat,  
+csak annyi lesz az, ami megmarad.
 
 Isten Fia halad, mégis halad  
- ma is. Napfényen… viharon keresztül…  
- vad tengeren is hívó szava rezdül.  
- Elő, tengeren járó Péterek!  
- Hány riad vissza: Tovább nem merek.  
- Pedig tovább még, a főpap elébe,  
- hol rágalom tőrét döfik a szívébe.  
- Ki vele járt viharzó tengeren,  
- Hány mondja most gyáván: „Nem ismerem.”  
- Tovább, tovább! Kereszt gyalázatát  
- hordva ki éri el a Golgotát?!
+ma is. Napfényen… viharon keresztül…  
+vad tengeren is hívó szava rezdül.  
+Elő, tengeren járó Péterek!  
+Hány riad vissza: Tovább nem merek.  
+Pedig tovább még, a főpap elébe,  
+hol rágalom tőrét döfik a szívébe.  
+Ki vele járt viharzó tengeren,  
+Hány mondja most gyáván: „Nem ismerem.”  
+Tovább, tovább! Kereszt gyalázatát  
+hordva ki éri el a Golgotát?!
 
 A könnyes, árva, viharvert csapatnak  
- odaát pálmát és koronát adnak  
- fehér, hótiszta angyalseregek.  
- Kitárulnak tündöklő egek.  
- Ujjongva zeng az örök hálaének.  
- De hányan lesznek, akik odaérnek?
+odaát pálmát és koronát adnak  
+fehér, hótiszta angyalseregek.  
+Kitárulnak tündöklő egek.  
+Ujjongva zeng az örök hálaének.  
+De hányan lesznek, akik odaérnek?
 
 _Túrmezei Erzsébet_
 
