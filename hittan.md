@@ -137,6 +137,18 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚLIUS 12.**
+
+**1435** A megtérés a mindennapi életben a kiengesztelődés gesztusaival, a szegényekkel való törődéssel, a jog és igazság gyakorlásával és védelmével,a hibáknak a testvérek előtti beismerésével, a testvéri feddéssel, az életvitel felülvizsgálatával, a lelkiismeretvizsgálattal, a lelkivezetéssel, a szenvedések elfogadásával, az igazságért elszenvedett üldözés elviselésével történik. A bűnbánat legbiztosabb útja minden nap fölvenni a keresztet, és követni Jézust.
+
+**1436** Eucharisztia és bűnbánat. A megtérés és bűnbánat mindennapi forrását és táplálékát az Eucharisztiában találja meg, mert benne jelenik meg Krisztus áldozata, mely kiengesztelt minket Istennel; Vele táplálkoznak és erősödnek azok, akik Krisztus életéből élnek; az Eucharisztia "ellenszer, mellyel megszabadulunk a napi hibáktól és megmenekülünk a halálos bűnöktől".
+
+**1437** A Szentírás olvasása, a zsolozsma végzése és a Miatyánk imádkozása, az istentisztelet vagy a jámborság bármely őszinte cselekedete ébreszti bennünk a megtérés és a bűnbánat lelkét és hozzájárul bűneink bocsánatához.
+
+**1438** A bűnbánati idők és napok a liturgikus év folyamán (nagyböjti idő, a pénteki napok az Úr halálának emlékezetére) értékes alkalmak az Egyház bűnbánati gyakorlata számára. Ezek az idők különösen alkalmasak lelkigyakorlatokra, bűnbánati liturgiákra, bűnbánati zarándoklatokra, önkéntes lemondásokra -- például böjt és alamizsnaadás -- és a testvéri segítségnyújtásra (karitatív és missziós tevékenység).
+
+**1439** A megtérés és bűnbánat folyamatát Jézus csodálatosan írja le a "tékozló fiú" példabeszédében, melynek középpontja az "irgalmas Atya": a hazug szabadság káprázata, az atyai ház elhagyása; a végletes nyomorúság, melybe a fiú jutott, miután eltékozolta vagyonát; a mélységes megaláztatás, hogy disznókat kell őriznie, s ami még rosszabb, hogy a disznók eledelével vágyódik jóllakni; elgondolkodás az elveszett javakról; a bűnbánat és az elhatározás, hogy bűnösnek fogja vallani magát atyja előtt; a visszatérés útja; a nagylelkű fogadtatás az atyánál; az atya öröme: mindez a megtérés folyamatának sajátos eleme. A szép ruha, a gyűrű és az ünnepi lakoma annak az új, tiszta, emberhez méltó és örömteli életnek a szimbólumai, mely az Istenhez és az Ő családjának -- ami az Egyház -- ölébe megtérő ember élete. Egyedül Krisztusnak az Atya szeretetének mélységeit ismerő Szíve volt képes Atyja irgalmasságának mélységeit ilyen egyszerűen és szépen kinyilatkoztatni számunkra.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚLIUS 5.**
 
 **544** Az ország a szegényeké és a kicsinyeké, vagyis azoké, akik alázatos szívvel elfogadták. Jézus küldetése az, hogy "örömhírt vigyen a szegényeknek" (Lk 4,18). Boldognak mondja őket, mert "övék a mennyek országa" (Mt 5,3); az Atya a "kicsinyeknek" akarta kinyilatkoztatni azt, ami rejtve marad a bölcsek és az okosok előtt. A jászoltól a keresztig Jézus megosztja életét a szegényekkel; ismeri az éhséget, a szomjúságot és a nélkülözést. Sőt, azonosítja magát minden szegénnyel, és az irántuk tanúsított tevékeny szeretetet teszi az országába belépés föltételéül.
