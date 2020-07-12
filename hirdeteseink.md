@@ -3,6 +3,45 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 15. VASÁRNAP**
+
+**2020.JÚLIUS 12-19.**
+
+1\. Ma, mivel a hónap második vasárnapja van, megtartjuk a hagyományos szentségimádási óránkat, mégpedig a szokott időben, vagyis 16 órától.
+
+2\. Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+3\. Csütörtökön 16 órától rózsafüzér imádságot tartunk templomunkban.
+
+4\. Megjelent a - Barátok Lapja- plébániai tájékoztató júliusi száma. A fénymásolás során hiba történt, ezért mindegyik példány külön lapot is tartalmaz.
+
+**Reményik Sándor: CSENDES CSODÁK**
+
+Ne várd, hogy a föld meghasadjon  
+ És tűz nyelje el Sodomát.  
+ A mindennap kicsiny csodái  
+ Nagyobb és titkosabb csodák.
+
+Tedd a kezedet a szívedre  
+ Hallgasd, figyeld, hogy mit dobog,  
+ Ez a finom kis kalapálás  
+ Nem a legcsodásabb dolog?
+
+Nézz a sötétkék végtelenbe,  
+ Nézd a kis ezüstpontokat:  
+ Nem csoda-e, hogy árva lelked  
+ Feléjük szárnyat bontogat?
+
+Nézd, árnyékod hogy fut előled,  
+ Hogy nő, hogy törpül el veled.  
+ Nem csoda ez? – s hogy tükröződni  
+ Látod a vízben az eget?
+
+Ne várj nagy dolgot életedbe,  
+ Kis hópelyhek az örömök,  
+ Szitáló, halk szirom-csodák.  
+ Rajtuk át Isten szól: jövök.
+
 **HIRDETÉSEINK ÉVKÖZI 14. VASÁRNAP**
 
 **2020.JÚLIUS 5-12.**
@@ -20,39 +59,39 @@ title: Hirdetéseink
 **Kérdések felelet nélkül**
 
 Aranymisémig kisfiú koromtól  
- Bűneimet meggyóntam számtalanszor,  
- Papok térdére, angyalok fülébe,  
- Az Isten irgalmának tengerébe.  
- Látszik-e vajon emberi valómon,  
- Hogy ötven éve mindugyanazt gyónom?
+Bűneimet meggyóntam számtalanszor,  
+Papok térdére, angyalok fülébe,  
+Az Isten irgalmának tengerébe.  
+Látszik-e vajon emberi valómon,  
+Hogy ötven éve mindugyanazt gyónom?
 
 Polcaimon a könyvek százai,  
- Ó ifjú olvasások lázai!  
- Sok költőm, szentem, mesterem,  
- Titeket iszlak most is szűntelen.  
- Meglátszik-e viseltes arcomon,  
- Hogy én is a családhoz tartozom?
+Ó ifjú olvasások lázai!  
+Sok költőm, szentem, mesterem,  
+Titeket iszlak most is szűntelen.  
+Meglátszik-e viseltes arcomon,  
+Hogy én is a családhoz tartozom?
 
 Mint gyümölcsfákra májusi eső  
- Zúgtak le rám a dallamkereső  
- Élni akaró gondolatcsírák,  
- S én nekiültem, mint szorgos diák,  
- Írtam, daloltam a tőlem telőt.  
- Egy pohár vizet ért-e más előtt?
+Zúgtak le rám a dallamkereső  
+Élni akaró gondolatcsírák,  
+S én nekiültem, mint szorgos diák,  
+Írtam, daloltam a tőlem telőt.  
+Egy pohár vizet ért-e más előtt?
 
 Egy volt minden második szó a számban:  
- A szeretetet oly nagyon kívántam,  
- Mint édesanyja emlejét a kisded.  
- Mindent vágytam szeretni, mint az Isten.  
- Akartam mindent szeretetből tenni, –  
- Amit tettem, több volt-e, mint a semmi?
+A szeretetet oly nagyon kívántam,  
+Mint édesanyja emlejét a kisded.  
+Mindent vágytam szeretni, mint az Isten.  
+Akartam mindent szeretetből tenni, –  
+Amit tettem, több volt-e, mint a semmi?
 
 De minek ez a sok mihaszna kérdés?  
- A tett a fontos, nem a szürke értés.  
- Zárlatig úgyis elkészül a mérleg.  
- Csak egy a fontos: égjek s el ne égjek.  
- Mint a pusztai vadrózsabokor.  
- A nap is legszebb naplementekor.
+A tett a fontos, nem a szürke értés.  
+Zárlatig úgyis elkészül a mérleg.  
+Csak egy a fontos: égjek s el ne égjek.  
+Mint a pusztai vadrózsabokor.  
+A nap is legszebb naplementekor.
 
 **HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP**
 
