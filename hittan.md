@@ -137,6 +137,14 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚLIUS 19.
+
+**681** Az ítélet napján, a világ végén Krisztus el fog jönni dicsőségben, hogy beteljesítse a jó végső győzelmét a rossz fölött, melyek mint búza és konkoly a történelem folyamán együtt nőttek föl.
+
+**827** "Amíg Krisztus »szent, ártatlan, szeplőtelen«, bűnt nem ismert, és csak azért jött, hogy a nép bűneit kiengesztelje, addig a bűnösöket is magában foglaló Egyház egyszerre szent és mindig tisztulásra szorul, ezért szüntelenül a bűnbánat és a megújulás útját járja." Az Egyház minden tagjának, a fölszentelt szolgákat is beleértve, meg kell vallaniuk, hogy bűnösök. A bűn konkolya az idők végezetéig mindnyájukban növekszik az Evangélium jó búzája között. Az Egyház tehát összegyűjti azokat, akiket megragadott Krisztus üdvössége, de még a megszentelődés útján vannak:
+
+Az Egyház "tehát szent, jóllehet tagjai között vannak bűnösök is; mert nincs más élete, mint a kegyelemé; ha ezzel táplálkoznak, tagjai megszentelődnek, ha eltávolodnak tőle, bűnöket és a lélek szennyét vonják magukra, amik akadályozzák az Egyház szentségének sugárzását. Ezért az Egyház szenved és bűnbánatot tart ezekért az ártalmakért, és hatalma van arra, hogy Krisztus vérével és a Szentlélek ajándékával gyermekeit kiszabadítsa belőlük."
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚLIUS 12.**
 
 **1435** A megtérés a mindennapi életben a kiengesztelődés gesztusaival, a szegényekkel való törődéssel, a jog és igazság gyakorlásával és védelmével,a hibáknak a testvérek előtti beismerésével, a testvéri feddéssel, az életvitel felülvizsgálatával, a lelkiismeretvizsgálattal, a lelkivezetéssel, a szenvedések elfogadásával, az igazságért elszenvedett üldözés elviselésével történik. A bűnbánat legbiztosabb útja minden nap fölvenni a keresztet, és követni Jézust.
