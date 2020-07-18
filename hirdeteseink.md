@@ -23,41 +23,33 @@ Eső estén a program elmarad.
 
 **Dsida Jenő**
 
-**  
- ÚJ IMÁDSÁG**
+  
+ÚJ IMÁDSÁG
 
 Nézd én Uram, a lázas világnak  
- Hörgő mellében vonagló kín dúl –  
- Csontkezü Halál végigsimítja,  
- S torzzá meredten oszlásnak indul.
+Hörgő mellében vonagló kín dúl –  
+Csontkezü Halál végigsimítja,  
+S torzzá meredten oszlásnak indul.
 
 Kezedtől emelt roppant nagy égbolt  
- Hiába lövell szent, ölelő fényt:  
- Sóhajtoz a föld a hideg űrben  
- November esti zord temetőként.
+Hiába lövell szent, ölelő fényt:  
+Sóhajtoz a föld a hideg űrben  
+November esti zord temetőként.
 
 Sötét ravatal, lobogó gyertya...  
- Hajdan édenkert, mily árva, mily bús!  
- Könyörülj rajtunk, gyere mihozzánk;  
- Életet osztó, irgalmas Krisztus!
+Hajdan édenkert, mily árva, mily bús!  
+Könyörülj rajtunk, gyere mihozzánk;  
+Életet osztó, irgalmas Krisztus!
 
 Rád néz a halott üveges szemmel,  
- Érintésedet epedve várja –  
- Életre vár, mint temetett Lázár,  
- Naimi ifju, Jairusz lánya...
+Érintésedet epedve várja –  
+Életre vár, mint temetett Lázár,  
+Naimi ifju, Jairusz lánya...
 
 Gyere hát Krisztus! Könyörülj rajtunk!  
- Nagy, erős hangon mondd ki igédet:  
- A megfagyott vér pezsdüljön újra!  
- Haljon a Halál, éljen az Élet
-
-| --- | --- | --- | --- | --- | --- | --- | --- | --- |
-|  |  |  |  |  |  |  |  |  |
-|  |  |  |  |  |  |  |  |  |
-|  |  |  |  |  |  |  |  |  |
-|  |  |  |  |  |  |  |  |  |
-|  |  |  |  |  |  |  |  |  |
-| PIPACS - PIARISTA IFJÚSÁGI KÖZÖSSÉGEK FEJLESZTÉSE EFOP-1.3.5-16-2016-00900 |  |  |  |  |  |  |  |  |
+Nagy, erős hangon mondd ki igédet:  
+A megfagyott vér pezsdüljön újra!  
+Haljon a Halál, éljen az Élet
 
 **HIRDETÉSEINK ÉVKÖZI 15. VASÁRNAP**
 
