@@ -3,6 +3,62 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 16. VASÁRNAP**
+
+**2020.JÚLIUS 19-26.**
+
+1\. Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+2\. Csütörtökön 16 órától rózsafüzér imádságot tartunk templomunkban.
+
+3\. Jövő vasárnap-2020. július 26-án-a reggel 8 órai és a 17 órai szentmise végén is kiszolgáltatjuk a betegek szentségét mindazoknak, akik erre előzetesen felkészültek és ezt kérik.
+
+4\. Ugyancsak jövő vasárnap a Magyar Pálos Rend szeretettel vár mindenkit Szent Jakab ünnepére az egykori pálos kolostorhoz a Jakab-hegyre.
+
+\-10 óra 15 perckor gyalogos zarándoklat indul a 24-es busz szentkúti végállomásától. (Ehhez az időponthoz a Kertváros - Fagyöngy utcából 9:24-kor induló 24-es busz kb. 9:50 és 9:55 óra között érkezik az uránvárosi buszvégállomásra, ahonnan rögtön tovább is indul Szentkút felé.)
+
+\- Várhatóan 12:00 és 12:30 között- a megérkezéstől függően- ünnepi szentmisét mutat be P. Puskás Antal pálos tartományfőnök.
+
+Eső estén a program elmarad.
+
+**Dsida Jenő**
+
+**  
+ ÚJ IMÁDSÁG**
+
+Nézd én Uram, a lázas világnak  
+ Hörgő mellében vonagló kín dúl –  
+ Csontkezü Halál végigsimítja,  
+ S torzzá meredten oszlásnak indul.
+
+Kezedtől emelt roppant nagy égbolt  
+ Hiába lövell szent, ölelő fényt:  
+ Sóhajtoz a föld a hideg űrben  
+ November esti zord temetőként.
+
+Sötét ravatal, lobogó gyertya...  
+ Hajdan édenkert, mily árva, mily bús!  
+ Könyörülj rajtunk, gyere mihozzánk;  
+ Életet osztó, irgalmas Krisztus!
+
+Rád néz a halott üveges szemmel,  
+ Érintésedet epedve várja –  
+ Életre vár, mint temetett Lázár,  
+ Naimi ifju, Jairusz lánya...
+
+Gyere hát Krisztus! Könyörülj rajtunk!  
+ Nagy, erős hangon mondd ki igédet:  
+ A megfagyott vér pezsdüljön újra!  
+ Haljon a Halál, éljen az Élet
+
+| --- | --- | --- | --- | --- | --- | --- | --- | --- |
+|  |  |  |  |  |  |  |  |  |
+|  |  |  |  |  |  |  |  |  |
+|  |  |  |  |  |  |  |  |  |
+|  |  |  |  |  |  |  |  |  |
+|  |  |  |  |  |  |  |  |  |
+| PIPACS - PIARISTA IFJÚSÁGI KÖZÖSSÉGEK FEJLESZTÉSE EFOP-1.3.5-16-2016-00900 |  |  |  |  |  |  |  |  |
+
 **HIRDETÉSEINK ÉVKÖZI 15. VASÁRNAP**
 
 **2020.JÚLIUS 12-19.**
