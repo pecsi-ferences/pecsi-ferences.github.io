@@ -137,6 +137,12 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL 2020.JÚLIUS 26.**
+
+**546** Jézus példabeszédek által -- melyek tanításának jellegzetességei -- hív arra, hogy belépjünk az Országba. Általuk hív meg az Ország ünnepi lakomájára, ugyanakkor radikális döntést kíván: az Ország elnyeréséért az embernek mindent el kell ajándékoznia; a szavak nem elegendők, tettekre van szükség. A példabeszédek szinte tükröt tartanak az ember elé, melyben fölismerheti: sziklás talajként vagy jó földként fogadja-e be az igét? Mit kezd a kapott talentumokkal? A példabeszédek lényegi magva Jézus és az Ország jelenléte a földön. Az embernek be kell lépnie az Országba, azaz Krisztus tanítványává kell lennie, hogy "megismerje a mennyek országának titkait" (Mt 13,11). A "kívülállóknak" (Mk 4,11) minden rejtve marad.
+
+**2607** Jézus már akkor tanít bennünket imádkozni, amikor Ő maga imádkozik. Imádkozásunk Istennek tetsző útja az Ő imádsága Atyjához. Az evangélium azonban ezen fölül Jézus kifejezett tanítását is adja az imádságról. Mint pedagógus kézen fog minket ott, ahol vagyunk, és lépésről lépésre vezet az Atyához. Az Őt követő emberekhez intézett szavaiban Jézus abból indul ki, amit az imádságról az Ószövetségből már ismernek, és megnyitja szívüket az eljövendő ország újdonsága előtt. Ezt az újdonságot a sokaságnak példabeszédekben nyilatkoztatja ki. Végül tanítványainak, akiknek Egyházában az imádság tanítóinak kell majd lenniük, nyíltan beszél az Atyáról és a Szentlélekről.
+
 A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.JÚLIUS 19.
 
 **681** Az ítélet napján, a világ végén Krisztus el fog jönni dicsőségben, hogy beteljesítse a jó végső győzelmét a rossz fölött, melyek mint búza és konkoly a történelem folyamán együtt nőttek föl.
