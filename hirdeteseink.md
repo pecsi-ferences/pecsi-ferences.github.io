@@ -3,6 +3,137 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 17. VASÁRNAP**
+
+**2020.JÚLIUS 26 - AUGUSZTUS 2.**
+
+1\. **Ma**-2020. július 26-án-a reggel 8 órai és a 17 órai szentmise végén is kiszolgáltatjuk a betegek szentségét mindazoknak, akik erre előzetesen felkészültek és ezt kérik.
+
+2\. Ugyancsak ma-2020. július 26-án a Magyar Pálos Rend szeretettel vár mindenkit Szent Jakab ünnepére az egykori pálos kolostorhoz a Jakab-hegyre.
+
+\-10 óra 15 perckor gyalogos zarándoklat indul a 24-es busz szentkúti végállomásától. (Ehhez az időponthoz a Kertváros - Fagyöngy utcából 9:24-kor induló 24-es busz kb. 9:50 és 9:55 óra között érkezik az uránvárosi buszvégállomásra, ahonnan rögtön tovább is indul Szentkút felé.)
+
+\- Várhatóan 12:00 és 12:30 között- a megérkezéstől függően- ünnepi szentmisét mutat be P. Puskás Antal pálos tartományfőnök.
+
+**Eső estén a program elmarad.**
+
+3\. Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+4\. Csütörtökön 16 órától rózsafüzér imádságot tartunk templomunkban.
+
+5\. A 2020-as Havas Boldogasszony Búcsúprogramja a kihelyezett plakáton olvasható.
+
+**HAVAS BOLDOGASSZONY-BÚCSÚ**
+
+**2020**
+
+**Augusztus 4.** (kedd)
+
+**17.30 _rózsafüzér_** imádság
+
+**18.10** ünnepélyes **_vesperás_** (esti dicséret)
+
+**19.00** szabadtéri **szentmise**
+
+/Dr. **Udvardy György** érsek atya, pécsi apostoli kormányzó/
+
+Utána **_körmenet_** a kegykép másolatával a Havi-hegyi sétányon
+
+**21.00 görögkatolikus szent liturgia**
+
+/**Zajácz Gábor** parókus atya/
+
+Utána **_szentségimádás_** éjfélig (23.30 órától **_csendes_** adoráció)
+
+**24.00** csendes **szentmise** az elhunyt zarándokokért
+
+/**Kövesi Ferenc** esperes atya, Pécs-Szent II. János Pál Pléb. plébános/
+
+Utána **_imavirrasztás_** reggelig
+
+**Augusztus 5.** (szerda)
+
+**7.30 _körmenet_** a Szt. Ágoston-templomtól a Havi-hegyre
+
+**8.30 horvát** nyelvű **szentmise**
+
+**10.00 szentmise**
+
+/**Matis Géza** ezüstmisés atya, aparhanti plébános/
+
+**11.30 német** nyelvű **szentmise**
+
+/**Schraub Ádám** ezüstmisés atya, véméndi plébános/
+
+**14.00** rácvárosi **_Jézus Szíve Családja_** közösség **_imaórája_**
+
+**15.00 _rózsafüzér_** imádság és loretói **_litánia_**
+
+**16.00 szentmise**
+
+/**Herendi János** jubiláns atya, tb. kanonok, c. apát, ny. plébános/
+
+Utána **_körmenet_** a kegykép másolatával, majd **_agapé_**
+
+_Mindenkit sok szeretettel várunk_
+
+_a Szűzanya 323 éves pécsi kegytemplomába!_
+
+**A portugál püspöki konferencia üzenete: A nagyszülők kincsek, szeretni és óvni kell őket.**
+
+**„A nagyszülők kincset jelentenek” – ezzel a címmel tette közzé a portugál püspöki konferencia üzenetét, amelyet az időseknek szentelt Szent Joachim és Szent Anna, Szűz Mária szülei július 26-i ünnepe kapcsán.**
+
+Az üzenet szerint a nagyszülők az unokák őrangyalai, akik mindig jelen vannak, diszkréten és figyelmesen. „Ők azok, akik kéz a kézben sétálnak velük a járdán. Megveszik nekik a fagylaltot, megtisztítják a kicsik térdén az utcai játékok során szerzett sebeket, a nap végén megfürdetik őket, és várják a szülők érkezését.” A portugál püspökök ezzel a képpel hívják fel a figyelmet Jézus nagyszülei, Szent Anna és Szent Joachim ünnepére.
+
+Ez jó alkalom arra, hogy köszönetet mondjunk a nagyszülőknek, megöleljük őket, és értékeljük jelenlétüket a múltban és a jelenben. Ezáltal eljutunk saját gyökereinkhez, és felfedezzük bennük Isten gyengédségét és szeretetét – olvasható az üzenetben.
+
+A nagyszülők azok, akik megveszik az unokának az új cipőt, a vágyott játékot, meghallgatják a panaszkodásukat és a félelmeiket. Ők azok, akik ellensúlyozzák az elfoglalt vagy az elvált szülők hiányát, haragját és nehézségeit, mert a nagyszülők tartják fenn a családi életet, nemcsak azért, mert gyakran ez teszi lehetővé a túlélést, vagy mert egy kis fellélegzésre ad lehetőséget, hanem azért is, mert ők jelentik a gyökeret. Elmesélik a múlt történeteit, és segítenek megérteni a lényeges és a felszínes dolgok közötti különbséget – hangsúlyozza üzenetében a portugál püspöki konferencia.
+
+Az idősek nélkülözhetetlen gazdagságot jelentenek, állandóan védelmezendő kincset. És ahogy azt minden kinccsel tesszük, őket is gondoskodással és csodálattal kell körülvennünk. Az a társadalom, amelyik nem védelmezi, nem csodálja az időseket és nem aggódik értük, bukásra van ítélve. Akiről gondoskodtak, képes lesz gondoskodást nyújtani, aki tanult, képes tanítani, akit óvtak, képes lesz védelmezni, és akit szerettek, az tud szeretni – zárul a portugál püspökök Szent Anna és Szent Joachim közelgő ünnepe alkalmából írt üzenete.
+
+**Forrás:** [**Vatikáni Rádió**](https://www.vaticannews.va/hu/egyhaz/news/2020-07/nagyszulok-elet-kincsei-uzenet-portugal-puspokok.html?fbclid=IwAR3HObD-eQ0EMksnXvydlB3VQxRs-dlP6pUfpB7fZObrP-KlyJm90VpD2N4)
+
+**Magyar Kurír**
+
+Reményik Sándor
+
+| --- | --- | --- | --- |
+| Kegyelem |  |  |  |
+
+Először sírsz.  
+ Azután átkozódsz.  
+ Aztán imádkozol.  
+ Aztán megfeszíted  
+ Körömszakadtig maradék-erőd.  
+ Akarsz, egetostromló akarattal -  
+ S a lehetetlenség konok falán  
+ Zúzod véresre koponyád.  
+ Azután elalélsz.  
+ S ha újra eszmélsz, mindent újra kezdesz.  
+ Utoljára is tompa kábulattal,  
+ Szótalanul, gondolattalanul  
+ Mondod magadnak: mindegy, mindhiába:  
+ A bűn, a betegség, a nyomorúság,  
+ A mindennapi szörnyű szürkeség  
+ Tömlöcéből nincsen, nincsen menekvés!
+
+S akkor - magától - megnyílik az ég,  
+ Mely nem tárult ki átokra, imára,  
+ Erő, akarat, kétségbeesés,  
+ Bűnbánat - hasztalanul ostromolták.  
+ Akkor megnyílik magától az ég,  
+ S egy pici csillag sétál szembe véled,  
+ S olyan közel jön, szépen mosolyogva,  
+ Hogy azt hiszed: a tenyeredbe hull.
+
+Akkor - magától - szűnik a vihar,  
+ Akkor - magától - minden elcsitul,  
+ Akkor - magától - éled a remény.  
+ Álomfáidnak minden aranyágán  
+ Csak úgy magától - friss gyümölcs terem.
+
+Ez a _magától:_ ez a Kegyelem.
+
 **HIRDETÉSEINK ÉVKÖZI 16. VASÁRNAP**
 
 **2020.JÚLIUS 19-26.**
@@ -23,7 +154,6 @@ Eső estén a program elmarad.
 
 **Dsida Jenő**
 
-  
 ÚJ IMÁDSÁG
 
 Nézd én Uram, a lázas világnak  
