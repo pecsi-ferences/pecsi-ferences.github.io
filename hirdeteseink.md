@@ -3,6 +3,109 @@ layout: default
 title: Hirdetéseink
 
 ---
+
+**HIRDETÉSEINK ÉVKÖZI 18. VASÁRNAP**
+
+**2020. AUGUSZTUS 2-9.**
+
+1\. Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+2\. Csütörtökön 16 órától rózsafüzér imádságot tartunk templomunkban.
+
+3\. Jövő vasárnap-mivel a hónap második vasárnapja lesz- 16 órától szentségimádási órát tartunk a templomban.
+
+4\. A 2020-as Havas Boldogasszony Búcsúprogramja a kihelyezett plakáton olvasható.
+
+**HAVAS BOLDOGASSZONY-BÚCSÚ**
+
+**2020**
+
+**Augusztus 4.** (kedd)
+
+**17.30 _rózsafüzér_** imádság
+
+**18.10** ünnepélyes **_vesperás_** (esti dicséret)
+
+**19.00** szabadtéri **szentmise**
+
+/Dr. **Udvardy György** érsek atya, pécsi apostoli kormányzó/
+
+Utána **_körmenet_** a kegykép másolatával a Havi-hegyi sétányon
+
+**21.00 görögkatolikus szent liturgia**
+
+/**Zajácz Gábor** parókus atya/
+
+Utána **_szentségimádás_** éjfélig (23.30 órától **_csendes_** adoráció)
+
+**24.00** csendes **szentmise** az elhunyt zarándokokért
+
+/**Kövesi Ferenc** esperes atya, Pécs-Szent II. János Pál Pléb. plébános/
+
+Utána **_imavirrasztás_** reggelig
+
+**Augusztus 5.** (szerda)
+
+**7.30 _körmenet_** a Szt. Ágoston-templomtól a Havi-hegyre
+
+**8.30 horvát** nyelvű **szentmise**
+
+**10.00 szentmise**
+
+/**Matis Géza** ezüstmisés atya, aparhanti plébános/
+
+**11.30 német** nyelvű **szentmise**
+
+/**Schraub Ádám** ezüstmisés atya, véméndi plébános/
+
+**14.00** rácvárosi **_Jézus Szíve Családja_** közösség **_imaórája_**
+
+**15.00 _rózsafüzér_** imádság és loretói **_litánia_**
+
+**16.00 szentmise**
+
+/**Herendi János** jubiláns atya, tb. kanonok, c. apát, ny. plébános/
+
+Utána **_körmenet_** a kegykép másolatával, majd **_agapé_**
+
+_Mindenkit sok szeretettel várunk_
+
+_a Szűzanya 323 éves pécsi kegytemplomába!_
+
+**_Reményik Sándor:_**
+
+**Mindennapi kenyér**
+
+Amit én álmodom  
+ Nem fényűzés, nem fűszer, csemege,  
+ Amit én álmodom:  
+ Egy nép szájában betevő falat.  
+ Kenyér vagyok, mindennapi kenyér,  
+ Lelki kenyér az éhező szíveknek,  
+ Asztaláldás mindenki asztalán.
+
+Kenyér vagyok, mindennapi kenyér,  
+ Nem cifraság a szűrön,  
+ Nem sujtás a magyarkán,  
+ Nem hívságos ünnepi lobogó,  
+ Kenyér vagyok, mindennapi kenyér,  
+ Nem pompázom, de szükséges vagyok.
+
+Kenyér vagyok, mindennapi kenyér,  
+ Ha tollat fogok: kenyeret szelek.  
+ Kellek, tudom. Kellek nap-nap után,  
+ Kellek, tudom. De nem vagyok hiú,  
+ Lehet magára hiú a kenyér?  
+ Csak boldog lehet, hogy megérte ezt.  
+ Kellek: ezt megérteni egyszerű,  
+ És – nincs tovább.
+
+Az álmom néha kemény, keserű,  
+ Kérges, barna, mint sokszor a kenyér,  
+ De benne van az újrakezdés magja,  
+ De benne van a harchoz új erő, –  
+ De benne van az élet.
+
 **HIRDETÉSEINK ÉVKÖZI 17. VASÁRNAP**
 
 **2020.JÚLIUS 26 - AUGUSZTUS 2.**
@@ -101,36 +204,36 @@ Reményik Sándor
 | Kegyelem |  |  |  |
 
 Először sírsz.  
- Azután átkozódsz.  
- Aztán imádkozol.  
- Aztán megfeszíted  
- Körömszakadtig maradék-erőd.  
- Akarsz, egetostromló akarattal -  
- S a lehetetlenség konok falán  
- Zúzod véresre koponyád.  
- Azután elalélsz.  
- S ha újra eszmélsz, mindent újra kezdesz.  
- Utoljára is tompa kábulattal,  
- Szótalanul, gondolattalanul  
- Mondod magadnak: mindegy, mindhiába:  
- A bűn, a betegség, a nyomorúság,  
- A mindennapi szörnyű szürkeség  
- Tömlöcéből nincsen, nincsen menekvés!
+Azután átkozódsz.  
+Aztán imádkozol.  
+Aztán megfeszíted  
+Körömszakadtig maradék-erőd.  
+Akarsz, egetostromló akarattal -  
+S a lehetetlenség konok falán  
+Zúzod véresre koponyád.  
+Azután elalélsz.  
+S ha újra eszmélsz, mindent újra kezdesz.  
+Utoljára is tompa kábulattal,  
+Szótalanul, gondolattalanul  
+Mondod magadnak: mindegy, mindhiába:  
+A bűn, a betegség, a nyomorúság,  
+A mindennapi szörnyű szürkeség  
+Tömlöcéből nincsen, nincsen menekvés!
 
 S akkor - magától - megnyílik az ég,  
- Mely nem tárult ki átokra, imára,  
- Erő, akarat, kétségbeesés,  
- Bűnbánat - hasztalanul ostromolták.  
- Akkor megnyílik magától az ég,  
- S egy pici csillag sétál szembe véled,  
- S olyan közel jön, szépen mosolyogva,  
- Hogy azt hiszed: a tenyeredbe hull.
+Mely nem tárult ki átokra, imára,  
+Erő, akarat, kétségbeesés,  
+Bűnbánat - hasztalanul ostromolták.  
+Akkor megnyílik magától az ég,  
+S egy pici csillag sétál szembe véled,  
+S olyan közel jön, szépen mosolyogva,  
+Hogy azt hiszed: a tenyeredbe hull.
 
 Akkor - magától - szűnik a vihar,  
- Akkor - magától - minden elcsitul,  
- Akkor - magától - éled a remény.  
- Álomfáidnak minden aranyágán  
- Csak úgy magától - friss gyümölcs terem.
+Akkor - magától - minden elcsitul,  
+Akkor - magától - éled a remény.  
+Álomfáidnak minden aranyágán  
+Csak úgy magától - friss gyümölcs terem.
 
 Ez a _magától:_ ez a Kegyelem.
 
