@@ -137,6 +137,10 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL 2020.augusztus 2.**
+
+**1335** A kenyérszaporítás csodái, amikor az Úr áldást mondott, megtörte a kenyereket és tanítványai által szétosztotta a sokaság táplálékául, előképei az Ő egy eucharisztikus kenyere túláradó bőségének: a Kánában borrá változtatott víz jele már Jézus megdicsőülésének óráját hirdeti. Magát a beteljesedést nyilvánítja ki a menyegzői lakoma az Atya országában, ahol a hívők a Krisztus vérévé vált új bort fogják inni.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL 2020.JÚLIUS 26.**
 
 **546** Jézus példabeszédek által -- melyek tanításának jellegzetességei -- hív arra, hogy belépjünk az Országba. Általuk hív meg az Ország ünnepi lakomájára, ugyanakkor radikális döntést kíván: az Ország elnyeréséért az embernek mindent el kell ajándékoznia; a szavak nem elegendők, tettekre van szükség. A példabeszédek szinte tükröt tartanak az ember elé, melyben fölismerheti: sziklás talajként vagy jó földként fogadja-e be az igét? Mit kezd a kapott talentumokkal? A példabeszédek lényegi magva Jézus és az Ország jelenléte a földön. Az embernek be kell lépnie az Országba, azaz Krisztus tanítványává kell lennie, hogy "megismerje a mennyek országának titkait" (Mt 13,11). A "kívülállóknak" (Mk 4,11) minden rejtve marad.
