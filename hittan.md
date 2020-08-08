@@ -137,6 +137,12 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL**
+
+**(2020.augusztus 9.)**
+
+**547** Jézus a maga szavait számos "erővel, csodával és jellel" kísérte (ApCsel 2,22), melyek mutatják, hogy az Ország Őbenne jelen van. Ezek bizonyítják, hogy Jézus a megígért Messiás.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL 2020.augusztus 2.**
 
 **1335** A kenyérszaporítás csodái, amikor az Úr áldást mondott, megtörte a kenyereket és tanítványai által szétosztotta a sokaság táplálékául, előképei az Ő egy eucharisztikus kenyere túláradó bőségének: a Kánában borrá változtatott víz jele már Jézus megdicsőülésének óráját hirdeti. Magát a beteljesedést nyilvánítja ki a menyegzői lakoma az Atya országában, ahol a hívők a Krisztus vérévé vált új bort fogják inni.
