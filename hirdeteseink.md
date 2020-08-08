@@ -3,6 +3,71 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 19. VASÁRNAP**
+
+**2020. AUGUSZTUS 9-16.**
+
+1\. Ma-mivel a hónap második vasárnapja van- 16 órától szentségimádási órát tartunk a templomban.
+
+2\.Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+3\. Csütörtökön 16 órától rózsafüzér imádságot tartunk templomunkban.
+
+4\. Szombaton lesz Nagyboldogasszony (Mária Mennybevétele) parancsolt főünnepe. Templomunkban reggel 8 órakor és 17 órakor is lesz szentmise.
+
+A 17 órakor kezdődő szentmisét Wigand István bonyhádi plébános úr és Zoltán atya mutatja be, mert német-magyar mise lesz.
+
+5\. Jövő vasárnap évközi 20. vasárnap lesz.
+
+**Szuhanics Albert: Jézus vízen jár**
+
+Jézus vízen jár,
+
+lépked könnyedén,
+
+kinn a tengeren,
+
+annak tetején...
+
+Saruja alatt
+
+hullám csendesül,
+
+ajka hajlatán
+
+mosolyra derül.
+
+Ó kis hitűek
+
+mért süllyedtek el?
+
+Hisz a szilárd hit
+
+hidakat emel!
+
+Azon járjatok
+
+és ne féljetek,
+
+bármit megtehet
+
+csodás lényetek...
+
+Péter hagyd el hát
+
+bátran csónakod!
+
+Te is vízen jársz
+
+s titkom már tudod!
+
+Ám nagyon vigyázz,
+
+őrizd meg hited,
+
+így ez a csodás
+
+képesség tied!
 
 **HIRDETÉSEINK ÉVKÖZI 18. VASÁRNAP**
 
@@ -77,34 +142,34 @@ _a Szűzanya 323 éves pécsi kegytemplomába!_
 **Mindennapi kenyér**
 
 Amit én álmodom  
- Nem fényűzés, nem fűszer, csemege,  
- Amit én álmodom:  
- Egy nép szájában betevő falat.  
- Kenyér vagyok, mindennapi kenyér,  
- Lelki kenyér az éhező szíveknek,  
- Asztaláldás mindenki asztalán.
+Nem fényűzés, nem fűszer, csemege,  
+Amit én álmodom:  
+Egy nép szájában betevő falat.  
+Kenyér vagyok, mindennapi kenyér,  
+Lelki kenyér az éhező szíveknek,  
+Asztaláldás mindenki asztalán.
 
 Kenyér vagyok, mindennapi kenyér,  
- Nem cifraság a szűrön,  
- Nem sujtás a magyarkán,  
- Nem hívságos ünnepi lobogó,  
- Kenyér vagyok, mindennapi kenyér,  
- Nem pompázom, de szükséges vagyok.
+Nem cifraság a szűrön,  
+Nem sujtás a magyarkán,  
+Nem hívságos ünnepi lobogó,  
+Kenyér vagyok, mindennapi kenyér,  
+Nem pompázom, de szükséges vagyok.
 
 Kenyér vagyok, mindennapi kenyér,  
- Ha tollat fogok: kenyeret szelek.  
- Kellek, tudom. Kellek nap-nap után,  
- Kellek, tudom. De nem vagyok hiú,  
- Lehet magára hiú a kenyér?  
- Csak boldog lehet, hogy megérte ezt.  
- Kellek: ezt megérteni egyszerű,  
- És – nincs tovább.
+Ha tollat fogok: kenyeret szelek.  
+Kellek, tudom. Kellek nap-nap után,  
+Kellek, tudom. De nem vagyok hiú,  
+Lehet magára hiú a kenyér?  
+Csak boldog lehet, hogy megérte ezt.  
+Kellek: ezt megérteni egyszerű,  
+És – nincs tovább.
 
 Az álmom néha kemény, keserű,  
- Kérges, barna, mint sokszor a kenyér,  
- De benne van az újrakezdés magja,  
- De benne van a harchoz új erő, –  
- De benne van az élet.
+Kérges, barna, mint sokszor a kenyér,  
+De benne van az újrakezdés magja,  
+De benne van a harchoz új erő, –  
+De benne van az élet.
 
 **HIRDETÉSEINK ÉVKÖZI 17. VASÁRNAP**
 
