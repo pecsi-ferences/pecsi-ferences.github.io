@@ -137,6 +137,14 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.AUGUSZTUS 16.**
+
+**1503** Krisztus együttérzése a betegekkel, valamint számos gyógyítása mindenféle betegségből nyilvánvaló jele annak, hogy Isten meglátogatta az Ő népét és Isten országa közel van. Jézusnak nemcsak a gyógyításhoz volt hatalma, hanem a bűnök megbocsátásához is: Azért jött, hogy az egész embert -- a lelket és testet -- meggyógyítsa. Ő az orvos, akire a betegeknek szükségük van. Az összes szenvedő iránti együttérzése olyan messzire megy, hogy azonosul velük: "Beteg voltam és meglátogattatok" (Mt 25,36). A betegek iránti különös szeretete a századok során arra indította a keresztényeket, hogy karolják föl a testben vagy lélekben szenvedőket; ez késztetett fáradhatatlan erőfeszítésekre a szenvedések enyhítése végett.
+
+**1504** Jézus gyakran elvárta a betegektől, hogy higgyenek. Jeleket alkalmazott a gyógyításnál: nyálat és kézrátételt, sarat és lemosást. A betegek keresték, hogy érinthessék Őt, "mert erő áradt belőle, mely mindenkit meggyógyított" (Lk 6,19). Így a szentségekben Krisztus továbbra is "megérint" bennünket, hogy meggyógyítson.
+
+**1505** A sok szenvedéstől megindultan Krisztus nemcsak megengedte, hogy a betegek megérintsék Őt, hanem nyomorúságainkat magáévá teszi: "Szenvedéseinket magára vette és betegségeinket ő hordozta" (Mt 8,17). De nem minden beteget gyógyított meg. Gyógyításai Isten országa eljövetelének jelei voltak, egy sokkal mélyebbre ható gyógyulást hirdettek: a bűn és a halál fölötti győzelmet az ő húsvétja által. A kereszten Krisztus a rossz egész terhét magára vette, elvette a "világ bűnét" (Jn 1,29), aminek a betegség csak egyik következménye. Szenvedésével és kereszthalálával Krisztus a szenvedésnek új értelmet adott: hasonlóvá tud tenni bennünket Őhozzá, és egyesíthet az Ő megváltó szenvedésével.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL**
 
 **(2020.augusztus 9.)**
