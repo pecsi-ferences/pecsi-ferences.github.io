@@ -3,6 +3,70 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 20. VASÁRNAP**
+
+**2020. AUGUSZTUS 16-23.**
+
+1\.Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+2\. Csütörtökön-2020. augusztus 20-án – Szent István király Magyarország Fővédőszentjének Főünnepén reggel 8 órakor és 17 órakor lesznek a szentmisék templomunkban.
+
+3\.Ugyancsak csütörtökön-2020. augusztus 20-án - a rózsafüzér imádság templomunkban elmarad.
+
+4\. Jövő vasárnap évközi 21. vasárnap. Ezen a vasárnapon ünnepli a Pécsi Egyházmegye fennállásának 1011. évfordulóját. Ebből az alkalomból ünnepi püspöki szentmise lesz a Székesegyházban. A 18 órakor kezdődő szentmise - az idei évben- a Krizmamise is lesz egyházmegyénkben. **Pécs városában vasárnap este nem lesz máshol szentmise, csak a Székesegyházban! Templomunkban a 17 órai szentmise elmarad!**
+
+5. Megjelent a Barátok Lapja augusztusi száma.
+
+   [https://pecsi-ferences.github.io/assets/pdfs/2020-08.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-08.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-08.pdf")
+
+[  
+ EGY ÉDESANYA AZ ORVOSNÁL](https://keresztyenversek.wordpress.com/2010/03/25/egy-edesanya-az-orvosnal/)
+
+Az asszony kánaáni.  
+ Szidónból érkezett.  
+ Jézus után kiáltoz.  
+ A kislánya beteg.
+
+A gonosz lélek gyötri  
+ A szenvedő leányt…  
+ – El sem tudom képzelni,  
+ Uram, hogy meg ne szánd…
+
+A tanítványok durván  
+ Rászólnak: Menj tovább!  
+ Méltatlanul ne zaklasd  
+ A zsidók Krisztusát!
+
+De az asszony nem hátrál.  
+ Jézus elé borul:  
+ Hitét próbára tenni  
+ Így szól hozzá az Úr:
+
+Miként vehetném én el  
+ A fiak kenyerét,  
+ Hogy azt ebeknek szórjam?  
+ – Majd az asszonyra néz.
+
+A kánaáni nőben  
+ Fellángol a remény.  
+ A gyermekéért harcol.  
+ Szemében tiszta fény.
+
+Úgy van, Uram! de lásd csak,  
+ Az eb sem éhezik,  
+ Hisz földre hull a morzsa,  
+ A gazda míg eszik.
+
+Elámul Üdvözítőnk.  
+ Meghatja őt e hit.  
+ Gonoszt verő hatalma  
+ Győzelmesen segít.
+
+Az asszony útnak indul.  
+ Fény villan homlokán,  
+ Mert abba az órában  
+ Meggyógyult a leány.
+
 **HIRDETÉSEINK ÉVKÖZI 19. VASÁRNAP**
 
 **2020. AUGUSZTUS 9-16.**
