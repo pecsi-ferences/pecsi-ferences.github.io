@@ -13,5 +13,4 @@ title: Miserend a Pécsi Ferences Templomban
 
 Megértésüket köszönjük!
 
-* 2020.augusztus 20-án reggel 8 órakor és 17 órakor is lesz szentmise templomunkban.
-  2020. augusztus 23-án 17 órakor nem lesz szentmise!
+* 2020. augusztus 23-án 17 órakor nem lesz szentmise!
