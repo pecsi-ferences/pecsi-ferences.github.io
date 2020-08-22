@@ -137,6 +137,18 @@ Dicsértessék a Jézus Krisztus!
 
 Ölelek mindenkit: Ilona néni
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.augusztus 23.**
+
+**441** Az Isten fia címet az Ószövetségben angyaloknak, a választott népnek, Izrael fiainak és királyainak adták. Ezekben az esetekben fogadott fiúságot jelent, mely Isten és teremtménye között sajátosan bensőséges viszonyt létesít. Amikor a megígért Messiás-Királyt "Isten fiának" nevezik, a szóban forgó szövegek szó szerinti értelme nem jelenti szükségképpen, hogy több, mint egy ember. Azok, akik így Jézust Izrael Messiásának nevezték, vsz. nem akartak ennél többet mondani.
+
+**442** Ez nem érvényes Péterre, amikor Jézust mint "Krisztust, az élő Isten Fiát" vallja meg, mert Jézus ünnepélyesen válaszol neki: "Nem a test és vér nyilatkoztatta ki ezt neked, hanem az én mennyei Atyám" (Mt 16,17). Hasonlóképpen mondja Pál a damaszkuszi úton történt megtérésével kapcsolatban: "Amikor pedig úgy tetszett Istennek, aki engem már anyám méhétől kiválasztott és kegyelmével meghívott, hogy kinyilatkoztassa nekem a Fiát, hogy hirdessem a pogányoknak..." (Gal 1,15--16). "És azonnal hirdette a zsinagógákban, hogy Jézus az Isten Fia" (ApCsel 9,20). Ez a hitvallás volt kezdettől fogva az apostoli hit középpontja, és elsőként Péter vallotta meg ezt a hitet mint az Egyház alapját.
+
+**443** Ha Péter föl tudta ismerni a Messiás Jézus istenfiúságának transzcendens jellegét, ez azért történt, mert ezt maga Jézus világosan tudtára adta. Jézus a főtanács előtt vádlói kérdésére: "Tehát te vagy az Isten fia?" válaszolta: "Ti mondjátok, hogy én vagyok" (Lk 22,70) . Már sokkal korábban "Fiúnak" nevezte magát, aki ismeri az Atyát", aki különbözik a "szolgáktól", akiket Isten korábban küldött az ő népéhez, aki fölötte áll még az angyaloknak is. A maga fiúságát megkülönböztette tanítványaiétól azáltal, hogy sohasem mondta: "mi Atyánk", csak amikor parancsolta nekik: "Ti tehát így imádkozzatok: Miatyánk" (Mt 6,9); és kiemeli a különbséget "az én Atyám és a ti Atyátok" között (Jn 20,17).
+
+**444** Az evangéliumok két ünnepélyes pillanatban, Krisztus megkeresztelkedésekor és színeváltozásakor idézik az Atya szavát, aki "szeretett Fiának" nevezte Őt. Maga Jézus Isten "egyszülött Fiának" nevezi magát (Jn 3,16), és ezzel a címmel állítja örök praeexistentiáját. Követeli a hitet "Isten egyszülött Fiának nevében" (Jn 3,18). Ez a keresztény hitvallás megjelenik már a kereszten függő Jézus előtt álló százados fölkiáltásában: "Ez az ember valóban az Isten Fia volt!" (Mk 15,39). De a hívő csak a húsvéti misztériumban értheti meg az "Isten Fia" cím végső jelentését.
+
+**445** Föltámadása után megdicsőült emberségének erejében jelenik meg istenfiúsága: "A szentség Lelke szerint azonban a halálból való föltámadásával az Isten hatalmas Fiának bizonyult" (Róm 1,4). Az apostolok megvallhatták: "Láttuk az ő dicsőségét, az Atya Egyszülöttének dicsőségét, akit kegyelem és igazság tölt be" (Jn 1,14).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.AUGUSZTUS 16.**
 
 **1503** Krisztus együttérzése a betegekkel, valamint számos gyógyítása mindenféle betegségből nyilvánvaló jele annak, hogy Isten meglátogatta az Ő népét és Isten országa közel van. Jézusnak nemcsak a gyógyításhoz volt hatalma, hanem a bűnök megbocsátásához is: Azért jött, hogy az egész embert -- a lelket és testet -- meggyógyítsa. Ő az orvos, akire a betegeknek szükségük van. Az összes szenvedő iránti együttérzése olyan messzire megy, hogy azonosul velük: "Beteg voltam és meglátogattatok" (Mt 25,36). A betegek iránti különös szeretete a századok során arra indította a keresztényeket, hogy karolják föl a testben vagy lélekben szenvedőket; ez késztetett fáradhatatlan erőfeszítésekre a szenvedések enyhítése végett.
