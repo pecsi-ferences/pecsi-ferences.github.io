@@ -3,6 +3,38 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 21.VASÁRNAP**
+
+**2020.AUGUSZTUS 23-30.**
+
+1\.2020.augusztus 23-án ünnepli a Pécsi Egyházmegye fennállásának 1011.évfordulóját. Ebből az alkalomból ünnepi püspöki szentmise lesz a Székesegyházban. A 18 órakor kezdődő szentmise- az idei évben- a Krizmamise is lesz egyházmegyénkben**. Pécs városában vasárnap este nem lesz máshol szentmise, csak a Székesegyházban! Templomunkban a 17 órai szentmise elmarad!**
+
+2\.Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+3\.Csütörtökön 16 órától rózsafüzér imádság lesz templomunkban.
+
+4\. Jövő vasárnap évközi 22. vasárnap.
+
+Túrmezei Erzsébet  
+ TE ÉS AZ ISTEN  
+   
+ Elfriede Mörlin után németből  
+   
+ Hatalmad van elereszteni Istent,  
+ de arra nincs, hogy ő is eleresszen.  
+ Hatalmadban van gyűlölni az Istent,  
+ de nem tilthatod meg, hogy Ő szeressen.  
+   
+ Jézus Krisztus ellen szabadon dönthetsz.  
+ Ő a Golgotán döntött temelletted.  
+ Igét, egyházat messze elkerülhetsz:  
+ ige, egyház mindig téged keresnek.  
+   
+ Magad választhatod az utat, célt is,  
+ vezetésének mégse vethetsz gátat.  
+ Tagadhatod hatalmát is, létét is:  
+ nem vethesz gátat Isten uralmának.
+
 **HIRDETÉSEINK ÉVKÖZI 20. VASÁRNAP**
 
 **2020. AUGUSZTUS 16-23.**
@@ -15,57 +47,57 @@ title: Hirdetéseink
 
 4\. Jövő vasárnap évközi 21. vasárnap. Ezen a vasárnapon ünnepli a Pécsi Egyházmegye fennállásának 1011. évfordulóját. Ebből az alkalomból ünnepi püspöki szentmise lesz a Székesegyházban. A 18 órakor kezdődő szentmise - az idei évben- a Krizmamise is lesz egyházmegyénkben. **Pécs városában vasárnap este nem lesz máshol szentmise, csak a Székesegyházban! Templomunkban a 17 órai szentmise elmarad!**
 
-5. Megjelent a Barátok Lapja augusztusi száma.
+1. Megjelent a Barátok Lapja augusztusi száma.
 
    [https://pecsi-ferences.github.io/assets/pdfs/2020-08.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-08.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-08.pdf")
 
 [  
- EGY ÉDESANYA AZ ORVOSNÁL](https://keresztyenversek.wordpress.com/2010/03/25/egy-edesanya-az-orvosnal/)
+EGY ÉDESANYA AZ ORVOSNÁL](https://keresztyenversek.wordpress.com/2010/03/25/egy-edesanya-az-orvosnal/)
 
 Az asszony kánaáni.  
- Szidónból érkezett.  
- Jézus után kiáltoz.  
- A kislánya beteg.
+Szidónból érkezett.  
+Jézus után kiáltoz.  
+A kislánya beteg.
 
 A gonosz lélek gyötri  
- A szenvedő leányt…  
- – El sem tudom képzelni,  
- Uram, hogy meg ne szánd…
+A szenvedő leányt…  
+– El sem tudom képzelni,  
+Uram, hogy meg ne szánd…
 
 A tanítványok durván  
- Rászólnak: Menj tovább!  
- Méltatlanul ne zaklasd  
- A zsidók Krisztusát!
+Rászólnak: Menj tovább!  
+Méltatlanul ne zaklasd  
+A zsidók Krisztusát!
 
 De az asszony nem hátrál.  
- Jézus elé borul:  
- Hitét próbára tenni  
- Így szól hozzá az Úr:
+Jézus elé borul:  
+Hitét próbára tenni  
+Így szól hozzá az Úr:
 
 Miként vehetném én el  
- A fiak kenyerét,  
- Hogy azt ebeknek szórjam?  
- – Majd az asszonyra néz.
+A fiak kenyerét,  
+Hogy azt ebeknek szórjam?  
+– Majd az asszonyra néz.
 
 A kánaáni nőben  
- Fellángol a remény.  
- A gyermekéért harcol.  
- Szemében tiszta fény.
+Fellángol a remény.  
+A gyermekéért harcol.  
+Szemében tiszta fény.
 
 Úgy van, Uram! de lásd csak,  
- Az eb sem éhezik,  
- Hisz földre hull a morzsa,  
- A gazda míg eszik.
+Az eb sem éhezik,  
+Hisz földre hull a morzsa,  
+A gazda míg eszik.
 
 Elámul Üdvözítőnk.  
- Meghatja őt e hit.  
- Gonoszt verő hatalma  
- Győzelmesen segít.
+Meghatja őt e hit.  
+Gonoszt verő hatalma  
+Győzelmesen segít.
 
 Az asszony útnak indul.  
- Fény villan homlokán,  
- Mert abba az órában  
- Meggyógyult a leány.
+Fény villan homlokán,  
+Mert abba az órában  
+Meggyógyult a leány.
 
 **HIRDETÉSEINK ÉVKÖZI 19. VASÁRNAP**
 
