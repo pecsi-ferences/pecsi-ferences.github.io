@@ -5,7 +5,7 @@ title: Hittan
 ---
 **Kedves Látogató!**
 
-**A Ferences Plébánia internetes oldalán azért hoztuk létre ezt a menüpontot, hogy a koronavírus járvány idején a plébániai, templomi hittan kapcsán, ilyen módon is tudjunk kapcsolatot tartani az elsőáldozásra/bérmálásra készülő gyerekekkel. Amíg azonban ez nem válik így szükségessé, addig hétről - hétre a Katolikus Egyház Katekizmusából-nem csak gyerekeknek- közlünk néhány pontot.   ( A Katekizmus pontjait 2020.április 24-től a lap alján találja meg.)**
+**A Ferences Plébánia internetes oldalán azért hoztuk létre ezt a menüpontot, hogy a koronavírus járvány idején a plébániai, templomi hittan kapcsán, ilyen módon is tudjunk kapcsolatot tartani az elsőáldozásra/bérmálásra készülő gyerekekkel. Amíg azonban ez nem válik így szükségessé, addig hétről - hétre a Katolikus Egyház Katekizmusából-nem csak gyerekeknek- közlünk néhány pontot.**   
 
 **Jó olvasást minden kedves vendégnek!**
 
