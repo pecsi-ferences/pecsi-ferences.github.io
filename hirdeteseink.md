@@ -3,6 +3,52 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 22. VASÁRNAP**
+
+**2020.augusztus 30 - szeptember 6.**
+
+1\.Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+2\.Csütörtökön 16 órától rózsafüzér imádság lesz templomunkban.
+
+3\. Pénteken első péntek lesz.
+
+4\. Jövő vasárnap évközi 23. vasárnap.
+
+**_Túrmezei Erzsébet:_**
+
+**Ma!**
+
+Holnap talán az ajkam néma.  
+ Hogy ne maradjak  
+ szerető szóval  
+ senki adósa;  
+ úgy szóljak még ma.
+
+Holnap talán merev a lábam.  
+ Segíts, Megváltóm,  
+ hűséges szívvel  
+ szüntelen veled  
+ járni a mában.
+
+Holnap talán karom se mozdul.  
+ Ma szent örömmel  
+ úgy tegye dolgát,  
+ mint a Te szolgád  
+ itt s a síron túl.
+
+Holnap tán a szívem is hallgat.  
+ De ma hirdesse  
+ minden verése:  
+ Áldom, Megváltóm,  
+ mentő hatalmad.
+
+A tegnapot befödte véred.  
+ Tied a holnap.  
+ Nekem csak mám van.  
+ Segíts hűséggel  
+ ebben a mában szolgálni néked!
+
 **HIRDETÉSEINK ÉVKÖZI 21.VASÁRNAP**
 
 **2020.AUGUSZTUS 23-30.**
@@ -16,24 +62,24 @@ title: Hirdetéseink
 4\. Jövő vasárnap évközi 22. vasárnap.
 
 Túrmezei Erzsébet  
- TE ÉS AZ ISTEN  
-   
- Elfriede Mörlin után németből  
-   
- Hatalmad van elereszteni Istent,  
- de arra nincs, hogy ő is eleresszen.  
- Hatalmadban van gyűlölni az Istent,  
- de nem tilthatod meg, hogy Ő szeressen.  
-   
- Jézus Krisztus ellen szabadon dönthetsz.  
- Ő a Golgotán döntött temelletted.  
- Igét, egyházat messze elkerülhetsz:  
- ige, egyház mindig téged keresnek.  
-   
- Magad választhatod az utat, célt is,  
- vezetésének mégse vethetsz gátat.  
- Tagadhatod hatalmát is, létét is:  
- nem vethesz gátat Isten uralmának.
+TE ÉS AZ ISTEN
+
+Elfriede Mörlin után németből
+
+Hatalmad van elereszteni Istent,  
+de arra nincs, hogy ő is eleresszen.  
+Hatalmadban van gyűlölni az Istent,  
+de nem tilthatod meg, hogy Ő szeressen.
+
+Jézus Krisztus ellen szabadon dönthetsz.  
+Ő a Golgotán döntött temelletted.  
+Igét, egyházat messze elkerülhetsz:  
+ige, egyház mindig téged keresnek.
+
+Magad választhatod az utat, célt is,  
+vezetésének mégse vethetsz gátat.  
+Tagadhatod hatalmát is, létét is:  
+nem vethesz gátat Isten uralmának.
 
 **HIRDETÉSEINK ÉVKÖZI 20. VASÁRNAP**
 
