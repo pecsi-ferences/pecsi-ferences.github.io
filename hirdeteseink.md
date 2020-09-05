@@ -7,7 +7,7 @@ title: Hirdetéseink
 
 **2020.szeptember 6-13.**
 
-1\.Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+1\.Kedden lesz Kisboldogasszony ünnepe (Szűz Mária születésének ünnepe). Az ünnep miatt a szokásos Szent Antal imádság kedden elmarad.
 
 2\.Ugyancsak kedden- a járványügyi szabályok megtartásával - 17 óra 45 perctől Filmvetítést tartunk a plébánián. A Mindenki megvan című filmet fogjuk megtekinteni. A film 1 óra 40 percig tart.
 
@@ -27,61 +27,60 @@ title: Hirdetéseink
 
 **A PERSELYEZÉS TOVÁBBRA IS A SZENTMISE VÉGÉN VAN.**
 
-TÚRMEZEI ERZSÉBET A HARMADIK  
-   
- Valamit kérnek tőled  
- Megtenni nem kötelesség  
- Mást mond a jog, mást súg az ész  
- Valami mégis azt kívánja:  
- Nézd, tedd meg, ha teheted!  
- Mindig arra a harmadikra hallgass, mert az a szeretet!  
-   
- Messzire mentél, fáradt vagy, léptél százat  
- Valakiért még egyet kellene.  
- De tested, véred lázad  
- Majd máskor, nyugtat az ész, s a jog józanságra int  
- De egy szelídebb hang azt súgja megint:  
- Tedd meg, ha teheted!  
- Mindig arra a harmadikra hallgass, mert az a szeretet!  
-   
- Valakin segíthetnél. Joga nincs hozzá, nem érdemli meg  
- Tán összetörte a szíved  
- Az ész is azt súgja, minek?  
- S a szelíd hang újra halkan kérlel:  
- Tedd meg, ha teheted!  
- Mindig arra a harmadikra hallgass, mert az a szeretet!  
-   
- Ó, ha a harmadik egyszer első lehetne  
- és diktálhatna, vonhatna, vihetne,  
- Lehet elégnél hamar, esztelenség volna  
- De a szíved békességről dalolna,  
- S míg elveszítenéd, bizony megtalálnád életed!  
- Bízd rá magad arra a harmadikra, mert az a szeretet!  
-   
- Ahol ránk Jézus vár  
-   
- Valami mindig vár.  
- Hol munka, lárma, hajsza,  
- hol a mindennapok küzdelme, harca,  
- hol keservek és kísértések,  
- próbák, bukások és szenvedések,  
- hol csend, csend, csend...  
- Kívül?  
- Vagy bent:  
- Valami mindig vár.  
-   
-   
- Mert Jézus mindig, mindenütt ott van.  
- Ott a zajban, a mindennapokban,  
- küzdelmekben, és feladatokban,  
- ott szenvedésben és kisértésben,  
- hogy felemeljen, őrizzen, védjen,  
- hogy tanácsoljon, segítsen, áldjon,  
- átvigyen tűzön és akadályon,  
- új erőt adjon új kegyelemben.  
-   
- Mindenütt mindig vár,  
- de százszorosan vár ránk - a csendben!
+TÚRMEZEI ERZSÉBET A HARMADIK
+
+Valamit kérnek tőled  
+Megtenni nem kötelesség  
+Mást mond a jog, mást súg az ész  
+Valami mégis azt kívánja:  
+Nézd, tedd meg, ha teheted!  
+Mindig arra a harmadikra hallgass, mert az a szeretet!
+
+Messzire mentél, fáradt vagy, léptél százat  
+Valakiért még egyet kellene.  
+De tested, véred lázad  
+Majd máskor, nyugtat az ész, s a jog józanságra int  
+De egy szelídebb hang azt súgja megint:  
+Tedd meg, ha teheted!  
+Mindig arra a harmadikra hallgass, mert az a szeretet!
+
+Valakin segíthetnél. Joga nincs hozzá, nem érdemli meg  
+Tán összetörte a szíved  
+Az ész is azt súgja, minek?  
+S a szelíd hang újra halkan kérlel:  
+Tedd meg, ha teheted!  
+Mindig arra a harmadikra hallgass, mert az a szeretet!
+
+Ó, ha a harmadik egyszer első lehetne  
+és diktálhatna, vonhatna, vihetne,  
+Lehet elégnél hamar, esztelenség volna  
+De a szíved békességről dalolna,  
+S míg elveszítenéd, bizony megtalálnád életed!  
+Bízd rá magad arra a harmadikra, mert az a szeretet!
+
+Ahol ránk Jézus vár
+
+Valami mindig vár.  
+Hol munka, lárma, hajsza,  
+hol a mindennapok küzdelme, harca,  
+hol keservek és kísértések,  
+próbák, bukások és szenvedések,  
+hol csend, csend, csend...  
+Kívül?  
+Vagy bent:  
+Valami mindig vár.
+
+Mert Jézus mindig, mindenütt ott van.  
+Ott a zajban, a mindennapokban,  
+küzdelmekben, és feladatokban,  
+ott szenvedésben és kisértésben,  
+hogy felemeljen, őrizzen, védjen,  
+hogy tanácsoljon, segítsen, áldjon,  
+átvigyen tűzön és akadályon,  
+új erőt adjon új kegyelemben.
+
+Mindenütt mindig vár,  
+de százszorosan vár ránk - a csendben!
 
 **HIRDETÉSEINK ÉVKÖZI 22. VASÁRNAP**
 
