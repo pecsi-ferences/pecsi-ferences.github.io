@@ -5,13 +5,25 @@ title: Hittan
 ---
 **Kedves Látogató!**
 
-**A Ferences Plébánia internetes oldalán azért hoztuk létre ezt a menüpontot, hogy a koronavírus járvány idején a plébániai, templomi hittan kapcsán, ilyen módon is tudjunk kapcsolatot tartani az elsőáldozásra/bérmálásra készülő gyerekekkel. Amíg azonban ez nem válik így szükségessé, addig hétről - hétre a Katolikus Egyház Katekizmusából-nem csak gyerekeknek- közlünk néhány pontot.**   
+**A Ferences Plébánia internetes oldalán azért hoztuk létre ezt a menüpontot, hogy a koronavírus járvány idején a plébániai, templomi hittan kapcsán, ilyen módon is tudjunk kapcsolatot tartani az elsőáldozásra/bérmálásra készülő gyerekekkel. Amíg azonban ez nem válik így szükségessé, addig hétről - hétre a Katolikus Egyház Katekizmusából-nem csak gyerekeknek- közlünk néhány pontot.**
 
 **Jó olvasást minden kedves vendégnek!**
 
 **2020. Húsvétján**
 
 **A Plébános**
+
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL -2020.SZEPTEMBER 6.**
+
+**533** A názáreti rejtett élet minden ember számára lehetővé teszi, hogy az élet leghétköznapibb dolgaiban közösségben legyen Jézussal:
+
+"A názáreti ház iskola, amelyben az ember kezdi megérteni Krisztus életét. Az evangélium iskolája. (...) Elsősorban a hallgatásra tanít. Bárcsak föléledne bennünk a hallgatás nagyrabecsülése, ennek a csodálatos és nélkülözhetetlen lelki magatartásnak az értékelése (...). Itt tanuljuk meg, milyen fontos a családi élet. Názáret fölhívja a figyelmet a családra, szeretetközösségére, méltóságára, sugárzó szépségére, szentségére és sérthetetlenségére (...). Végezetül itt megtanuljuk a munka fegyelmét. Ó, názáreti iskola, az ács Fiának háza! Itt szeretném megismerni és ünnepelni az emberi munka szigorú, de megváltó törvényét (...); végezetül innen szeretnék áldást küldeni az egész világ munkásainak, és megmutatni nekik a nagy Példaképet, az isteni Testvért.
+
+**725** Végül a Szentlélek Mária által kezdi Krisztussal közösségbe vinni az embereket, "akikre a jó akaratú Isten szeretete irányul" (ők Isten "jó akaratának" emberei), és mindig az alázatosak az elsők, akik Őt elfogadják: a pásztorok, a háromkirályok, Simeon és Anna, a kánai jegyesek és az első tanítványok.
+
+**787** Jézus kezdettől fogva részt adott életéből a tanítványoknak; kinyilatkoztatta nekik az Ország misztériumát, küldetésében, örömeiben és szenvedéseiben részesítette őket. Jézus egy még bensőségesebb kapcsolatról beszél közte és azok között, akik követik őt: "Maradjatok meg bennem, és én tibennetek (...) Én vagyok a szőlőtő, ti a szőlővesszők" (Jn 15,4--5). És meghirdet egy titokzatos, valóságos közösséget a saját teste és a mi testünk között: "Aki eszi az én testemet és issza az én véremet, bennem marad, és én őbenne" (Jn 6,56).
+
+**790** A hívők, akik válaszolnak Isten szavára és Krisztus Testének tagjaivá válnak, szorosan egyesülnek Krisztussal: "Ebben a testben Krisztus élete árad szét a hívőkbe, akik a szentségek által titokzatos és valóságos módon egyesülnek a szenvedett és megdicsőült Krisztussal". Ez elsősorban a keresztségre érvényes, ami által Krisztus halálával és föltámadásával egyesülünk, és az Eucharisztiára, ami által "valóságosan részesedünk az Úr testéből és fölemeltetünk a vele és az egymással való kommunióra".
 
 A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.AUGUSZTUS 30.
 
