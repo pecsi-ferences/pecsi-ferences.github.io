@@ -3,6 +3,86 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 23. VASÁRNAP**
+
+**2020.szeptember 6-13.**
+
+1\.Kedden megtartjuk a szokásos Szent Antal imádságot templomunkban.
+
+2\.Ugyancsak kedden- a járványügyi szabályok megtartásával - 17 óra 45 perctől Filmvetítést tartunk a plébánián. A Mindenki megvan című filmet fogjuk megtekinteni. A film 1 óra 40 percig tart.
+
+3\.Csütörtökön 16 órától rózsafüzér imádság lesz templomunkban.
+
+4\. Pénteken 18 óra 30 perctől Házas Hétvégés kiscsoport találkozó lesz a plébánián.
+
+5\. Jövő vasárnap-mivel a hónap második vasárnapja- 16 órától szentségimádási óra lesz a templomban.
+
+**AZ MKPK ÉS A PÉCSI APOSTOLI KORMÁNYZÓ RENDELKEZÉSEI ÉRTELMÉBEN FIGYELJÜNK ODA A TEMPLOMBAN A 1,5 -2 MÉTERES TÁVOLSÁGTARTÁSRA.**
+
+**A TEMPLOMBAN LEHETŐSÉG SZERINT VISELJÜNK MASZKOT.**
+
+**TOVÁBBRA IS MELLŐZZÜK A TEMPLOMBAN A KÉZFOGÁST.**
+
+**AZ ÁLDOZÁS TOVÁBBRA IS KÉZBEN TÖRTÉNIK.**
+
+**A PERSELYEZÉS TOVÁBBRA IS A SZENTMISE VÉGÉN VAN.**
+
+TÚRMEZEI ERZSÉBET A HARMADIK  
+   
+ Valamit kérnek tőled  
+ Megtenni nem kötelesség  
+ Mást mond a jog, mást súg az ész  
+ Valami mégis azt kívánja:  
+ Nézd, tedd meg, ha teheted!  
+ Mindig arra a harmadikra hallgass, mert az a szeretet!  
+   
+ Messzire mentél, fáradt vagy, léptél százat  
+ Valakiért még egyet kellene.  
+ De tested, véred lázad  
+ Majd máskor, nyugtat az ész, s a jog józanságra int  
+ De egy szelídebb hang azt súgja megint:  
+ Tedd meg, ha teheted!  
+ Mindig arra a harmadikra hallgass, mert az a szeretet!  
+   
+ Valakin segíthetnél. Joga nincs hozzá, nem érdemli meg  
+ Tán összetörte a szíved  
+ Az ész is azt súgja, minek?  
+ S a szelíd hang újra halkan kérlel:  
+ Tedd meg, ha teheted!  
+ Mindig arra a harmadikra hallgass, mert az a szeretet!  
+   
+ Ó, ha a harmadik egyszer első lehetne  
+ és diktálhatna, vonhatna, vihetne,  
+ Lehet elégnél hamar, esztelenség volna  
+ De a szíved békességről dalolna,  
+ S míg elveszítenéd, bizony megtalálnád életed!  
+ Bízd rá magad arra a harmadikra, mert az a szeretet!  
+   
+ Ahol ránk Jézus vár  
+   
+ Valami mindig vár.  
+ Hol munka, lárma, hajsza,  
+ hol a mindennapok küzdelme, harca,  
+ hol keservek és kísértések,  
+ próbák, bukások és szenvedések,  
+ hol csend, csend, csend...  
+ Kívül?  
+ Vagy bent:  
+ Valami mindig vár.  
+   
+   
+ Mert Jézus mindig, mindenütt ott van.  
+ Ott a zajban, a mindennapokban,  
+ küzdelmekben, és feladatokban,  
+ ott szenvedésben és kisértésben,  
+ hogy felemeljen, őrizzen, védjen,  
+ hogy tanácsoljon, segítsen, áldjon,  
+ átvigyen tűzön és akadályon,  
+ új erőt adjon új kegyelemben.  
+   
+ Mindenütt mindig vár,  
+ de százszorosan vár ránk - a csendben!
+
 **HIRDETÉSEINK ÉVKÖZI 22. VASÁRNAP**
 
 **2020.augusztus 30 - szeptember 6.**
@@ -20,34 +100,34 @@ title: Hirdetéseink
 **Ma!**
 
 Holnap talán az ajkam néma.  
- Hogy ne maradjak  
- szerető szóval  
- senki adósa;  
- úgy szóljak még ma.
+Hogy ne maradjak  
+szerető szóval  
+senki adósa;  
+úgy szóljak még ma.
 
 Holnap talán merev a lábam.  
- Segíts, Megváltóm,  
- hűséges szívvel  
- szüntelen veled  
- járni a mában.
+Segíts, Megváltóm,  
+hűséges szívvel  
+szüntelen veled  
+járni a mában.
 
 Holnap talán karom se mozdul.  
- Ma szent örömmel  
- úgy tegye dolgát,  
- mint a Te szolgád  
- itt s a síron túl.
+Ma szent örömmel  
+úgy tegye dolgát,  
+mint a Te szolgád  
+itt s a síron túl.
 
 Holnap tán a szívem is hallgat.  
- De ma hirdesse  
- minden verése:  
- Áldom, Megváltóm,  
- mentő hatalmad.
+De ma hirdesse  
+minden verése:  
+Áldom, Megváltóm,  
+mentő hatalmad.
 
 A tegnapot befödte véred.  
- Tied a holnap.  
- Nekem csak mám van.  
- Segíts hűséggel  
- ebben a mában szolgálni néked!
+Tied a holnap.  
+Nekem csak mám van.  
+Segíts hűséggel  
+ebben a mában szolgálni néked!
 
 **HIRDETÉSEINK ÉVKÖZI 21.VASÁRNAP**
 
