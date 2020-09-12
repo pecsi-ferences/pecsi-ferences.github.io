@@ -13,6 +13,20 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.szeptember 13.**
+
+**978** "Amikor először teszünk hitvallást és megfürdetnek a szent keresztségben, olyan gazdagon kapjuk a bűnbocsánatot, hogy semmiféle bűn -- legyen az az áteredő bűn vagy személyes rossz tettünk és mulasztásunk -- és semmiféle büntetés nem marad vissza utána. A keresztség kegyelme azonban nem szabadít meg senkit a természet gyöngeségétől; ellenkezőleg, (...) küzdenünk kell a rendetlen kívánság ellen, mely bennünket szüntelenül a rossz felé próbál terelni."
+
+**981** Krisztus föltámadása után elküldte Apostolait, hogy hirdessék "az Ő nevében a bűnbánatot a bűnök bocsánatára minden népnek" (Lk 24,47). Az Apostolok és utódaik a "kiengesztelődés \[e\] szolgálatát" (2Kor 5,18) végzik nemcsak azáltal, hogy hirdetik az embereknek Istentől a bűnök bocsánatát, amelyet Krisztus érdemelt ki számunkra, és hívják őket a megtérésre és a hitre, hanem közlik is velük a bűnök bocsánatát a keresztség által, és a Krisztustól kapott kulcsok hatalmának erejével megbékéltetik őket Istennel és az Egyházzal:
+
+Az Egyház "megkapja a mennyek országa kulcsait, hogy benne Krisztus vére által és a Szentlélek közreműködésével megtörténjék a bűnök bocsánata. Ebben az Egyházban újjáéled a lélek, mely a bűnök miatt halott volt, hogy együtt éljen Krisztussal, kinek kegyelme üdvözített minket."
+
+**982** Nincs bűn, bármilyen súlyos legyen is, amit a szent Egyház nem bocsáthatna meg. "Nincs senki, bármilyen gonosz vagy bűnös legyen is, aki nem remélhetné biztonsággal a bűnbocsánatot, ha tévelygéseit őszintén bánja." Krisztus, aki minden emberért meghalt, azt akarja, hogy Egyházában a bűnbocsánat kapui mindig nyitva legyenek azok előtt, akik visszatérnek a bűnből.
+
+**1436** Eucharisztia és bűnbánat. A megtérés és bűnbánat mindennapi forrását és táplálékát az Eucharisztiában találja meg, mert benne jelenik meg Krisztus áldozata, mely kiengesztelt minket Istennel; Vele táplálkoznak és erősödnek azok, akik Krisztus életéből élnek; az Eucharisztia "ellenszer, mellyel megszabadulunk a napi hibáktól és megmenekülünk a halálos bűnöktől".
+
+**1847** Isten, "aki nélküled alkotott téged, nem tesz megigazulttá téged nélküled". Irgalmasságának elfogadása részünkről megköveteli bűneink megvallását. "Ha azt állítjuk, hogy nincs bűnünk, saját magunkat vezetjük félre, és nincs meg bennünk az igazság. Ha megvalljuk bűneinket, akkor mivel Ő jó és igazságos, megbocsátja bűneinket, és minden gonoszságtól megtisztít minket." (1Jn 1,8--9)
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL -2020.SZEPTEMBER 6.**
 
 **533** A názáreti rejtett élet minden ember számára lehetővé teszi, hogy az élet leghétköznapibb dolgaiban közösségben legyen Jézussal:
