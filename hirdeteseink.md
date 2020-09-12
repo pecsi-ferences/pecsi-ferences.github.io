@@ -3,6 +3,80 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 24. VASÁRNAP**
+
+**2020.szeptember 13-20.**
+
+1\. Ma a Szentföldön élő keresztények megsegítésre van templomi gyűjtés.
+
+2\. Ma - mivel a hónap második vasárnapja van- 16 órától szentségimádási óra lesz a templomban.
+
+3\. Kedden megtartjuk a Szent Antal imádságot templomunkban.
+
+4\. Csütörtökön 16 órától rózsafüzér imádság lesz a templomban.
+
+5\. Jövő szombaton 17 órakor német- magyar nyelvű koncelebrált szentmise lesz templomunkban. Ezt a szentmisét Berecz Tibor atya és Dohány Zoltán plébános fogja tartani.
+
+6\. Jövő vasárnap a 17 órakor kezdődő szentmise lesz hittanosaink számára a tanévnyitó - Veni Sancte - szentmise.
+
+7\. Megjelent a Barátok Lapja- plébániai tájékoztató szeptemberi száma.
+
+**Aranyosi Ervin: Az igazak álma**
+
+**Amikor elalszom, más világba lépek.  
+ Napi fáradtságát leveti a lélek.  
+ Álmok vesznek körül, ott lehetek nyomban,  
+ az annyira vágyott szép “Paradicsomban”.  
+ Leteszem terheim, felszabadul testem,  
+ nem fáj az, amitől ébren térdre estem.  
+ Mintha mindig a jót, az igazat látnám,  
+ s teljesülne minden, anélkül, hogy várnám.**
+
+**Haragom és dühöm, itt szélnek eresztem,  
+ nem cipelem tovább fájdalmas keresztem.  
+ Nem talál meg rossz hír, megbékül a lélek,  
+ azt hiszem, álmomban, csak a szépnek élek.  
+ De mitől is lesznek igazak az álmok?  
+ Mielőtt elalszom, mindent megbocsátok!  
+ Annak aki bántott, vagy kiről úgy véltem,  
+ annak ki bosszantott, vagy akitől féltem!**
+
+**Amikor lerakom egy nehéz nap súlyát,  
+ nem viszem magammal szívem baját-búját!  
+ Megtisztul a lelkem, önmagammá válok,  
+ ezért szeretettel fogadnak az álmok.  
+ Azon gondolkodtam, mit kellene tennem,  
+ hogy az álmom nappal tovább éljen bennem?  
+ Hogyan hozhatnám át ebbe a világba?  
+ Hogyan épülhetne be a valóságba?**
+
+**Mi lenne, ha álmom, itt életre kelne,  
+ lelkünk a világban mennyországra lelne?  
+ Nem folytatnánk tovább a sok lélek harcot,  
+ szeretettel néznénk eztán minden arcot!  
+ Ébren is álmodnánk, álmainkban élnénk,  
+ egy egész életet boldogra cserélnénk?  
+ Az eszünk is mindig jó dolgokon járna,  
+ cserélnénk létünket élhetőbb világra!**
+
+**Ahhoz, hogy így legyen, minden ember kéne,  
+ aki minden rosszat örömre cserélne,  
+ aki az álmokból áthozná a szépet,  
+ amitől boldoggá válhatna az élet.  
+ De, amíg úgy érzed, neked más az álmod,  
+ addig itt a Földön azt te sem találod.  
+ Addig csak azt hiszed, sorsod mások írják,  
+ s ezzel nappal ásod álmaidnak sírját.**
+
+**Azt hiszed, hogy reggel életre kell kelned,  
+ az elvárásoknak muszáj megfelelned.  
+ Cipeled haragod, másokat megbántasz,  
+ s nem látod, hogy ezzel önmagadnak ártasz!  
+ Hiszem, ha az ember tudatossá válna,  
+ élete változna, s teljesülne álma.  
+ Le kellene vetni a hétköznapok jármát,  
+ s közösen álmodni az igazak álmát!**
+
 **HIRDETÉSEINK ÉVKÖZI 23. VASÁRNAP**
 
 **2020.szeptember 6-13.**
