@@ -13,29 +13,33 @@ title: Hirdetéseink
 
 3\. Csütörtökön 16 órától rózsafüzér imádság lesz a templomban.
 
-4\. Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkban, de természetesen a 17 órai misét is megtartjuk.
+4\. Jövő szombaton a 17 órai szentmisében a Szeráfi Kórus- Nagy Ernő karnagy úr vezetésével- teljesít zenei szolgálatot.
 
-5\. Múlt vasárnap a szentföldi keresztények megsegítésre volt templomi gyűjtés. A gyűjtés eredményeként 66 000 forint gyűlt össze.
+5\. Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkban, de természetesen a 17 órai misét is megtartjuk.
+
+6\. Múlt vasárnap a szentföldi keresztények megsegítésre volt templomi gyűjtés. A gyűjtés eredményeként 66 000 forint gyűlt össze.
+
+7\. A pécsi egyházmegyében folytatódik a Lectio Divina Eucharistica Dr. Nyúl Viktor atya vezetésével. Csütörtökön a Dóm Kőtárban (Pécs, Káptalan utca 8.) lesz a nyitó alkalom.
 
 _Szent-Gály Kata: A Gazda munkásokat keres -- (Mt 20, 1)_
 
 _itt vagyok az Ország piacán  
- és várakozom a várakozókkal  
- feszül az erő bennem  
- munkát keresek_
+és várakozom a várakozókkal  
+feszül az erő bennem  
+munkát keresek_
 
 _értelmes életre vágyom  
- valami nagyra a kicsinységben is_
+valami nagyra a kicsinységben is_
 
 _kérlek  
- fogadj fel engem_
+fogadj fel engem_
 
 _Te más vagy mint mások  
- Te nem ígérsz könnyű jövendőt előre  
- Tehozzád van bizalmam_
+Te nem ígérsz könnyű jövendőt előre  
+Tehozzád van bizalmam_
 
 _kérlek  
- fogadj fel engem_
+fogadj fel engem_
 
 **HIRDETÉSEINK ÉVKÖZI 24. VASÁRNAP**
 
