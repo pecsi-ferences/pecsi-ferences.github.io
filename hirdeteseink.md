@@ -3,6 +3,40 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 25. VASÁRNAP**
+
+**2020.szeptember 20-27.**
+
+1\. Ma a 17 órakor kezdődő szentmise lesz hittanosaink számára a tanévnyitó - Veni Sancte –szentmise.
+
+2\. Kedden megtartjuk a Szent Antal imádságot templomunkban.
+
+3\. Csütörtökön 16 órától rózsafüzér imádság lesz a templomban.
+
+4\. Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkban, de természetesen a 17 órai misét is megtartjuk.
+
+5\. Múlt vasárnap a szentföldi keresztények megsegítésre volt templomi gyűjtés. A gyűjtés eredményeként 66 000 forint gyűlt össze.
+
+_Szent-Gály Kata: A Gazda munkásokat keres -- (Mt 20, 1)_
+
+_itt vagyok az Ország piacán  
+ és várakozom a várakozókkal  
+ feszül az erő bennem  
+ munkát keresek_
+
+_értelmes életre vágyom  
+ valami nagyra a kicsinységben is_
+
+_kérlek  
+ fogadj fel engem_
+
+_Te más vagy mint mások  
+ Te nem ígérsz könnyű jövendőt előre  
+ Tehozzád van bizalmam_
+
+_kérlek  
+ fogadj fel engem_
+
 **HIRDETÉSEINK ÉVKÖZI 24. VASÁRNAP**
 
 **2020.szeptember 13-20.**
@@ -24,58 +58,58 @@ title: Hirdetéseink
 **Aranyosi Ervin: Az igazak álma**
 
 **Amikor elalszom, más világba lépek.  
- Napi fáradtságát leveti a lélek.  
- Álmok vesznek körül, ott lehetek nyomban,  
- az annyira vágyott szép “Paradicsomban”.  
- Leteszem terheim, felszabadul testem,  
- nem fáj az, amitől ébren térdre estem.  
- Mintha mindig a jót, az igazat látnám,  
- s teljesülne minden, anélkül, hogy várnám.**
+Napi fáradtságát leveti a lélek.  
+Álmok vesznek körül, ott lehetek nyomban,  
+az annyira vágyott szép “Paradicsomban”.  
+Leteszem terheim, felszabadul testem,  
+nem fáj az, amitől ébren térdre estem.  
+Mintha mindig a jót, az igazat látnám,  
+s teljesülne minden, anélkül, hogy várnám.**
 
 **Haragom és dühöm, itt szélnek eresztem,  
- nem cipelem tovább fájdalmas keresztem.  
- Nem talál meg rossz hír, megbékül a lélek,  
- azt hiszem, álmomban, csak a szépnek élek.  
- De mitől is lesznek igazak az álmok?  
- Mielőtt elalszom, mindent megbocsátok!  
- Annak aki bántott, vagy kiről úgy véltem,  
- annak ki bosszantott, vagy akitől féltem!**
+nem cipelem tovább fájdalmas keresztem.  
+Nem talál meg rossz hír, megbékül a lélek,  
+azt hiszem, álmomban, csak a szépnek élek.  
+De mitől is lesznek igazak az álmok?  
+Mielőtt elalszom, mindent megbocsátok!  
+Annak aki bántott, vagy kiről úgy véltem,  
+annak ki bosszantott, vagy akitől féltem!**
 
 **Amikor lerakom egy nehéz nap súlyát,  
- nem viszem magammal szívem baját-búját!  
- Megtisztul a lelkem, önmagammá válok,  
- ezért szeretettel fogadnak az álmok.  
- Azon gondolkodtam, mit kellene tennem,  
- hogy az álmom nappal tovább éljen bennem?  
- Hogyan hozhatnám át ebbe a világba?  
- Hogyan épülhetne be a valóságba?**
+nem viszem magammal szívem baját-búját!  
+Megtisztul a lelkem, önmagammá válok,  
+ezért szeretettel fogadnak az álmok.  
+Azon gondolkodtam, mit kellene tennem,  
+hogy az álmom nappal tovább éljen bennem?  
+Hogyan hozhatnám át ebbe a világba?  
+Hogyan épülhetne be a valóságba?**
 
 **Mi lenne, ha álmom, itt életre kelne,  
- lelkünk a világban mennyországra lelne?  
- Nem folytatnánk tovább a sok lélek harcot,  
- szeretettel néznénk eztán minden arcot!  
- Ébren is álmodnánk, álmainkban élnénk,  
- egy egész életet boldogra cserélnénk?  
- Az eszünk is mindig jó dolgokon járna,  
- cserélnénk létünket élhetőbb világra!**
+lelkünk a világban mennyországra lelne?  
+Nem folytatnánk tovább a sok lélek harcot,  
+szeretettel néznénk eztán minden arcot!  
+Ébren is álmodnánk, álmainkban élnénk,  
+egy egész életet boldogra cserélnénk?  
+Az eszünk is mindig jó dolgokon járna,  
+cserélnénk létünket élhetőbb világra!**
 
 **Ahhoz, hogy így legyen, minden ember kéne,  
- aki minden rosszat örömre cserélne,  
- aki az álmokból áthozná a szépet,  
- amitől boldoggá válhatna az élet.  
- De, amíg úgy érzed, neked más az álmod,  
- addig itt a Földön azt te sem találod.  
- Addig csak azt hiszed, sorsod mások írják,  
- s ezzel nappal ásod álmaidnak sírját.**
+aki minden rosszat örömre cserélne,  
+aki az álmokból áthozná a szépet,  
+amitől boldoggá válhatna az élet.  
+De, amíg úgy érzed, neked más az álmod,  
+addig itt a Földön azt te sem találod.  
+Addig csak azt hiszed, sorsod mások írják,  
+s ezzel nappal ásod álmaidnak sírját.**
 
 **Azt hiszed, hogy reggel életre kell kelned,  
- az elvárásoknak muszáj megfelelned.  
- Cipeled haragod, másokat megbántasz,  
- s nem látod, hogy ezzel önmagadnak ártasz!  
- Hiszem, ha az ember tudatossá válna,  
- élete változna, s teljesülne álma.  
- Le kellene vetni a hétköznapok jármát,  
- s közösen álmodni az igazak álmát!**
+az elvárásoknak muszáj megfelelned.  
+Cipeled haragod, másokat megbántasz,  
+s nem látod, hogy ezzel önmagadnak ártasz!  
+Hiszem, ha az ember tudatossá válna,  
+élete változna, s teljesülne álma.  
+Le kellene vetni a hétköznapok jármát,  
+s közösen álmodni az igazak álmát!**
 
 **HIRDETÉSEINK ÉVKÖZI 23. VASÁRNAP**
 
