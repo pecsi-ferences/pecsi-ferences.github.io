@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.szeptember 20.
+
+**309** Ha Isten, a mindenható Atya egy rendezett és jó világ Teremtője, minden teremtményének gondját viseli, miért van a rossz? Erre a szorongató és elkerülhetetlen, fájdalmas és titokzatos kérdésre egyetlen elsietett válasz sem ad megoldást. A keresztény hit összessége ad választ erre a kérdésre: a teremtés jósága, a bűn tragédiája, Isten türelmes szeretete, aki elébe megy az embernek Szövetségeivel, Fiának megváltó Megtestesülésével, a Lélek ajándékával, az Egyház összehívásával, a szentségek erejével, a boldog életre szóló meghívással, melynek elfogadására a szabad teremtmények előzetes fölszólítást kapnak, de amely elől -- és ez félelmetes misztérium -- eleve elzárkózhatnak. Nincs a keresztény üzenetnek olyan részlete, mely legalább részben ne lenne válasz a rossz kérdésére.
+
+**2828** "Add meg nekünk": milyen szép a gyermekek bizalma, akik mindent Atyjuktól várnak: aki "fölkelti napját jókra is, gonoszokra is, esőt ad igazaknak is, bűnösöknek is" (Mt 5,45), és minden élőnek "eledelt ad a maga idejében" (Zsolt 104,27). Jézus ezt a kérést tanítja nekünk: ez valójában dicsőíti a mi Atyánkat, mert elismeri, hogy Ő mennyire jó minden jóság fölött.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.szeptember 13.**
 
 **978** "Amikor először teszünk hitvallást és megfürdetnek a szent keresztségben, olyan gazdagon kapjuk a bűnbocsánatot, hogy semmiféle bűn -- legyen az az áteredő bűn vagy személyes rossz tettünk és mulasztásunk -- és semmiféle büntetés nem marad vissza utána. A keresztség kegyelme azonban nem szabadít meg senkit a természet gyöngeségétől; ellenkezőleg, (...) küzdenünk kell a rendetlen kívánság ellen, mely bennünket szüntelenül a rossz felé próbál terelni."
