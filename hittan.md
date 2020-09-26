@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2020.SZEPTEMBER 27.
+
+**2611** A hit imádsága nem csupán abban áll, hogy mondogatjuk: "Uram, Uram", hanem a szív készségében az Atya akaratának teljesítésére. Jézus arra hívja apostolait, hogy ezt az együttműködési készséget az isteni tervvel foglalják imádságaikba.
+
 A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.szeptember 20.
 
 **309** Ha Isten, a mindenható Atya egy rendezett és jó világ Teremtője, minden teremtményének gondját viseli, miért van a rossz? Erre a szorongató és elkerülhetetlen, fájdalmas és titokzatos kérdésre egyetlen elsietett válasz sem ad megoldást. A keresztény hit összessége ad választ erre a kérdésre: a teremtés jósága, a bűn tragédiája, Isten türelmes szeretete, aki elébe megy az embernek Szövetségeivel, Fiának megváltó Megtestesülésével, a Lélek ajándékával, az Egyház összehívásával, a szentségek erejével, a boldog életre szóló meghívással, melynek elfogadására a szabad teremtmények előzetes fölszólítást kapnak, de amely elől -- és ez félelmetes misztérium -- eleve elzárkózhatnak. Nincs a keresztény üzenetnek olyan részlete, mely legalább részben ne lenne válasz a rossz kérdésére.
