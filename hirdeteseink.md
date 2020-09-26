@@ -3,6 +3,76 @@ layout: default
 title: Hirdetéseink
 
 ---
+HIRDETÉSEINK ÉVKÖZI 26. VASÁRNAP
+
+**2020. szeptember 27 - október 4.**
+
+Ma a Szentírás Vasárnapját ünnepeljük.
+
+Ma 16 órakor horvát nyelvű szentmise lesz templomunkban. A plébániai mise – a szokott időben-17 órakor kezdődik.
+
+Pénteken Assisi Szent Ferenc ünnepéhez kapcsolódóan elkezdődik őszi lelkigyakorlatunk. A lelkigyakorlatot Rosner Zsolt Magyarszéki Plébános vezeti. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében hangzik el az első lelkigyakorlatos beszéd.
+
+Pénteken 18 óra 30 perctől Házas Hétvégés csoporttalálkozó lesz a plébánián.
+
+Szombaton 10 órától bérmálási próba és gyóntatás lesz templomunkban.
+
+Szombaton folytatódik az őszi lelkigyakorlat. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében mondja el Zsolt atya a második lelkigyakorlatos beszédet.
+
+Vasárnap 10 órakor bérmálási szentmise lesz templomunkban. A bérmálás azért lesz itt, valamint azért lesz külön időpontban, hogy a zsúfoltságot elkerüljük. Kérjük, hogy a bérmálási szentmisére csak a bérmálkozók, a bérmaszülők, a bérmálkozók szülei és családtagjai jöjjenek. Megértésüket nagyon köszönjük!
+
+Vasárnap 16 órakor Szép Attila püspöki irodaigazgató, teológiai tanár tart teremtésvédelmi katekézist templomunkban.
+
+Vasárnap lesz a lelkigyakorlat befejezése. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében tanít bennünket Rosner Zsolt atya.
+
+Jövő vasárnap Péter-fillér gyűjtés lesz az ország katolikus templomaiban.
+
+A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
+
+**Szent-Gály Kata**
+
+**Az élet teljessége**
+
+_"Abból ismerjük fel, hogy benne élünk és Ő mibennünk, hogy saját Lelkéből adott nekünk" (1Jn 4,13)_
+
+Végtelen vágyak és véges lehetőségek: ez az emberi sors. Természetfölötti életünkre éppen a fordítottja áll: végtelen lehetőségek és véges vágyak.
+
+Nincs fogalmunk Isten ajándékáról - és ezért igényünk sincs rá.
+
+Mint kereszténynek tudnod kell, hogy ez a szó: Isten, személynév, személyes Valakit jelöl, aki saját létének gazdagságából hívta létre a világmindenséget, szeretetből, céltudatos elgondolás szerint - és benne téged.
+
+Veled is terve van.
+
+Értelmet és akaratot adott neked, isteni hasonlóságot, hogy számára több lehess, mint a látható világ:
+
+egy ember,
+
+egy "te",
+
+aki szeretetére szeretettel válaszolhat szabad elhatározásból.
+
+A barátságot nem lehet erőltetni, az a szívek közössége, s ezért mindig kölcsönös ajándék, még az Isten-én kapcsolatban is.
+
+Isten az emberre - a test-lélek egységre - kettős feladatot bízott: tökéletesítse a teremtést, vagyis hajtsa szellemének uralma alá, a szellem éltetése alá az anyagot, - ez az anyag megszentelése általunk; tökéletesítse önmagát, vagyis tegye magáévá az isteni akaratot: vállalja a szeretet kettős parancsát a saját szűk önzése helyett - ez a mi megszentelődésünk Isten által.
+
+Isten megadja erre a lehetőséget: a megszentelő kegyelem részesedés az isteni természetből. Fizikai részesedés ez: alkalmassá tevés, hogy Isten működni tudjon bennünk és általunk.
+
+Isten szent, és mi is szentek vagyunk. Isten örök és változatlan, a mi szentségünk: Istenbe-kapcsoltságunk lehet nagyon vagy kisebb mértékű.
+
+A kegyelem: Istenhez tartozás. A bűn: kegyelemhiány, melynek eredménye az isteni élet csökkenése, vagy akár teljes kizárása. Istennel való kapcsolatunk mintája és példaképe a megtestesülés titka. Ott az Örök Ige egy valóságos, de "személytelen" emberséget vesz föl, itt a saját ösztönös énjét teljesen felszámoló, "személytelenné" nemesedett élet adja magát kölcsön, és lesz szeretett fiú ő is: egy "Jézus" az Atya szemében.
+
+Neki növekednie kell, nekem kisebbednem. Ez az egész lelkiélet
+
+Amennyire sikerül a saját akaratod helyett az istenit érvényesíteni, annyira jár át a Szeretet, az isteni életközösség Lelke. Ez az a tűz, melyet Krisztus küld, de ezt a lángot nemcsak elfogadni, hanem kioltani is képes vagy.
+
+Légy minél tökéletesebb nagyítólencse, melyen át mások számára is felfoghatóvá lesz a láthatatlan élet.
+
+Istenről legyen Istenhez méltó fogalmad. A Tízparancs érvényben van ma is: faragott képet ne csinálj magadnak. Isten olyan, amilyennek a hit mutatja, ne torzítsd el arcát se ijesztő rémnek, se szakállas öregnek, vagy velünk nem törődő hatalomnak. Ez mind képfaragás, ízlésed vagy bűneid igénye szerint.
+
+Akiben Krisztus él, az elérte az élet teljességét.
+
+Kár lenne, ha csak a halál szent közelségében döbbennél rá, hogy milyen érték volt élni!
+
 **HIRDETÉSEINK ÉVKÖZI 25. VASÁRNAP**
 
 **2020.szeptember 20-27.**
