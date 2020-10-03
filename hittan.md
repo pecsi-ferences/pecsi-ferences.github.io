@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.október 4.
+
+**449** Amikor az Egyház első hitvallásai Jézusnak az isteni "Úr" címet megadják, kezdettől fogva állítják, hogy az Atyaistent megillető hatalom, tisztelet és dicsőség Jézust is megilleti, mert Ő "egyenlő Istennel" (Fil 2,6), s mivel az Atya -- föltámasztva Őt a halálból és fölmagasztalva a maga dicsőségébe kinyilvánította Jézus ezen uralmát.
+
+**450** A keresztény történelem kezdetétől fogva annak állítása, hogy Jézus Úr a világ és a történelem fölött, annak elismerését is jelenti, hogy az ember személyes szabadságát semmiféle földi hatalomnak nem köteles alávetni, csak egyedül Istennek, az Atyának és az Úr Jézus Krisztusnak: a császár nem az "Úr". "Az Egyház hiszi, hogy az egész emberi történelem kulcsát, középpontját és célját Urában és Mesterében találja meg."
+
 A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2020.SZEPTEMBER 27.
 
 **2611** A hit imádsága nem csupán abban áll, hogy mondogatjuk: "Uram, Uram", hanem a szív készségében az Atya akaratának teljesítésére. Jézus arra hívja apostolait, hogy ezt az együttműködési készséget az isteni tervvel foglalják imádságaikba.
