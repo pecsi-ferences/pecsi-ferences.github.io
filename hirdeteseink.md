@@ -3,6 +3,41 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 27. VASÁRNAP**
+
+**2020. október 4-11.**
+
+Ma Péter-fillér gyűjtés van az ország katolikus templomaiban.
+
+Ma 10 órakor bérmálási szentmise lesz templomunkban. A bérmálás azért lesz itt, valamint azért lesz külön időpontban, hogy a zsúfoltságot elkerüljük. Kérjük, hogy a bérmálási szentmisére csak a bérmálkozók, a bérmaszülők, a bérmálkozók szülei és családtagjai jöjjenek. Megértésüket nagyon köszönjük!
+
+Ma 16 órakor Szép Attila püspöki irodaigazgató, teológiai tanár tart teremtésvédelmi katekézist templomunkban.
+
+Ma lesz a lelkigyakorlat befejezése. A gyóntatás 16 óra 30 perckor kezdődik, majd a 17 órakor kezdődő szentmisében szól hozzánk Rosner Zsolt atya.
+
+Jövő vasárnap-mivel a hónap második vasárnapja lesz- 16 órától szentségimádási óra lesz templomunkban.
+
+A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
+
+A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-már most vihetünk nyomtatványt a templomból.
+
+Megjelent a Barátok Lapja- plébániai tájékoztató- októberi száma.
+
+[https://pecsi-ferences.github.io/assets/pdfs/2020-10.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-10.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-10.pdf")
+
+### 
+
+### Károlyi Amy HIT
+
+Bizonyosabb nekem a repülő koffer  
+ mint a fizika tételei  
+ valóságosabb Mária mennybemenetele  
+ mint a nők egyenjogúsága  
+ az én hitem ott végződik  
+ ahol a brosúrák elkezdődnek  
+ az én hitem ott kezdődik  
+ ahol Lázár felkel és jár
+
 HIRDETÉSEINK ÉVKÖZI 26. VASÁRNAP
 
 **2020. szeptember 27 - október 4.**
