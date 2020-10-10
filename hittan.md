@@ -13,6 +13,26 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.október 11.**
+
+**1266** A legszentebb Szentháromság a megkereszteltnek a megszentelő kegyelmet, a megigazulás kegyelmét adja:
+
+* ami az isteni erények által képessé teszi arra, hogy Istenben higgyen, Benne reméljen és Őt szeresse;
+* a Szentlélek ajándékai által lehetővé teszi számára, hogy a Szentlélek irányítása alatt éljen és cselekedjék;
+* az erkölcsi erények által képessé teszi arra, hogy a jóban növekedjék.
+
+Így a keresztény ember természetfölötti életének egész organizmusa a szent keresztségben gyökerezik.
+
+**1999** Krisztus kegyelme Istentől adott, ingyenes ajándék, az Ő -- Szentlélek által lelkünkbe árasztott -- életének ajándéka azért, hogy a bűnből kigyógyítson és megszenteljen minket: ez a megszentelő, más szóval megistenítő kegyelem, melyet a keresztségben kapunk. Ez bennünk a megszentelés művének forrása:
+
+"Mindenki, aki Krisztusban van, új teremtmény. A régi megszűnt, valami új valósult meg. De mindezt Isten viszi végbe, aki megengesztelődött irántunk Krisztus által." (2Kor 5,17--18)
+
+**2000** A megszentelő kegyelem állapotszerű (habituális) ajándék, állandó természetfölötti készség, mely tökéletesíti a lelket, hogy képessé tegye az Istennel való életre és az Ő szeretetéért való cselekvésre. Az állapotszerű (habituális) kegyelmet, mely maradandó készség az isteni hívás szerinti életre és cselekvésre, meg kell különböztetnünk az aktuális kegyelmektől, melyek isteni beavatkozások a megtérés kezdetén, vagy a megszentelés művének folyamatában.
+
+**2023** A megszentelő kegyelem ingyenes ajándék, amit Isten ad nekünk, az Ő -- Szentlélek által lelkünkbe árasztott -- életének ajándéka azért, hogy a bűnből kigyógyítson és megszenteljen minket.
+
+**2024** A megszentelő kegyelem kedvessé tesz Isten előtt. A karizmák, a Szentlélek különleges kegyelmei a megszentelő kegyelemre irányulnak, s céljuk az Egyház közjava. Isten sokféle aktuális kegyelemmel is tevékenykedik, melyek különböznek a bennünk maradandóan meglévő állapotszerű kegyelemtől.
+
 A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.október 4.
 
 **449** Amikor az Egyház első hitvallásai Jézusnak az isteni "Úr" címet megadják, kezdettől fogva állítják, hogy az Atyaistent megillető hatalom, tisztelet és dicsőség Jézust is megilleti, mert Ő "egyenlő Istennel" (Fil 2,6), s mivel az Atya -- föltámasztva Őt a halálból és fölmagasztalva a maga dicsőségébe kinyilvánította Jézus ezen uralmát.
