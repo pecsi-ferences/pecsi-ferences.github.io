@@ -9,48 +9,52 @@ title: Hirdetéseink
 
 **Ma- mivel a hónap második vasárnapja van- 16 órától szentségimádási óra lesz templomunkban.**
 
-**Kedden filmvetítést tartunk a plébánián. Levelek Jákob tiszteletesnek a címe annak a filmnek, amit megnézünk. A film 74 perces és feliratos.**
+**Kedden filmvetítést tartunk a plébánián. Levelek Jákob tiszteletesnek a címe annak a filmnek, amit megnézünk. A film 74 perces és feliratos.  A vetítés kezdete 17 óra 45 perc.**
 
 **Szombaton 17 órakor német-magyar mise lesz templomunkban.**
 
 **Jövő vasárnap 15 óra 30 perctől horvát nyelvű rózsafüzér imádság lesz templomunkban. 16 órakor horvát nyelvű szentmisét mond Barics Gábriel atya. Természetesen a plébániai szentmise 17 órakor kezdődik majd.**
 
+**Jövő vasárnap a 17 órai szentmisében a Szeráfi Kórus teljesít zenei szolgálatot, Nagy Ernő karnagy űr vezetésével.**
+
 **Jövő vasárnap a missziók javára lesz országos templomi gyűjtés.**
 
-A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
+**A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.**
 
-A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-már most vihetünk nyomtatványt a templomból.
+**A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-már most vihetünk nyomtatványt a templomból.**
 
-Múlt vasárnap Péter-fillér gyűjtés volt az ország katolikus templomiban. Templomunkban 124 625 forint gyűlt össze. Köszönjük a nemes adakozást!
+**Múlt vasárnap Péter-fillér gyűjtés volt az ország katolikus templomiban. Templomunkban 124 625 forint gyűlt össze. Köszönjük a nemes adakozást!**
 
-Megjelent a Barátok Lapja- plébániai tájékoztató- októberi száma.
+**Megjelent a Barátok Lapja- plébániai tájékoztató- októberi száma.**
+
+[https://pecsi-ferences.github.io/assets/pdfs/2020-10.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-10.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-10.pdf")
 
 PÉLDÁZAT A KIRÁLYI MENYEGZŐRŐL
 
 Mikor a királyfi  
- menyegzőjét ülte,  
- A király a vendégekért  
- szolgáit elküldte.
+menyegzőjét ülte,  
+A király a vendégekért  
+szolgáit elküldte.
 
 De a meghívottak  
- vonakodtak menni,  
- Más a dolguk: házat, ökröt,  
- szántóföldet venni.
+vonakodtak menni,  
+Más a dolguk: házat, ökröt,  
+szántóföldet venni.
 
 Összeszorul szíve  
- erre a királynak,  
- Fáj neki, hogy barátai  
- vele csak így bánnak.
+erre a királynak,  
+Fáj neki, hogy barátai  
+vele csak így bánnak.
 
 ,Jöjjön, aki béna,  
- jöjjön, aki sánta,  
- Hívjatok be minden szegényt  
- az én lakomámra!’’
+jöjjön, aki sánta,  
+Hívjatok be minden szegényt  
+az én lakomámra!’’
 
 Hív az Atya engem,  
- hív az Atya téged,  
- Fogadjuk el nagy örömmel  
- e nagy tisztességet!
+hív az Atya téged,  
+Fogadjuk el nagy örömmel  
+e nagy tisztességet!
 
 _Hamar István_
 
