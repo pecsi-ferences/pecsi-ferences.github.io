@@ -3,6 +3,57 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 28. VASÁRNAP**
+
+**2020. október 11-18.**
+
+**Ma- mivel a hónap második vasárnapja van- 16 órától szentségimádási óra lesz templomunkban.**
+
+**Kedden filmvetítést tartunk a plébánián. Levelek Jákob tiszteletesnek a címe annak a filmnek, amit megnézünk. A film 74 perces és feliratos.**
+
+**Szombaton 17 órakor német-magyar mise lesz templomunkban.**
+
+**Jövő vasárnap 15 óra 30 perctől horvát nyelvű rózsafüzér imádság lesz templomunkban. 16 órakor horvát nyelvű szentmisét mond Barics Gábriel atya. Természetesen a plébániai szentmise 17 órakor kezdődik majd.**
+
+**Jövő vasárnap a missziók javára lesz országos templomi gyűjtés.**
+
+A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
+
+A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-már most vihetünk nyomtatványt a templomból.
+
+Múlt vasárnap Péter-fillér gyűjtés volt az ország katolikus templomiban. Templomunkban 124 625 forint gyűlt össze. Köszönjük a nemes adakozást!
+
+Megjelent a Barátok Lapja- plébániai tájékoztató- októberi száma.
+
+PÉLDÁZAT A KIRÁLYI MENYEGZŐRŐL
+
+Mikor a királyfi  
+ menyegzőjét ülte,  
+ A király a vendégekért  
+ szolgáit elküldte.
+
+De a meghívottak  
+ vonakodtak menni,  
+ Más a dolguk: házat, ökröt,  
+ szántóföldet venni.
+
+Összeszorul szíve  
+ erre a királynak,  
+ Fáj neki, hogy barátai  
+ vele csak így bánnak.
+
+,Jöjjön, aki béna,  
+ jöjjön, aki sánta,  
+ Hívjatok be minden szegényt  
+ az én lakomámra!’’
+
+Hív az Atya engem,  
+ hív az Atya téged,  
+ Fogadjuk el nagy örömmel  
+ e nagy tisztességet!
+
+_Hamar István_
+
 **HIRDETÉSEINK ÉVKÖZI 27. VASÁRNAP**
 
 **2020. október 4-11.**
@@ -30,13 +81,13 @@ Megjelent a Barátok Lapja- plébániai tájékoztató- októberi száma.
 ### Károlyi Amy HIT
 
 Bizonyosabb nekem a repülő koffer  
- mint a fizika tételei  
- valóságosabb Mária mennybemenetele  
- mint a nők egyenjogúsága  
- az én hitem ott végződik  
- ahol a brosúrák elkezdődnek  
- az én hitem ott kezdődik  
- ahol Lázár felkel és jár
+mint a fizika tételei  
+valóságosabb Mária mennybemenetele  
+mint a nők egyenjogúsága  
+az én hitem ott végződik  
+ahol a brosúrák elkezdődnek  
+az én hitem ott kezdődik  
+ahol Lázár felkel és jár
 
 HIRDETÉSEINK ÉVKÖZI 26. VASÁRNAP
 
