@@ -15,7 +15,7 @@ title: Hirdetéseink
 
 **Jövő vasárnap 15 óra 30 perctől horvát nyelvű rózsafüzér imádság lesz templomunkban. 16 órakor horvát nyelvű szentmisét mond Barics Gábriel atya. Természetesen a plébániai szentmise 17 órakor kezdődik majd.**
 
-**Jövő vasárnap a 17 órai szentmisében a Szeráfi Kórus teljesít zenei szolgálatot, Nagy Ernő karnagy űr vezetésével.**
+**Jövő vasárnap a 17 órai szentmisében a Szeráfi Kórus teljesít zenei szolgálatot, Nagy Ernő karnagy úr vezetésével.**
 
 **Jövő vasárnap a missziók javára lesz országos templomi gyűjtés.**
 
