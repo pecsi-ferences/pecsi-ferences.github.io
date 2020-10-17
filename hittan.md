@@ -13,6 +13,14 @@ title: Hittan
 
 **A Plébános**
 
+A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.OKTÓBER 18.
+
+**2084** Isten úgy mutatja meg magát, hogy emlékeztet mindenható, jóakaratú és szabadító tettére annak történelmében, akihez szól: "Én (...), aki kivezettelek téged Egyiptom földjéről, a szolgaság házából" (MTörv 5,6). Az első szó tartalmazza a Törvény első parancsolatát: "Uradat, Istenedet féljed, és neki szolgálj (...). Ne menjetek idegen istenek után." (MTörv 6,13--14) Isten első fölszólítása és jogos követelése, hogy az ember fogadja el és imádja Őt.
+
+**2085** Az egy és igaz Isten elsősorban a maga dicsőségét nyilatkoztatja ki Izraelnek. Az ember hivatásának és igazságának kinyilatkoztatása Isten kinyilatkoztatásához kötődik. Az ember hivatása, hogy kinyilvánítsa Istent egy olyan cselekvésmóddal, ami megfelel "Isten képére és hasonlóságára" teremtett voltának (Ter 1,26):
+
+Nem lesz soha más Isten, ó Trifón, és nem is volt kezdettől fogva (...) rajta kívül, aki megteremtette és elrendezte a mindenséget. Mi nem gondoljuk, hogy a mi Istenünk különbözik a tiétektől. Ő ugyanaz, mint aki atyáitokat kihozta Egyiptomból "hatalmas kézzel és kiterjesztett karral". Nem más Istenben reménykedünk -- hiszen nincsen --, hanem ugyanabban, akiben ti reménykedtek, Ábrahám, Izsák, Jákob Istenében.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.október 11.**
 
 **1266** A legszentebb Szentháromság a megkereszteltnek a megszentelő kegyelmet, a megigazulás kegyelmét adja:
