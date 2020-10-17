@@ -3,6 +3,50 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 29. VASÁRNAP**
+
+**2020. október 18-25.**
+
+**Ma van a missziós vasárnap. Ezen a vasárnapon egyházunkban a missziók javára gyűjtünk.**
+
+**Ma 15 óra 30 perctől horvát nyelvű rózsafüzér imádság lesz templomunkban. 16 órakor horvát nyelvű szentmisét mond Barics Gábriel atya.**
+
+**Ma a 17 órakor kezdődő szentmisében Nagy Ernő karnagy úr vezetésével a Szeráfi Kórus teljesít ének-zenei szolgálatot.**
+
+**Jövő vasárnap 18 órakor a Pécsi Székesegyházban Dr. Udvardy György veszprémi érsek, pécsi apostoli kormányzó diákonussá szenteli Asztalos Gábort, Dr. Kovács Tibort, László Pétert és Priskin Zsoltot. Imádkozzunk egyházmegyénk új állandó diákonusaiért!**
+
+A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
+
+A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért-már most vihetünk nyomtatványt a templomból.
+
+Jövő évi naptár, kalendárium a sekrestyében már kapható.
+
+**Az adópénz imája**
+
+Uram, köszönöm,  
+ hogy földi hazát, népet adtál, ahova tartozhatok.  
+ Köszönöm,  
+ hogy hazám, népem vonásait magamon hordhatom  
+ és erről felismerhető vagyok.  
+ Köszönöm,  
+ hogy hazám, népem szolgálatára állítasz, küldesz.  
+ Köszönöm,  
+ hogy értéket, lehetőségeket, képességeket  
+ adtál nekem ehhez.  
+ Kérlek, add,  
+ hogy értékeimet és a lehetőségeket  
+ tisztán felhasználva  
+ lehessek hazámnak, népemnek a javára.  
+ Add, hogy  
+ – bár gyakran nem látom tökéletesnek –,  
+ veled együtt szeressem hazámat, népemet;  
+ ugyanakkor az érte való tevékenykedés közben  
+ el ne feledkezzek rólad, és országodról,  
+ ahova hazavárod minden nép gyermekeit,  
+ hogy veled együtt örvendezhessünk.
+
+_Ámen._
+
 **HIRDETÉSEINK ÉVKÖZI 28. VASÁRNAP**
 
 **2020. október 11-18.**
