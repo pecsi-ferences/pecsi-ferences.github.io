@@ -3,6 +3,99 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK SZENT MÓR FŐÜNNEPÉN**
+
+**2020. október 25 - november 1.**
+
+**Ma 18 órakor a Pécsi Székesegyházban Dr. Udvardy György veszprémi érsek, pécsi apostoli kormányzó diákonussá szenteli Dr. Kovács Tibort, László Pétert és Priskin Zsoltot. Imádkozzunk egyházmegyénk új állandó diákonusaiért!**
+
+A hagyományoknak megfelelően október hónapban- hétfőtől-péntekig- a szentmise előtt rózsafüzért, a szentmise után pedig litániát imádkozunk a templomban.
+
+A november hónapban esedékes közös szentmisékre- elhunyt testvéreinkért -vihetünk nyomtatványt a templomból.
+
+Jövő évi naptár, kalendárium a sekrestyében már kapható.
+
+Múlt vasárnap a missziók javára volt gyűjtés egyházunkban. Templomunkban 94 600 forint gyűlt össze erre a célra. Isten áldja az adakozókat!
+
+Jövő vasárnap Mindenszentek Parancsolt Főünnepe lesz egyházunkban. Templomunkban 8 órakor és 17 órakor lesznek a plébánia szentmisék. 18 órakor pedig a Házas Hétvége mozgalom elhunytjaiért mutatunk be szentmisét.
+
+Túrmezei Erzsébet
+
+Pótvizsga szeretetből
+
+A Mester nagy iskolájában  
+ Ma szeretetből pótvizsgáztam  
+ Tanítóm előtt remegve álltam.
+
+Az első vizsgán én elbuktam,  
+ A tételt bár kívülről tudtam,  
+ De gyakorlatilag azt előadni nem tudtam.
+
+Szerettem én ki engem szeret,  
+ Minden jó embert, akit csak lehet,  
+ De az ellenségemet?!
+
+Aki rágalmaz, kinevet?  
+ Ad mindenféle csúf nevet,  
+ Gyaláz és megaláz engemet?
+
+Ilyet nem tudok szeretni: – Nem!  
+ És ezt húztam ki, ez volt a tételem.  
+ Hogy ellenségemet is szeressem.
+
+Szereted? – Kérdezte tanárom,  
+ Az én Mesterem és Megváltóm.  
+ Nem tudom! – Hiába próbálom.
+
+Szelíden mondta, de erélyesen:  
+ Pótvizsgára mész! És ha mégsem  
+ Tanulod meg, megbuksz egészen.
+
+A szeretet nehéz tétel.  
+ A legtöbben ebben buknak el,  
+ Mert aki bánt, azt is szeretnünk kell.
+
+De Mesterem tovább tanított,  
+ Különórára hívott,  
+ Szeretetével sokat kivívott.
+
+Mutatta kezén, lábán a sebet,  
+ Hogy mennyit tehet a szeretet,  
+ Eltűrni a kereszt-szegeket.
+
+Eltűrni a gúnyt, gyalázatot,  
+ Töviskoronát, nehéz bánatot.  
+ A dárdaszúrást, mit értem kapott.
+
+Megrendültem egész szívemben.  
+ Hát a szeretet ilyen végtelen?  
+ Tanítóimtól tanulni kezdtem.
+
+Megnyerheted vele úgy lehet,  
+ Hogy ő is megtér, hogy ő is szeret,  
+ Ha látja a te szeretetedet.
+
+Így tanított, szívem felrázta.  
+ Látta, hogy hajlok a tanításra.  
+ Szeretetét szívembe zárta.
+
+És most pótvizsgáztam belőle,  
+ Ott volt ellenségem is,  
+ Gúnyos megjegyzést kaptam tőle.
+
+De én szeretettel feleltem,  
+ S e szeretettel őt megnyertem,  
+ És a pótvizsgán általmentem.
+
+Tovább tanulok, tovább megyek.  
+ Vannak szeretet egyetemek,  
+ Magasak, mégsem elérhetetlenek.
+
+Mert más tudományt, sokat tanulhatok,  
+ Megcsodálhatnak, úgy vizsgázhatok,  
+ De ha szeretet nincs bennem  
+ Semmi vagyok!
+
 **HIRDETÉSEINK ÉVKÖZI 29. VASÁRNAP**
 
 **2020. október 18-25.**
@@ -24,26 +117,26 @@ Jövő évi naptár, kalendárium a sekrestyében már kapható.
 **Az adópénz imája**
 
 Uram, köszönöm,  
- hogy földi hazát, népet adtál, ahova tartozhatok.  
- Köszönöm,  
- hogy hazám, népem vonásait magamon hordhatom  
- és erről felismerhető vagyok.  
- Köszönöm,  
- hogy hazám, népem szolgálatára állítasz, küldesz.  
- Köszönöm,  
- hogy értéket, lehetőségeket, képességeket  
- adtál nekem ehhez.  
- Kérlek, add,  
- hogy értékeimet és a lehetőségeket  
- tisztán felhasználva  
- lehessek hazámnak, népemnek a javára.  
- Add, hogy  
- – bár gyakran nem látom tökéletesnek –,  
- veled együtt szeressem hazámat, népemet;  
- ugyanakkor az érte való tevékenykedés közben  
- el ne feledkezzek rólad, és országodról,  
- ahova hazavárod minden nép gyermekeit,  
- hogy veled együtt örvendezhessünk.
+hogy földi hazát, népet adtál, ahova tartozhatok.  
+Köszönöm,  
+hogy hazám, népem vonásait magamon hordhatom  
+és erről felismerhető vagyok.  
+Köszönöm,  
+hogy hazám, népem szolgálatára állítasz, küldesz.  
+Köszönöm,  
+hogy értéket, lehetőségeket, képességeket  
+adtál nekem ehhez.  
+Kérlek, add,  
+hogy értékeimet és a lehetőségeket  
+tisztán felhasználva  
+lehessek hazámnak, népemnek a javára.  
+Add, hogy  
+– bár gyakran nem látom tökéletesnek –,  
+veled együtt szeressem hazámat, népemet;  
+ugyanakkor az érte való tevékenykedés közben  
+el ne feledkezzek rólad, és országodról,  
+ahova hazavárod minden nép gyermekeit,  
+hogy veled együtt örvendezhessünk.
 
 _Ámen._
 
