@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.október 25.
+
+**580** A Törvény tökéletes beteljesítését senki más nem tudta megtenni, csak az isteni Törvényhozó, aki a Törvény alatt a Fiú személyében született.Jézusban a Törvény már nem kőtáblákra írtan jelenik meg, hanem a Szolga "bensejében" és "szívében" (Jer 31,33), aki, mivel "igazságban hirdet ítéletet" (Iz 42,3), "a nép szövetsége" (Iz 42,6) lett. Jézus beteljesíti a Törvényt egészen odáig, hogy magára veszi "a Törvény átkát", melyet azok vontak magukra, "akik nem maradtak meg mindabban, amik írva vannak, hogy megtegyék", mivel Krisztus halála "azoknak a törvényszegéseknek megváltására történt, melyeket az első szövetségben követtek el" (Zsid 9,15).
+
 A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.OKTÓBER 18.
 
 **2084** Isten úgy mutatja meg magát, hogy emlékeztet mindenható, jóakaratú és szabadító tettére annak történelmében, akihez szól: "Én (...), aki kivezettelek téged Egyiptom földjéről, a szolgaság házából" (MTörv 5,6). Az első szó tartalmazza a Törvény első parancsolatát: "Uradat, Istenedet féljed, és neki szolgálj (...). Ne menjetek idegen istenek után." (MTörv 6,13--14) Isten első fölszólítása és jogos követelése, hogy az ember fogadja el és imádja Őt.
