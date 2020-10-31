@@ -13,6 +13,18 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.november 1.**
+
+**1716** A boldogságok Jézus prédikációjának a középpontjában állnak. Meghirdetésük azokat az ígéreteket ismétli, amelyeket a választott nép Ábrahám óta kapott. Jézus tökéletessé teszi az ígéreteket azáltal, hogy nem csupán földi, hanem mennyei boldogságra irányítja őket.
+
+**1717** A boldogságok Jézus Krisztus arcát festik meg, leírják az Ő szeretetét; kifejezik az Ő szenvedésének és föltámadásának dicsőségéhez társult hívők hivatását; megvilágítják a keresztény élet jellegzetes cselekedeteit és magatartásformáit; váratlanok az ígéretek, amelyek a szorongatások közepette fönntartják a reményt; a tanítványoknak áldásokat és kissé homályosan megígért jutalmakat hirdetnek; Szűz Mária és valamennyi szent életében elkezdődött megvalósulásuk.
+
+**1718** A boldogságok megfelelnek a természetes boldogságvágynak. Ez a vágy isteni eredetű: Isten oltotta az ember szívébe, hogy az embert magához vonzza, mert egyedül csak Ő képes megnyugtatni az emberi szívet.
+
+"Kétségkívül mindannyian boldogok akarunk lenni, és nincs ember, aki tagadná ezt az állítást, már azt megelőzően, hogy tudná teljes tartalmát."
+
+"Mennyire kereslek tehát Téged, Uram? Amikor ugyanis Téged, az én Istenemet kereslek, a boldog életet keresem. Kereslek téged, hogy éljen a lelkem. Testem ugyanis a lelkemből él, a lelkem pedig belőled."
+
 A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.október 25.
 
 **580** A Törvény tökéletes beteljesítését senki más nem tudta megtenni, csak az isteni Törvényhozó, aki a Törvény alatt a Fiú személyében született.Jézusban a Törvény már nem kőtáblákra írtan jelenik meg, hanem a Szolga "bensejében" és "szívében" (Jer 31,33), aki, mivel "igazságban hirdet ítéletet" (Iz 42,3), "a nép szövetsége" (Iz 42,6) lett. Jézus beteljesíti a Törvényt egészen odáig, hogy magára veszi "a Törvény átkát", melyet azok vontak magukra, "akik nem maradtak meg mindabban, amik írva vannak, hogy megtegyék", mivel Krisztus halála "azoknak a törvényszegéseknek megváltására történt, melyeket az első szövetségben követtek el" (Zsid 9,15).
