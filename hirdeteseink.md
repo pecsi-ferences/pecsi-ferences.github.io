@@ -3,6 +3,46 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK MINDENSZENTEK FŐÜNNEPÉN**
+
+**2020.november 1-8.**
+
+Ma Mindenszentek Parancsolt Főünnepe van egyházunkban. Templomunkban 8 órakor és 17 órakor lesznek a plébánia szentmisék. 18 órakor pedig a Házas Hétvége mozgalom elhunytjaiért mutatunk be szentmisét.
+
+Hétfőn- Halottak napján- 17 órakor mutatunk be szentmisét templomunkban.
+
+Szombaton 10 órakor bérmálási próba lesz templomunkban.
+
+Jövő vasárnap 10 órakor bérmálási szentmise lesz templomukban.
+
+Jövő vasárnap-mivel a hónap második vasárnapja- 16 órakor szentségimádási óra lesz templomunkban.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+**SÍK SÁNDOR**
+
+**Emberség**
+
+Egy nap, mint a rest csiga, mászik,  
+ Zivatarként zúg el a másik.  
+ Mindegy, csak ugyanoda érnek.  
+ Mit szólna ma tegnapi éned?
+
+Amit éltél tisztes erényben,  
+ Csupa félség s ösztön a fényben.  
+ S ami pelyvád hull ki a rostán,  
+ Nem lesz színig az se gonosz tán.
+
+Mindegy, tovazizzen az élet:  
+ Eszmélsz, s már itt az ítélet.  
+ Szíved, agyad ostoba röggé...  
+ Magad igy vagy amúgy, de örökké.
+
+Nincs szánva szemednek a holnap:  
+ Ott légy igaz ember, ahol vagy.  
+ Most tedd, amit adatik tenned:  
+ Az Isten rügyezik benned.
+
 **HIRDETÉSEINK SZENT MÓR FŐÜNNEPÉN**
 
 **2020. október 25 - november 1.**
@@ -24,77 +64,77 @@ Túrmezei Erzsébet
 Pótvizsga szeretetből
 
 A Mester nagy iskolájában  
- Ma szeretetből pótvizsgáztam  
- Tanítóm előtt remegve álltam.
+Ma szeretetből pótvizsgáztam  
+Tanítóm előtt remegve álltam.
 
 Az első vizsgán én elbuktam,  
- A tételt bár kívülről tudtam,  
- De gyakorlatilag azt előadni nem tudtam.
+A tételt bár kívülről tudtam,  
+De gyakorlatilag azt előadni nem tudtam.
 
 Szerettem én ki engem szeret,  
- Minden jó embert, akit csak lehet,  
- De az ellenségemet?!
+Minden jó embert, akit csak lehet,  
+De az ellenségemet?!
 
 Aki rágalmaz, kinevet?  
- Ad mindenféle csúf nevet,  
- Gyaláz és megaláz engemet?
+Ad mindenféle csúf nevet,  
+Gyaláz és megaláz engemet?
 
 Ilyet nem tudok szeretni: – Nem!  
- És ezt húztam ki, ez volt a tételem.  
- Hogy ellenségemet is szeressem.
+És ezt húztam ki, ez volt a tételem.  
+Hogy ellenségemet is szeressem.
 
 Szereted? – Kérdezte tanárom,  
- Az én Mesterem és Megváltóm.  
- Nem tudom! – Hiába próbálom.
+Az én Mesterem és Megváltóm.  
+Nem tudom! – Hiába próbálom.
 
 Szelíden mondta, de erélyesen:  
- Pótvizsgára mész! És ha mégsem  
- Tanulod meg, megbuksz egészen.
+Pótvizsgára mész! És ha mégsem  
+Tanulod meg, megbuksz egészen.
 
 A szeretet nehéz tétel.  
- A legtöbben ebben buknak el,  
- Mert aki bánt, azt is szeretnünk kell.
+A legtöbben ebben buknak el,  
+Mert aki bánt, azt is szeretnünk kell.
 
 De Mesterem tovább tanított,  
- Különórára hívott,  
- Szeretetével sokat kivívott.
+Különórára hívott,  
+Szeretetével sokat kivívott.
 
 Mutatta kezén, lábán a sebet,  
- Hogy mennyit tehet a szeretet,  
- Eltűrni a kereszt-szegeket.
+Hogy mennyit tehet a szeretet,  
+Eltűrni a kereszt-szegeket.
 
 Eltűrni a gúnyt, gyalázatot,  
- Töviskoronát, nehéz bánatot.  
- A dárdaszúrást, mit értem kapott.
+Töviskoronát, nehéz bánatot.  
+A dárdaszúrást, mit értem kapott.
 
 Megrendültem egész szívemben.  
- Hát a szeretet ilyen végtelen?  
- Tanítóimtól tanulni kezdtem.
+Hát a szeretet ilyen végtelen?  
+Tanítóimtól tanulni kezdtem.
 
 Megnyerheted vele úgy lehet,  
- Hogy ő is megtér, hogy ő is szeret,  
- Ha látja a te szeretetedet.
+Hogy ő is megtér, hogy ő is szeret,  
+Ha látja a te szeretetedet.
 
 Így tanított, szívem felrázta.  
- Látta, hogy hajlok a tanításra.  
- Szeretetét szívembe zárta.
+Látta, hogy hajlok a tanításra.  
+Szeretetét szívembe zárta.
 
 És most pótvizsgáztam belőle,  
- Ott volt ellenségem is,  
- Gúnyos megjegyzést kaptam tőle.
+Ott volt ellenségem is,  
+Gúnyos megjegyzést kaptam tőle.
 
 De én szeretettel feleltem,  
- S e szeretettel őt megnyertem,  
- És a pótvizsgán általmentem.
+S e szeretettel őt megnyertem,  
+És a pótvizsgán általmentem.
 
 Tovább tanulok, tovább megyek.  
- Vannak szeretet egyetemek,  
- Magasak, mégsem elérhetetlenek.
+Vannak szeretet egyetemek,  
+Magasak, mégsem elérhetetlenek.
 
 Mert más tudományt, sokat tanulhatok,  
- Megcsodálhatnak, úgy vizsgázhatok,  
- De ha szeretet nincs bennem  
- Semmi vagyok!
+Megcsodálhatnak, úgy vizsgázhatok,  
+De ha szeretet nincs bennem  
+Semmi vagyok!
 
 **HIRDETÉSEINK ÉVKÖZI 29. VASÁRNAP**
 
