@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.NOVEMBER 8.**
+
+**1806** Az okosság az az erény, amely a gyakorlati értelmet fölkészíti arra, hogy minden helyzetben fölismerje igazi javunkat, és annak megtételéhez megtalálja a helyes eszközöket. "Az okos vigyáz lépéseire" (Péld 14,15). "Legyetek hát okosak és éberek, és imádkozzatok" (1Pt 4,7). Az okosság a "megtehető dolgok helyes szabálya" -- írja Szent Tamás Arisztotelészt követve. Az okosságot nem szabad összetéveszteni sem a félénkséggel vagy a félelemmel, sem a kétszínűséggel vagy a szimulálással. Auriga virtutum, \`az erények kocsisának' nevezzük: szabályt és mértéket szabva irányítja a többi erényeket. Az okosság vezérli közvetlenül a lelkiismeret ítéletét. Az okos ember ezt az ítéletet követve dönti el és rendezi el magatartását. Ennek az erénynek köszönhetően tudjuk tévedés nélkül alkalmazni az erkölcsi alapelveket konkrét esetekben, és győzzük le a teendő jó és a kerülendő rossz körüli kétségeket.
+
+**1835** Az okosság teszi készségessé a gyakorlati értelmet, hogy igaz javunkat minden körülmények között fölismerjük és az eléréséhez szükséges helyes eszközöket megválasszuk.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.november 1.**
 
 **1716** A boldogságok Jézus prédikációjának a középpontjában állnak. Meghirdetésük azokat az ígéreteket ismétli, amelyeket a választott nép Ábrahám óta kapott. Jézus tökéletessé teszi az ígéreteket azáltal, hogy nem csupán földi, hanem mennyei boldogságra irányítja őket.
