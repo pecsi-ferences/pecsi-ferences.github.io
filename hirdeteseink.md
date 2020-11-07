@@ -3,6 +3,41 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 32. VASÁRNAP- 2020.NOVEMBER 8-15.**
+
+Ma 10 órakor bérmálási szentmise lesz templomukban.
+
+Ma - mivel a hónap második vasárnapja- 16 órakor szentségimádási óra lesz templomunkban.
+
+Jövő vasárnap a 17 órai szentmisén a Szeráfi Kórus teljesít ének-zenei szolgálatot Nagy Ernő karnagy úr vezetésével.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+A Barátok Lapja plébániai tájékoztató hétfőtől lesz elérhető a templomban.
+
+Dsida Jenő
+
+**TE HARANGOZOL**
+
+Hunyd be a szemedet a dombtetőn.  
+ Megindulsz lassan az űrben, a kék  
+ levegőben, az őszi lombok hervadt  
+ szagában. Előbb csöndes úszással,  
+ lengéssel jobbra-balra, aztán szédületes  
+ gyorsasággal, káprázatos ívben  
+ messzire lendülsz, titokzatos szálak  
+ tartanak, azokon himbálózol  
+ édesen, fájón, rettenetesen.  
+ És delet kongat a falu harangja,  
+ és minden kondulással egyre biztosabban  
+ érzed, hogy te vagy a harang nyelve,  
+ és az egész mindenség kék burája:  
+ egy óriás harang. És öblös kongással,  
+ testeddel, véreddel, egész valóddal  
+ te harangozol az egész világnak.
+
+(1929)
+
 **HIRDETÉSEINK MINDENSZENTEK FŐÜNNEPÉN**
 
 **2020.november 1-8.**
@@ -24,24 +59,24 @@ Jövő évi naptár, kalendárium a sekrestyében kapható.
 **Emberség**
 
 Egy nap, mint a rest csiga, mászik,  
- Zivatarként zúg el a másik.  
- Mindegy, csak ugyanoda érnek.  
- Mit szólna ma tegnapi éned?
+Zivatarként zúg el a másik.  
+Mindegy, csak ugyanoda érnek.  
+Mit szólna ma tegnapi éned?
 
 Amit éltél tisztes erényben,  
- Csupa félség s ösztön a fényben.  
- S ami pelyvád hull ki a rostán,  
- Nem lesz színig az se gonosz tán.
+Csupa félség s ösztön a fényben.  
+S ami pelyvád hull ki a rostán,  
+Nem lesz színig az se gonosz tán.
 
 Mindegy, tovazizzen az élet:  
- Eszmélsz, s már itt az ítélet.  
- Szíved, agyad ostoba röggé...  
- Magad igy vagy amúgy, de örökké.
+Eszmélsz, s már itt az ítélet.  
+Szíved, agyad ostoba röggé...  
+Magad igy vagy amúgy, de örökké.
 
 Nincs szánva szemednek a holnap:  
- Ott légy igaz ember, ahol vagy.  
- Most tedd, amit adatik tenned:  
- Az Isten rügyezik benned.
+Ott légy igaz ember, ahol vagy.  
+Most tedd, amit adatik tenned:  
+Az Isten rügyezik benned.
 
 **HIRDETÉSEINK SZENT MÓR FŐÜNNEPÉN**
 
