@@ -3,6 +3,118 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 33. VASÁRNAP- 2020.NOVEMBER 15-22.**
+
+**Ma a szegények világnapja van egyházunkban.**
+
+A kialakult járványügyi helyzetre való tekintettel, ma a 17 órai szentmisén a Szeráfi Kórus nem teljesít szolgálatot.
+
+Szerdán a 17 órai plébánia szentmise után -18 órakor- horvát nyelvű szentmise lesz templomunkban. A szentmisét Vlado Skinjaric pápai prelátus, podravska moslovinai plébános és Egri József sellyei esperes-plébános celebrálják Vukovár hősi halottjaiért.
+
+Jövő szombaton 17 órakor német-magyar nyelvű szentmisét celebrál templomunkban Berecz Tibor atya.
+
+Jövő vasárnap lesz Krisztus Király főünnepe. A bérmálásra készülő hittanosaink bevonásával és hitoktatónk közreműködésével-16 óra 30 perctől -szentségimádást tartunk a templomban.
+
+Jövő vasárnap országos templomi gyűjtés lesz a Karitász javára.
+
+Felhívjuk a kedves testvérek figyelmét, hogy a Szent Mór Katolikus Iskola szeretettel várja a tanulni vágyó gyerekek érdeklődést, jelentkezését.
+
+Megjelent a Barátok Lapja- plébánai tájékoztató novemberi száma.
+
+[https://pecsi-ferences.github.io/assets/pdfs/2020-11.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-11.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-11.pdf")
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+**Talentumok és gírák**
+
+Uram, én nem tudom, hány gírát kaptam,
+
+mikor szavadra elindultam,
+
+hogy kincseiddel jól sáfárkodjam,
+
+s mindenek javára megszaporítsam.
+
+Te osztogattál hajlamokat és képességeket,
+
+Te tudtad, mindabból, mi bennem szunnyad,
+
+mint halvány sejtelem, mennyei illat,
+
+mennyiféle kibontakozás lehet:
+
+láthatatlan és látható valóság,
+
+tér és idő,
+
+élettelen és élő világ,
+
+gének számtalan kombinációja,
+
+örökletesség és környezet,
+
+emberi életutak
+
+mind-mind kezedben vannak.
+
+Személyre szabott, s folytonosan meg-megújuló
+
+elgondolásod van felőlünk
+
+s nincs olyan élethelyzetünk,
+
+melyben ne lenne hozzánk éltető, jó szavad.
+
+S vessünk bár rémséges bukfenceket
+
+mind utolsó leheletéig a testnek,
+
+Atyánk maradsz, s megtartasz gyermekeidnek.
+
+Javaidat eltékozoltam,
+
+sok lehetőséget, sok szent kairoszt
+
+elszalasztottam…
+
+Törlesztenék, de lásd, fogy az idő,
+
+és adósságom napról napra nő…
+
+A jó pásztor az elveszett juhot
+
+addig keresi, mígnem megleli,
+
+az Atya tékozló s megtérő fiát magához öleli…
+
+Én elszámolni nem tudok.
+
+Bocsáss meg, ..., s tégy velem, amint akarod!
+
+Erdélyi Csaba
+
+A Magyar Katolikus Püspöki Konferencia körlevele Árpád-házi Szent Erzsébet ünnepére (2020)
+
+Kedves Testvérek!
+
+Megrendítő volt 2020. március 27-én hallani Ferenc pápa szavait, amelyeket az üres Szent Péter téren nemcsak a keresztény hívekhez, hanem minden emberhez intézett: „a lehető legnagyobb sebességgel robogtunk előre, úgy éreztük, erősek és mindenre képesek vagyunk. Epekedtünk a haszonra, engedtük, hogy felemésszenek minket a tárgyak és megrészegítsen a sietség. (…) Folytattunk mindent rendíthetetlenül, és úgy gondoltuk, örökre egészségesek maradunk egy beteg világban.” Most, amikor Európát és hazánkat a koronavírus járvány második hulláma sújtja, azt érezhetjük, hogy Szentatyánk figyelmeztető szavai semmit sem veszítettek aktualitásukból. Sőt, Szent Erzsébet, a szolgáló szeretet szentjének ünnepe arra hív mindannyiunkat, hogy az Árpádházi királylány példája nyomán még inkább elgondolkodjunk e szavakon és egymás iránti felelősségünkön.
+
+A kor, amelyben Szent Erzsébet született és a szeretet példáját adta, számos párhuzamot mutat fel napjainkkal. A virágzó középkor idején Európa számos országában sokan nagyon meggazdagodtak és hivalkodtak is vagyonukkal, olyan épületeket emeltek, amelyek előtt máig csodálattal állunk meg, miközben egyre többen süllyedtek nyomorba és nélkülözték az élethez szükséges legelemibb feltételeket is. Ahogy néhány évvel korábban Szent Ferenc elhagyta gazdag édesapja házát, lemondott vagyonáról és lovagi álmairól, úgy az ő példáját követve Szent Erzsébet is elhagyta a türingiai őrgrófi udvart, hogy Jézus tanítása szerint a szegények és betegek szolgálatának szentelje életét. Nyitott szemmel járt, odafigyelt azokra, akiktől sokan borzadva fordították el a tekintetüket.
+
+Életének talán egy kevésbé ismert eseménye, hogy amikor egy leprás koldus érkezett a várhoz, Erzsébet saját kezűleg fürdettette meg és kötözte be sebeit, és mivel a sok beteg miatt máshol már nem volt hely, saját hitvesi ágyába fektetette le. Férje, Lajos őrgróf, aki általában támogatta őt és megvédte irigyeitől, ezt már túlzásnak tartotta. Feldúlva szaladt a szobába, felrántotta az ágyról a takarót, alatta viszont magát a megfeszített Krisztust látta – és térdre borulva adott hálát és kérte Erzsébet bocsánatát.
+
+A 2020-as világjárvány mindannyiunk életére hatással van. Rokonaink és barátaink veszítik el egyik napról a másikra munkájukat és kerül veszélybe megélhetésük, idősek és magányosak maradnak még inkább egyedül, mert senki sem meri felkeresni őket, sokan félve és rettegve zárják magukra az ajtót. Ezért sokkal nagyobb feladat és felelősség hárul azokra, akik a gyógyítás és a felebaráti szeretet cselekedeteit gyakorolják, az orvosokra, ápolókra, szociális munkásokra és önkéntesekre. Így ír erről Ferenc pápa a Szegények világnapjára írott üzenetében, amikor a járvány idején a felebaráti szeretet gyakorlásának fontosságára hívja fel a figyelmet: „A kéz kinyújtása egy jel: olyan jel, amely közvetlenül a közelségre, a szolidaritásra, a szeretetre utal. Hány és hány kinyújtott kezet láthattunk ezekben a hónapokban (…): Az orvos kinyújtott kezét, aki minden beteggel törődik és keresi a megfelelő gyógymódot. A nővér és ápoló kinyújtott kezét, aki jóval a munkaidején túl is ápolja a betegeket. (…) Az önkéntes kinyújtott kezét, aki segíti az utcán élőket és azokat, akiknek ugyan van otthonuk, de nincs mit enniük. Az emberek egymás felé kinyújtott kezét, akik az alapvető szolgáltatások biztosítása és a biztonság fenntartása érdekében dolgoznak.”
+
+Szent Erzsébet ünnepe arra emlékeztet minket, hogy ebben a segítségnyújtásban mi magunk is részt vehetünk, amikor jövő vasárnap anyagi támogatásunkkal azok munkáját könnyítjük meg, akik életüket embertársaik támogatására, a rászorulók és a betegek segítésére és gyógyítására szentelik, és teszik nap mint nap kockára. Az egyházi szeretetszolgálatokra és az idén 90 éves Katolikus Karitászra 2020-ban nagyobb teher hárul, mint korábban bármikor. Szent Erzsébet példája azt üzeni, hogy munkájukat támogatva mi magunk is, akár szobánk biztonságából is, részesei lehetünk ennek a szolgálatnak, és az ő kezükkel egybefonódva, mi magunk is kinyújthatjuk kezünket a szükséget szenvedők és betegek felé.
+
+„Senki sem menekülhet meg egyedül, önmagában” – tanította 2020. nagyböjtjében Ferenc pápa. Az egyházi év utolsó vasárnapjának, Krisztus Király ünnepének evangéliuma is a szolidaritás fontosságára hívja fel a figyelmünket: éhes voltam és ti ennem adtatok; szomjas voltam, és ti innom adtatok – szól a megdicsőült Jézus a jobbján állókhoz, az üdvösség útjaként állítva eléjük és elénk is a szolgáló szeretet cselekedeteit.
+
+A szeretet cselekedetei nemcsak a rászorultakon segítenek, hanem azokat is gazdagítják, akik szolgálnak, mert ezáltal Krisztushoz válnak hasonlókká. Nem szabad megfeledkeznünk arról sem, hogy az egészséges embernek sok kívánsága van és elegendő erőt érez magában arra, hogy ezeket meg is valósítsa. A betegnek és a nyomorban élőnek, az ínséget szenvedőnek azonban csak egy vágya van: hogy szenvedésétől, bajától megszabaduljon, de tehetsége és lehetősége talán hiányzik ehhez. Szent Erzsébet élete arra sarkall minket, hogy példája szerint és lehetőségeinknek, eszközeinknek megfelelően mi magunk is vegyünk részt a betegek és a szükséget szenvedők ínségének csillapításában, hogy egykor majd Jézus hozzánk is így szóljon: „Jöjjetek, Atyám áldottai, vegyétek birtokba a világ kezdetétől nektek készített országot!”
+
+Kelt Budapesten, 2020. november 15-én
+
+a Magyar Katolikus Püspöki Konferencia
+
 **HIRDETÉSEINK ÉVKÖZI 32. VASÁRNAP- 2020.NOVEMBER 8-15.**
 
 Ma 10 órakor bérmálási szentmise lesz templomukban.
@@ -20,21 +132,21 @@ Dsida Jenő
 **TE HARANGOZOL**
 
 Hunyd be a szemedet a dombtetőn.  
- Megindulsz lassan az űrben, a kék  
- levegőben, az őszi lombok hervadt  
- szagában. Előbb csöndes úszással,  
- lengéssel jobbra-balra, aztán szédületes  
- gyorsasággal, káprázatos ívben  
- messzire lendülsz, titokzatos szálak  
- tartanak, azokon himbálózol  
- édesen, fájón, rettenetesen.  
- És delet kongat a falu harangja,  
- és minden kondulással egyre biztosabban  
- érzed, hogy te vagy a harang nyelve,  
- és az egész mindenség kék burája:  
- egy óriás harang. És öblös kongással,  
- testeddel, véreddel, egész valóddal  
- te harangozol az egész világnak.
+Megindulsz lassan az űrben, a kék  
+levegőben, az őszi lombok hervadt  
+szagában. Előbb csöndes úszással,  
+lengéssel jobbra-balra, aztán szédületes  
+gyorsasággal, káprázatos ívben  
+messzire lendülsz, titokzatos szálak  
+tartanak, azokon himbálózol  
+édesen, fájón, rettenetesen.  
+És delet kongat a falu harangja,  
+és minden kondulással egyre biztosabban  
+érzed, hogy te vagy a harang nyelve,  
+és az egész mindenség kék burája:  
+egy óriás harang. És öblös kongással,  
+testeddel, véreddel, egész valóddal  
+te harangozol az egész világnak.
 
 (1929)
 
