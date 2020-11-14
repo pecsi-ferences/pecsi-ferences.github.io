@@ -13,6 +13,18 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL – 2020.NOVEMBER 15.**
+
+**1880** A társadalom olyan személyek együttese, akik szervesen kapcsolódnak egymáshoz egy mindegyikük fölött álló egységesítő elv alapján. A társadalom, mely egyszerre látható és lelki közösség, az időben maradandó: átveszi a múltat, és előkészíti a jövőt. Általa minden egyes ember "örökössé" válik, "talentumokat" kap, amelyek gazdagítják őt, s melyek gyümölcseit neki gyarapítania kell. Igazságos tehát, hogy mindenkinek ragaszkodnia kell a közösséghez, amelyhez tartozik, és tisztelnie kell azok tekintélyét, akikre a közjó rá van bízva.
+
+**1936** Amikor az ember megszületik erre a világra, nem rendelkezik mindennel, amire szüksége van testi és lelki életének fejlődéséhez. Szüksége van másokra. Különbségek jelennek meg, melyek életkorhoz, testi képességekhez, értelmi és erkölcsi adottságokhoz, gazdasági tevékenységhez és vagyonhoz kötődnek. A talentumok nem egyformán kerülnek szétosztásra.
+
+**1937** E különbségek Isten tervéhez tartoznak, aki azt akarja, hogy mindenki megkapja a másiktól, amire szüksége van, akiknek pedig különleges "talentumai" vannak, osszák meg értékeiket azokkal, akik rászorulnak ezekre. A személyes különbségek nagylelkűségre, jóindulatra, ajándékozásra késztetnek és gyakran köteleznek; serkentik a kultúrákat, hogy egyik a másikat gazdagítsa:
+
+"Oly különbözőképpen osztogatom az erényeket, hogy nem adom mindet egynek, hanem az egyiknek ezt, a másiknak azt adom. (...) Egyiknek a szeretetet, másiknak az igazságosságot, harmadiknak az alázatosságot, a negyediknek az eleven hitet (...). És így adtam az erény sokféle ajándékát és kegyelmét, lelkieket és mulandókat egyaránt annyira változatosan, hogy egyetlen személynek sem adtam meg valamennyit, azért nem, hogy kénytelenek legyetek egymás szeretetével élni (...); úgy akartam, hogy az egyiknek szüksége legyen a másikra, s valamennyien szolgáim legyetek a tőlem kapott kegyelmek és ajándékok osztogatásában."
+
+**2429** Mindenkinek joga van a gazdasági kezdeményezéshez; mindenki törvényesen éljen talentumaival, hogy hozzájáruljon a mindenki javára szolgáló bőség megteremtéséhez, és begyűjtse fáradozásainak méltó gyümölcseit. Mindenki gondoskodjék arról, hogy a törvényes hatalom közjó érdekében hozott rendelkezéseihez igazodjék.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.NOVEMBER 8.**
 
 **1806** Az okosság az az erény, amely a gyakorlati értelmet fölkészíti arra, hogy minden helyzetben fölismerje igazi javunkat, és annak megtételéhez megtalálja a helyes eszközöket. "Az okos vigyáz lépéseire" (Péld 14,15). "Legyetek hát okosak és éberek, és imádkozzatok" (1Pt 4,7). Az okosság a "megtehető dolgok helyes szabálya" -- írja Szent Tamás Arisztotelészt követve. Az okosságot nem szabad összetéveszteni sem a félénkséggel vagy a félelemmel, sem a kétszínűséggel vagy a szimulálással. Auriga virtutum, \`az erények kocsisának' nevezzük: szabályt és mértéket szabva irányítja a többi erényeket. Az okosság vezérli közvetlenül a lelkiismeret ítéletét. Az okos ember ezt az ítéletet követve dönti el és rendezi el magatartását. Ennek az erénynek köszönhetően tudjuk tévedés nélkül alkalmazni az erkölcsi alapelveket konkrét esetekben, és győzzük le a teendő jó és a kerülendő rossz körüli kétségeket.
