@@ -9,7 +9,7 @@ title: Hirdetéseink
 
 A kialakult járványügyi helyzetre való tekintettel, ma a 17 órai szentmisén a Szeráfi Kórus nem teljesít szolgálatot.
 
-Szerdán a 17 órai plébánia szentmise után -18 órakor- horvát nyelvű szentmise lesz templomunkban. A szentmisét Vlado Skinjaric pápai prelátus, podravska moslovinai plébános és Egri József sellyei esperes-plébános celebrálják Vukovár hősi halottjaiért.
+Szerdán a 17 órai plébánia szentmise után -18 órakor- horvát nyelvű szentmise lesz templomunkban. A szentmisét Vlado Skinjaric pápai prelátus, podravska moslovinai plébános és Egri József sellyei esperes-plébános celebrálják Vukovár hősi halottjaiért. **ELMARAD A PROGRAM-2020.NOVEMBER 16.!!!**
 
 Jövő szombaton 17 órakor német-magyar nyelvű szentmisét celebrál templomunkban Berecz Tibor atya.
 
