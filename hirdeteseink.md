@@ -3,6 +3,37 @@ layout: default
 title: Hirdetéseink
 
 ---
+HIRDETÉSEK ÉVKÖZI 34. VASÁRNAP- KRISZTUS KIRÁLY FŐÜNNEPÉN 2020. NOVEMBER 22-29.
+
+Örömmel adunk hírt arról, hogy a héten Ferenc pápa kinevezte Felföldi László atyát pécsi megyéspüspökké. László püspök nyilatkozott a Vatikáni Rádiónak. Ezt a nyilatkozatot, beszélgetést ezen a linken érhetik el: [https://www.vaticannews.va/hu/egyhaz/news/2020-11/interju-felfoldi-laszlo-kinevezett-pecsi-puspokkel.html](https://www.vaticannews.va/hu/egyhaz/news/2020-11/interju-felfoldi-laszlo-kinevezett-pecsi-puspokkel.html "https://www.vaticannews.va/hu/egyhaz/news/2020-11/interju-felfoldi-laszlo-kinevezett-pecsi-puspokkel.html")
+
+Ma országos templomi gyűjtés van a Karitász javára.
+
+Ma van Krisztus Király főünnepe. A bérmálásra készülő hittanosaink bevonásával és hitoktatónk közreműködésével-16 óra 30 perctől -szentségimádást tartunk a templomban.
+
+Jövő vasárnap - Advent 1. Vasárnapján- 16 órakor horvát nyelvű szentmisét mutat be Barics Gábriel atya templomunkban. A plébániai szentmise 17 órakor kezdődik.
+
+Felhívjuk a kedves testvérek figyelmét, hogy a Szent Mór Katolikus Iskola szeretettel várja a tanulni vágyó gyerekek érdeklődést, jelentkezését.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+**REMÉNYIK SÁNDOR : Valaki értem imádkozott**
+
+Mikor a bűntől meggyötörten  
+ A lelkem terheket hordozott  
+ Egyszer csak könnyebb lett a lelkem  
+ Valaki értem imádkozott.
+
+Valaki értem imádkozott,  
+ Talán apám, anyám régen?  
+ Talán más is, aki szeret.  
+ Jó barátom vagy testvérem?
+
+Én nem tudom, de áldom Istent,  
+ Ki nékem megváltást hozott,  
+ És azt, aki értem csak  
+ Egyszer is imádkozott.
+
 **HIRDETÉSEINK ÉVKÖZI 33. VASÁRNAP- 2020.NOVEMBER 15-22.**
 
 **Ma a szegények világnapja van egyházunkban.**
