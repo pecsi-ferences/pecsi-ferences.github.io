@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.NOVEMBER 22.**
+
+**678** Jézus a próféták és Keresztelő János után prédikációjában meghirdette az utolsó nap ítéletét. Akkor napvilágra kerül majd minden egyes ember élete és a szívek titkai. Akkor elítéltetik a bűnös hitetlenség, mely semmibe vette az Istentől fölajánlott kegyelmet. A felebarátok iránti magatartás fogja megmutatni a kegyelem és az isteni szeretet elfogadását vagy elutasítását. Az utolsó napon Jézus fogja mondani: "Amikor egynek a legkisebb testvéreim közül megtettétek, nekem tettétek meg" (Mt 25,40).
+
+**679** Krisztus az örök élet Ura. Az emberek cselekedetei és szíve fölötti végső ítélet teljes joga Őt illeti mint a világ Megváltóját. E jogot keresztje által "szerezte meg". Az Atya is "minden ítéletet átadott a Fiúnak" (Jn 5,22).A Fiú azonban nem azért jött, hogy ítéljen, hanem hogy üdvözítsen,s hogy ajándékozza az életet, mely Őbenne van. A kegyelem visszautasítása által ebben az életben mindenki már elítéli önmagát, cselekedetei szerint kapja meg jutalmát és örökre elkárhoztathatja magát a szeretet Lelkének visszautasításával.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL – 2020.NOVEMBER 15.**
 
 **1880** A társadalom olyan személyek együttese, akik szervesen kapcsolódnak egymáshoz egy mindegyikük fölött álló egységesítő elv alapján. A társadalom, mely egyszerre látható és lelki közösség, az időben maradandó: átveszi a múltat, és előkészíti a jövőt. Általa minden egyes ember "örökössé" válik, "talentumokat" kap, amelyek gazdagítják őt, s melyek gyümölcseit neki gyarapítania kell. Igazságos tehát, hogy mindenkinek ragaszkodnia kell a közösséghez, amelyhez tartozik, és tisztelnie kell azok tekintélyét, akikre a közjó rá van bízva.
