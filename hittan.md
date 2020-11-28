@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.NOVEMBER 29.**
+
+**524** Az adventi liturgia évenként visszatérő ünneplésével az Egyház aktualizálja ezt a messiásvárást; ezáltal a hívők részt vesznek a Megváltó első eljövetelének hosszú előkészítésében, és megújítják magukban a vágyat második eljövetele iránt.Az előfutár születésének és vértanúságának ünnepén az Egyház egyesül az ő vágyával: "Neki növekednie kell, nekem pedig kisebbednem" (Jn 3,30).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.NOVEMBER 22.**
 
 **678** Jézus a próféták és Keresztelő János után prédikációjában meghirdette az utolsó nap ítéletét. Akkor napvilágra kerül majd minden egyes ember élete és a szívek titkai. Akkor elítéltetik a bűnös hitetlenség, mely semmibe vette az Istentől fölajánlott kegyelmet. A felebarátok iránti magatartás fogja megmutatni a kegyelem és az isteni szeretet elfogadását vagy elutasítását. Az utolsó napon Jézus fogja mondani: "Amikor egynek a legkisebb testvéreim közül megtettétek, nekem tettétek meg" (Mt 25,40).
