@@ -3,6 +3,54 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ADVENT 1. VASÁRNAPJÁN**
+
+**2020.NOVEMBER 29 -DECEMBER 6.**
+
+Ma- Advent 1.Vasárnapján - 16 órától horvát nyelvű szentmisét mutat be Barics Gábriel atya templomunkban. A plébániai szentmise 17 órakor kezdődik.
+
+Múlt héten a Katolikus Karitász javára volt országos templomi gyűjtés. Templomunkban 98 230 forint gyűlt össze eme gyűjtés kapcsán. A Jóisten fizesse meg az adakozók jóságát!
+
+Jövő vasárnap advent 2. vasárnapja lesz.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+Reményik Sándor
+
+**Az eljövendőt várom...**
+
+Már ledőlnek a lelkem tornyai,  
+ Miket a hiúság emelt,  
+ És porrá teszek minden cifra házat,  
+ És pusztasággá teszem e kebelt,  
+ Hol főlehajtva bujdos az alázat.  
+ E kongó pusztaságban, végtelen,  
+ Csillagtalan, adventi éjeken  
+ Várom az eljövendőt.
+
+A költőt.  
+ Az egyetlent, az igazit, nagyot,  
+ Akinek én csak szolgája vagyok,  
+ Aki majd tűzzel, lélekkel keresztel  
+ És hódít lanttal, karddal és kereszttel,  
+ Őt várom, őt, az igazit, nagyot,  
+ Mert én fáradt vagyok,  
+ Mert én gyenge vagyok,  
+ S ó, mert nem én vagyok az igazi!
+
+Az én bíborom: ronggyá foszlik el,  
+ Az én aranyam: ónná folyik szét,  
+ Nekem a mennyországom is pokol,  
+ S a szivárványom csupa szürkeség.  
+ Az én muzsikám: "vén cigány" zenéje,  
+ Én érzem: ez a vég.
+
+Az eljövendőt várom.  
+ És egyengetem az _ő_ útjait:  
+ Fogékony, izzó szívekre találjon!  
+ S én majd megnyugszom, ha lábához tettem  
+ Kopott lantom és kopott csatabárdom.
+
 HIRDETÉSEK ÉVKÖZI 34. VASÁRNAP- KRISZTUS KIRÁLY FŐÜNNEPÉN 2020. NOVEMBER 22-29.
 
 Örömmel adunk hírt arról, hogy a héten Ferenc pápa kinevezte Felföldi László atyát pécsi megyéspüspökké. László püspök nyilatkozott a Vatikáni Rádiónak. Ezt a nyilatkozatot, beszélgetést ezen a linken érhetik el: [https://www.vaticannews.va/hu/egyhaz/news/2020-11/interju-felfoldi-laszlo-kinevezett-pecsi-puspokkel.html](https://www.vaticannews.va/hu/egyhaz/news/2020-11/interju-felfoldi-laszlo-kinevezett-pecsi-puspokkel.html "https://www.vaticannews.va/hu/egyhaz/news/2020-11/interju-felfoldi-laszlo-kinevezett-pecsi-puspokkel.html")
@@ -20,19 +68,19 @@ Jövő évi naptár, kalendárium a sekrestyében kapható.
 **REMÉNYIK SÁNDOR : Valaki értem imádkozott**
 
 Mikor a bűntől meggyötörten  
- A lelkem terheket hordozott  
- Egyszer csak könnyebb lett a lelkem  
- Valaki értem imádkozott.
+A lelkem terheket hordozott  
+Egyszer csak könnyebb lett a lelkem  
+Valaki értem imádkozott.
 
 Valaki értem imádkozott,  
- Talán apám, anyám régen?  
- Talán más is, aki szeret.  
- Jó barátom vagy testvérem?
+Talán apám, anyám régen?  
+Talán más is, aki szeret.  
+Jó barátom vagy testvérem?
 
 Én nem tudom, de áldom Istent,  
- Ki nékem megváltást hozott,  
- És azt, aki értem csak  
- Egyszer is imádkozott.
+Ki nékem megváltást hozott,  
+És azt, aki értem csak  
+Egyszer is imádkozott.
 
 **HIRDETÉSEINK ÉVKÖZI 33. VASÁRNAP- 2020.NOVEMBER 15-22.**
 
