@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.DECEMBER 6.**
+
+**778** Az Egyház Isten tervének egyszerre útja és célja: előképe a teremtésben van, az Ószövetség előkészítette, Jézus Krisztus szavai és cselekedetei megalapították, megváltó keresztje és föltámadása valóra váltotta, és a Szentlélek kiáradása mint az üdvösség misztériumát kinyilvánította. A mennyei dicsőségben fog beteljesedni mint az összes -- földről -- megváltottak gyülekezete.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.NOVEMBER 29.**
 
 **524** Az adventi liturgia évenként visszatérő ünneplésével az Egyház aktualizálja ezt a messiásvárást; ezáltal a hívők részt vesznek a Megváltó első eljövetelének hosszú előkészítésében, és megújítják magukban a vágyat második eljövetele iránt.Az előfutár születésének és vértanúságának ünnepén az Egyház egyesül az ő vágyával: "Neki növekednie kell, nekem pedig kisebbednem" (Jn 3,30).
