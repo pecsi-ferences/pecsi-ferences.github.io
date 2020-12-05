@@ -3,6 +3,24 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ADVENT 2. VASÁRNAPJÁN**
+
+**2020.DECEMBER 6-13.**
+
+Kedden lesz a Boldogságos Szűz Mária Szeplőtelen Fogantatásának Főünnepe egyházunkban. Templomunkban 17 órakor lesz az ünnepi szentmise.
+
+Megjelent a Barátok Lapja-plébániai tájékoztató- decemberi száma.
+
+Jövő vasárnap advent 3. vasárnapja lesz.
+
+Jövő évi naptár, kalendárium a sekrestyében kapható.
+
+**Loyola Szent Ignác két imádsága**
+
+Uram, taníts nagylelkűségre! Taníts, hogy úgy szolgáljalak erőm szerint, amint Te megérdemled! Hogy adjak, nem számolgatván, mibe kerül! Harcoljak, mit se törődvén sebekkel! Hogy törjem magam, nyugalmat nem keresve! Dolgozzam, bért-jutalmat sose kérve; csak azt az egyet: hogy tudjam, teszem a Te szent akaratod'.
+
+Vedd át, Uram, mind szabadságom! Fogadd minden emlékezetem, értelmem és minden akaratom'! Bármim van s mit birtokolnék: Tőled kaptam, visszaadom teljesen ma Néked, amint tetszik, akaratod rendelkezzék vélük! Egyet adj csak: szerelmedet malasztoddal együtt, s gazdag leszek mindeléggé, semmi többet nem kívánok
+
 **HIRDETÉSEINK ADVENT 1. VASÁRNAPJÁN**
 
 **2020.NOVEMBER 29 -DECEMBER 6.**
@@ -20,36 +38,36 @@ Reményik Sándor
 **Az eljövendőt várom...**
 
 Már ledőlnek a lelkem tornyai,  
- Miket a hiúság emelt,  
- És porrá teszek minden cifra házat,  
- És pusztasággá teszem e kebelt,  
- Hol főlehajtva bujdos az alázat.  
- E kongó pusztaságban, végtelen,  
- Csillagtalan, adventi éjeken  
- Várom az eljövendőt.
+Miket a hiúság emelt,  
+És porrá teszek minden cifra házat,  
+És pusztasággá teszem e kebelt,  
+Hol főlehajtva bujdos az alázat.  
+E kongó pusztaságban, végtelen,  
+Csillagtalan, adventi éjeken  
+Várom az eljövendőt.
 
 A költőt.  
- Az egyetlent, az igazit, nagyot,  
- Akinek én csak szolgája vagyok,  
- Aki majd tűzzel, lélekkel keresztel  
- És hódít lanttal, karddal és kereszttel,  
- Őt várom, őt, az igazit, nagyot,  
- Mert én fáradt vagyok,  
- Mert én gyenge vagyok,  
- S ó, mert nem én vagyok az igazi!
+Az egyetlent, az igazit, nagyot,  
+Akinek én csak szolgája vagyok,  
+Aki majd tűzzel, lélekkel keresztel  
+És hódít lanttal, karddal és kereszttel,  
+Őt várom, őt, az igazit, nagyot,  
+Mert én fáradt vagyok,  
+Mert én gyenge vagyok,  
+S ó, mert nem én vagyok az igazi!
 
 Az én bíborom: ronggyá foszlik el,  
- Az én aranyam: ónná folyik szét,  
- Nekem a mennyországom is pokol,  
- S a szivárványom csupa szürkeség.  
- Az én muzsikám: "vén cigány" zenéje,  
- Én érzem: ez a vég.
+Az én aranyam: ónná folyik szét,  
+Nekem a mennyországom is pokol,  
+S a szivárványom csupa szürkeség.  
+Az én muzsikám: "vén cigány" zenéje,  
+Én érzem: ez a vég.
 
 Az eljövendőt várom.  
- És egyengetem az _ő_ útjait:  
- Fogékony, izzó szívekre találjon!  
- S én majd megnyugszom, ha lábához tettem  
- Kopott lantom és kopott csatabárdom.
+És egyengetem az _ő_ útjait:  
+Fogékony, izzó szívekre találjon!  
+S én majd megnyugszom, ha lábához tettem  
+Kopott lantom és kopott csatabárdom.
 
 HIRDETÉSEK ÉVKÖZI 34. VASÁRNAP- KRISZTUS KIRÁLY FŐÜNNEPÉN 2020. NOVEMBER 22-29.
 
