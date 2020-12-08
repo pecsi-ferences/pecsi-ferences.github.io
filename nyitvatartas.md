@@ -5,6 +5,10 @@ title: Hivatal nyitvatartása
 ---
 # Hivatal nyitvatartása
 
+2020\.december 12-én a hivatal nem lesz nyitva!
+
+Megértésüket köszönjük!
+
 **Hétfőtől-Péntekig**
 
 DÉLELŐTT 10 órától-12 óráig
