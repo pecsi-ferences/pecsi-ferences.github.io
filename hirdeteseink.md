@@ -3,6 +3,44 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ADVENT 3. VASÁRNAPJÁN**
+
+**2020.DECEMBER 13-20.**
+
+Ma-mivel a hónap második vasárnapja van- 16 órától szentségimádási óra lesz templomunkban.
+
+A Sant’Egidio Közösség hosszú évek óta minden karácsonykor, december 25-én ünnepi ebédre hívja szegény barátait (hajléktalanokat, elmagányosodott időseket, állami gondozásban élő gyerekeket), akiket évközben az utcán vagy szociális otthonokban rendszeresen látogat. Idén a pandémia miatt nem lesz karácsonyi ebéd. A közösség tagjai azonban nem szeretnének lemondani arról, hogy karácsony napján örömet szerezzenek azoknak, akik gyakran a legkitaszítottabbak, vagy akikről mindenki megfeledkezik. Ezért a járványügyi előírások figyelembevételével, idén is meleg ételt és személyre szabott karácsonyi ajándékot fognak vinni mindazoknak, akikről tudják, hogy nehéz helyzetben vannak. E nemes cél megvalósítása érdekében kérik a kedves hívek nagylelkű támogatását, felajánlását. Várják azokat is, akik szívesen segítenének az élelem kiszállításában vagy sütemény elkészítésében. Bármilyen felvilágosítást a közösségtől lehet kérni, akik a jövő héten, Advent 4. vasárnapján fognak gyűjteni a Ferencesek templomában szombaton este 5, valamint vasárnap reggel 8 és este 5 órai szentmiséken.
+
+Megjelent a Barátok Lapja-plébániai tájékoztató-decemberi száma.
+
+[https://pecsi-ferences.github.io/assets/pdfs/2020-12.pdf](https://pecsi-ferences.github.io/assets/pdfs/2020-12.pdf "https://pecsi-ferences.github.io/assets/pdfs/2020-12.pdf")
+
+Jövő vasárnap advent 4. vasárnapja lesz.
+
+Jövő évi naptár, kalendárium, karácsonyi képeslap a sekrestyében kapható.
+
+VÖRÖS ISTVÁN
+
+KERESZTELŐ JÁNOS EVANGÉLIUMA
+
+**ÉN, AZ Ő**
+
+1 Az nem számít, hogy én
+
+ki vagyok. Azt szeretném tudni,
+
+ki ő. Mért várom?
+
+Hogyan fogom megismerni?
+
+2 Király lesz vagy koldus?
+
+Lázadást hoz vagy megváltást?
+
+3 Hatalmat vagy szeretetet?
+
+Időt vagy öröklétet?
+
 **HIRDETÉSEINK ADVENT 2. VASÁRNAPJÁN**
 
 **2020.DECEMBER 6-13.**
@@ -13,9 +51,9 @@ Megjelent a Barátok Lapja-plébániai tájékoztató- decemberi száma.
 
 Jövő vasárnap advent 3. vasárnapja lesz.
 
-Jövő évi naptár, kalendárium a sekrestyében kapható.
+Jövő évi naptár, kalendárium a sekrestyében kapható. 
 
-**Loyola Szent Ignác két imádsága**
+**Szent Ignác két imádsága**
 
 Uram, taníts nagylelkűségre! Taníts, hogy úgy szolgáljalak erőm szerint, amint Te megérdemled! Hogy adjak, nem számolgatván, mibe kerül! Harcoljak, mit se törődvén sebekkel! Hogy törjem magam, nyugalmat nem keresve! Dolgozzam, bért-jutalmat sose kérve; csak azt az egyet: hogy tudjam, teszem a Te szent akaratod'.
 
