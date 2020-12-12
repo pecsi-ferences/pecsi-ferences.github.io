@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.DECEMBER 13.**
+
+**748** "Mivel Krisztus a nemzetek világossága, ez a Szentlélekben összeült szent Zsinat Krisztusnak az Egyház arcán tükröződő fényességével minden embert meg akar világosítani azáltal, hogy minden teremtménynek hirdeti az evangéliumot."
+
+E szavakkal kezdődik a II. Vatikáni Zsinat "Egyházról szóló dogmatikus konstitúciója". Így a Zsinat megmutatja, hogy az Egyházról szóló hitcikkely teljesen azoktól a cikkelyektől függ, amelyek Jézus Krisztusról szólnak. Az Egyháznak nincs más világossága, mint Krisztusé; ezért az egyházatyák kedvelt képe szerint a Holdhoz hasonlítható, melynek minden világossága a Nap fényének tükrözése.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.DECEMBER 6.**
 
 **778** Az Egyház Isten tervének egyszerre útja és célja: előképe a teremtésben van, az Ószövetség előkészítette, Jézus Krisztus szavai és cselekedetei megalapították, megváltó keresztje és föltámadása valóra váltotta, és a Szentlélek kiáradása mint az üdvösség misztériumát kinyilvánította. A mennyei dicsőségben fog beteljesedni mint az összes -- földről -- megváltottak gyülekezete.
