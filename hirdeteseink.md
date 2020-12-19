@@ -3,6 +3,63 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ADVENT 4. VASÁRNAPJÁN**
+
+**2020.DECEMBER 20-27.**
+
+A Sant’Egidio Közösség hosszú évek óta minden karácsonykor, december 25- én ünnepi ebédre hívja szegény barátait (hajléktalanokat, elmagányosodott időseket, állami gondozásban élő gyerekeket), akiket évközben az utcán vagy szociális otthonokban rendszeresen látogat. Idén a pandémia miatt nem lesz karácsonyi ebéd, de a járványügyi előírások figyelembevételével, meleg ételt és személyre szabott karácsonyi ajándékot visznek mindazoknak, akikről tudják, hogy nehéz helyzetben vannak. Ahogy az elmúlt hétvégén is hírdettük e nemes cél megvalósítása érdekében kérik a kedves hívek nagylelkű támogatását, felajánlását. Várják azokat is, akik szívesen segítenének az élelem kiszállításában vagy sütemény elkészítésében. A Közösség tagjai most a szentmise végén a bejáratnál fogadják azok adományait, akik szívesen támogatnák céljukat, illetve náluk lehet jelentkezni önkéntes segítőként is, vagy felajánlást tenni. Köszönjük.
+
+Csütörtökön- december 24-én- 17 órakor lesz az első karácsonyi ünnepi misénk. Az idei évben az éjféli mise elmarad.
+
+Pénteken (december 25) reggel 8 órakor és 17 órakor lesz szentmise templomunkban.
+
+Szombaton (december 26) reggel 8 órakor és 17 órakor lesznek a plébániai misék. Ugyanakkor szombaton-karácsony második napján- 16 órakor horvát nyelvű szentmise is lesz templomunkban.
+
+Jövő vasárnap a Szent Család Vasárnapja lesz. Templomunkban reggel 8 órakor és 17 órakor lesz szentmise.
+
+Templomunk Betleheme 2020. december 24 és 2021.január 10 között-naponta- 15 óra és 17 óra között látogatható.
+
+Jövő évi naptár, kalendárium, karácsonyi képeslap a sekrestyében kapható.
+
+Áldott karácsonyt kívánunk mindenkinek!
+
+Kurczina Terézia
+
+Angyali üdvözlet
+
+  
+ Józseffel, az áccsal  
+ jegyességben járva;  
+ Názáret városban  
+ élt egy tiszta lányka.  
+   
+ Első helyen állott  
+ életében Isten;  
+ Fontos volt számára,  
+ Benne bízzon, higgyen.  
+   
+ Mennyből alászállott  
+ Gábriel arkangyal;  
+ Köszöntve a lánykát  
+ egykor e szavakkal:  
+   
+ "Üdvözlégy Mária,  
+ malaszttal telt lányka!  
+ Isten az emberek  
+ szenvedését látva,  
+   
+ s meghallván a jajszót,  
+ ami Hozzá kiált,  
+ megváltásul küldi  
+ teáltalad Fiát!"  
+   
+ Mária méhébe  
+ fogadá a Fiút;  
+ Általa nyílt nekünk  
+ bűneinkből kiút.  
+   
+ 
+
 **HIRDETÉSEINK ADVENT 3. VASÁRNAPJÁN**
 
 **2020.DECEMBER 13-20.**
@@ -51,7 +108,7 @@ Megjelent a Barátok Lapja-plébániai tájékoztató- decemberi száma.
 
 Jövő vasárnap advent 3. vasárnapja lesz.
 
-Jövő évi naptár, kalendárium a sekrestyében kapható. 
+Jövő évi naptár, kalendárium a sekrestyében kapható.
 
 **Szent Ignác két imádsága**
 
