@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020. december 20.**
+
+**490** Máriát, hogy az Üdvözítő Anyja legyen, "Isten e nagy feladathoz méltó ajándékokkal látta el".Gábor angyal az üdvözletkor mint "kegyelemmel teljest" köszönti őt. Valóban teljesen Isten kegyelmének kellett őt vezérelnie ahhoz, hogy meghívásának üzenetére hitének szabad beleegyezését tudja adni.
+
+**973** Mária, aki az angyali üdvözletkor kimondta a "legyen"-t és így beleegyezését adta a megtestesülés misztériumához, már akkor együttműködik az egész művel, melyet Fiának kell végrehajtania. Mária Anya mindenütt, ahol az Ő Fia Üdvözítő és Feje a misztikus testnek.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.DECEMBER 13.**
 
 **748** "Mivel Krisztus a nemzetek világossága, ez a Szentlélekben összeült szent Zsinat Krisztusnak az Egyház arcán tükröződő fényességével minden embert meg akar világosítani azáltal, hogy minden teremtménynek hirdeti az evangéliumot."
