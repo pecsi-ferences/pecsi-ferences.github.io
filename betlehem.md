@@ -1,11 +1,14 @@
 ---
 layout: default
 title: A Pécsi Ferences Betlehem
+
 ---
 # A Pécsi Ferences Betlehem
 
+**Templomunk Betleheme 2020. december 24 és 2021.január 10 között-naponta- 15 óra és 17 óra között látogatható.**
+
 <div class="embed-responsive embed-responsive-4by3 mb-4">
-  <iframe class="embed-responsive-item" src="https://www.youtube.com/embed/iyWYmDAywLA?rel-0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
+<iframe class="embed-responsive-item" src="https://www.youtube.com/embed/iyWYmDAywLA?rel-0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 </div>
 
 Amióta 1223-ban Assisi Szent Ferenc társaival az itáliai Greccioban megjelenítette a környékbelieknek „élő Betlehemével” a kis Jézus születését, a karácsony elképzelhetetlen templomi Betlehem állítás nélkül. Még szamár, ökör is volt a jászol mellett, s a hagyomány szerint „az erdei éjféli mise” résztvevői csodálatos mód annak is tanúi lehettek, hogy a Szent karjában tarthatta a Kisjézust.
