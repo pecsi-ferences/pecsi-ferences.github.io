@@ -7,6 +7,8 @@ title: A Pécsi Ferences Betlehem
 
 **Templomunk Betleheme 2020. december 24 és 2021.január 10 között-naponta- 15 óra és 17 óra között látogatható.**
 
+Áldott Karácsonyt kívánunk!
+
 <div class="embed-responsive embed-responsive-4by3 mb-4">
 <iframe class="embed-responsive-item" src="https://www.youtube.com/embed/iyWYmDAywLA?rel-0" allow="autoplay; encrypted-media" allowfullscreen></iframe>
 </div>
