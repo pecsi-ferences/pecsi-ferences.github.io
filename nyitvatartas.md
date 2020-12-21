@@ -7,6 +7,8 @@ Szerdán (december 23); Csütörtökön(december 24) és Pénteken(december 25) 
 
 Sürgős esetben keressenek bennünket mobilszámunkon.
 
+Áldott karácsonyt kívánunk!
+
 # Hivatal nyitvatartása
 
 **Hétfőtől-Péntekig**
