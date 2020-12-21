@@ -3,6 +3,10 @@ layout: default
 title: Hivatal nyitvatartása
 
 ---
+Szerdán (december 23); Csütörtökön(december 24) és Pénteken(december 25) nem lesz irodai szolgálat.
+
+Sürgős esetben keressenek bennünket mobilszámunkon.
+
 # Hivatal nyitvatartása
 
 **Hétfőtől-Péntekig**
