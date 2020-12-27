@@ -13,6 +13,14 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.DECEMBER 27.**
+
+**533** A názáreti rejtett élet minden ember számára lehetővé teszi, hogy az élet leghétköznapibb dolgaiban közösségben legyen Jézussal:
+
+"A názáreti ház iskola, amelyben az ember kezdi megérteni Krisztus életét. Az evangélium iskolája. (...) Elsősorban a hallgatásra tanít. Bárcsak föléledne bennünk a hallgatás nagyrabecsülése, ennek a csodálatos és nélkülözhetetlen lelki magatartásnak az értékelése (...). Itt tanuljuk meg, milyen fontos a családi élet. Názáret fölhívja a figyelmet a családra, szeretetközösségére, méltóságára, sugárzó szépségére, szentségére és sérthetetlenségére (...). Végezetül itt megtanuljuk a munka fegyelmét. Ó, názáreti iskola, az ács Fiának háza! Itt szeretném megismerni és ünnepelni az emberi munka szigorú, de megváltó törvényét (...); végezetül innen szeretnék áldást küldeni az egész világ munkásainak, és megmutatni nekik a nagy Példaképet, az isteni Testvért.
+
+**534** _Jézus megtalálása a Templomban_ az egyetlen esemény, mely az evangéliumok Jézus rejtett életéről való hallgatását megtöri. Ezáltal Jézus sejteti küldetése iránti teljes, istenfiúságából adódó odaadásának misztériumát: "Nem tudtátok, hogy Atyám dolgaiban kell lennem?" Mária és József nem értették e szavakat, de a hitben elfogadták, és Mária "mindezeket az igéket megőrizte a szívében" a hosszú évek során, mialatt Jézus egy mindennapos élet csöndjében rejtve maradt.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020. december 20.**
 
 **490** Máriát, hogy az Üdvözítő Anyja legyen, "Isten e nagy feladathoz méltó ajándékokkal látta el".Gábor angyal az üdvözletkor mint "kegyelemmel teljest" köszönti őt. Valóban teljesen Isten kegyelmének kellett őt vezérelnie ahhoz, hogy meghívásának üzenetére hitének szabad beleegyezését tudja adni.
