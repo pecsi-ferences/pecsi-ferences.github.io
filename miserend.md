@@ -13,12 +13,8 @@ title: Miserend a Pécsi Ferences Templomban
 
 Megértésüket köszönjük!
 
-Csütörtökön (december 24) 17 órakor lesz szentmise. Az éjféli mise elmarad.
+Csütörtökön(2020.december 31.)17 órakor lesz az év végi hálaadás.
 
-Pénteken (december 25) 8 órakor és 17 órakor lesz szentmise.
+Pénteken(2021.január 1.) 8 órakor és 17 órakor lesznek szentmisék.
 
-Szombaton (december 26) 8 órakor és 17 órakor lesznek a plébániai szentmisék. 16 órakor horvát nyelvű szentmise lesz.
-
-Vasárnap(december 27) 8 órakor és 17 órakor lesz szentmise.
-
-Áldott karácsonyt kívánunk!
+Áldott új esztendőt kívánunk!
