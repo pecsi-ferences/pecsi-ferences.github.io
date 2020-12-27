@@ -3,6 +3,110 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK A SZENT CSALÁD VASÁRNAPJÁN**
+
+**2020.DECEMBER 27- 2021. JANUÁR 3.**
+
+Ma a Szent Család Vasárnapja van. Templomunkban reggel 8 órakor és 17 órakor lesz szentmise.
+
+Csütörtökön (2020.december 31.) 17 órakor lesz az év végi hálaadás templomukban.
+
+Pénteken (2021.január 1.) lesz Szűz Mária Isten Anyja Parancsolt Főünnepe, valamint a Béke Világnapja egyházunkban. Templomunkban reggel 8 órakor és 17 órakor lesz szentmise.
+
+Jövő vasárnap Karácsony Utáni 2. Vasárnap lesz. Templomunkban reggel 8 órakor és 17 órakor lesz szentmise.
+
+Templomunk Betleheme 2021.január 10-ig – naponta - 15 óra és 17 óra között látogatható.
+
+Jövő évi katolikus naptár a sekrestyében kapható.
+
+Áldott új esztendőt kívánunk!
+
+Kedves Testvérek!
+
+A Szent Egyed közösség hálásan köszöni anyagi támogatásukat és tevőleges segítségüket.
+
+Karácsony első napján 100 hajléktalan, nagyon szegény körülmények között élő barátunkat tudtunk finom karácsonyi ebéddel megvendégelni. Mintegy 80 főnek személyre szóló karácsonyi ajándék is készült. Három szociális otthon előtt tartottunk karácsonyi szerenádot, és 40 idősnek tudtunk névre szóló ajándékot adni. 3 családnak 20-20 kg-os élelmiszercsomagot tudtunk vinni egy ormánsági faluba. A számok mögött személyes ismeretség, barátságok, és az év folyamán rendszeres találkozások húzódnak meg.
+
+Köszönjük, hogy segítségükkel mindez megvalósulhatott!
+
+Szeretettel hívjuk a kedves testvéreket január 1-én, a béke világnapján közös imádságra a Lyceum templomba. Az imádságot, Ferenc pápa szándékával összhangban, a háborúban szenvedő országokért mondjuk. Csatlakozzanak hozzánk január 1-én, este fél 7 órakor a Lyceum templomban!
+
+**_Ady Endre_ Karácsony – Harang csendül...**
+
+I.
+
+Harang csendül,  
+ Ének zendül,  
+ Messze zsong a hálaének  
+ Az én kedves kis falumban  
+ Karácsonykor  
+ Magába száll minden lélek.
+
+Minden ember  
+ Szeretettel  
+ Borul földre imádkozni,  
+ Az én kedves kis falumban  
+ A Messiás  
+ Boldogságot szokott hozni.
+
+A templomba  
+ Hosszú sorba'  
+ Indulnak el ifjak, vének,  
+ Az én kedves kis falumban  
+ Hálát adnak  
+ A magasság Istenének.
+
+Mintha itt lenn  
+ A nagy Isten  
+ Szent kegyelme súgna, szállna,  
+ Az én kedves kis falumban  
+ Minden szívben  
+ Csak szeretet lakik máma.
+
+II.
+
+Bántja lelkem a nagy város  
+ Durva zaja,  
+ De jó volna ünnepelni  
+ Odahaza.  
+ De jó volna tiszta szívből  
+ – Úgy mint régen –  
+ Fohászkodni,  
+ De jó volna megnyugodni.
+
+De jó volna, mindent,  
+ Elfeledni,  
+ De jó volna játszadozó  
+ Gyermek lenni.  
+ Igaz hittel, gyermek szívvel  
+ A világgal  
+ Kibékülni,  
+ Szeretetben üdvözülni.
+
+III.
+
+Ha ez a szép rege  
+ Igaz hitté válna,  
+ Óh, de nagy boldogság  
+ Szállna a világra.  
+ Ez a gyarló ember  
+ Ember lenne újra,  
+ Talizmánja lenne  
+ A szomorú útra.
+
+Golgota nem volna  
+ Ez a földi élet,  
+ Egy erő hatná át  
+ A nagy mindenséget.  
+ Nem volna más vallás,  
+ Nem volna csak ennyi:  
+ Imádni az Istent  
+ És egymást szeretni…  
+ Karácsonyi rege  
+ Ha valóra válna,  
+ Igazi boldogság  
+ Szállna a világra.
+
 **HIRDETÉSEINK ADVENT 4. VASÁRNAPJÁN**
 
 **2020.DECEMBER 20-27.**
@@ -27,38 +131,35 @@ Kurczina Terézia
 
 Angyali üdvözlet
 
-  
- Józseffel, az áccsal  
- jegyességben járva;  
- Názáret városban  
- élt egy tiszta lányka.  
-   
- Első helyen állott  
- életében Isten;  
- Fontos volt számára,  
- Benne bízzon, higgyen.  
-   
- Mennyből alászállott  
- Gábriel arkangyal;  
- Köszöntve a lánykát  
- egykor e szavakkal:  
-   
- "Üdvözlégy Mária,  
- malaszttal telt lányka!  
- Isten az emberek  
- szenvedését látva,  
-   
- s meghallván a jajszót,  
- ami Hozzá kiált,  
- megváltásul küldi  
- teáltalad Fiát!"  
-   
- Mária méhébe  
- fogadá a Fiút;  
- Általa nyílt nekünk  
- bűneinkből kiút.  
-   
- 
+Józseffel, az áccsal  
+jegyességben járva;  
+Názáret városban  
+élt egy tiszta lányka.
+
+Első helyen állott  
+életében Isten;  
+Fontos volt számára,  
+Benne bízzon, higgyen.
+
+Mennyből alászállott  
+Gábriel arkangyal;  
+Köszöntve a lánykát  
+egykor e szavakkal:
+
+"Üdvözlégy Mária,  
+malaszttal telt lányka!  
+Isten az emberek  
+szenvedését látva,
+
+s meghallván a jajszót,  
+ami Hozzá kiált,  
+megváltásul küldi  
+teáltalad Fiát!"
+
+Mária méhébe  
+fogadá a Fiút;  
+Általa nyílt nekünk  
+bűneinkből kiút.
 
 **HIRDETÉSEINK ADVENT 3. VASÁRNAPJÁN**
 
