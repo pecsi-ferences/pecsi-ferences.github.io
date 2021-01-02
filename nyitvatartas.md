@@ -3,11 +3,6 @@ layout: default
 title: Hivatal nyitvatartása
 
 ---
-Szerdán (december 30); Csütörtökön(december 31) és Pénteken(2021.január 1) nem lesz irodai szolgálat.
-
-Sürgős esetben keressenek bennünket mobilszámunkon.
-
-Áldott új esztendőt kívánunk!
 
 # Hivatal nyitvatartása
 
