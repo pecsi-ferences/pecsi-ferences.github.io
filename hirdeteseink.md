@@ -3,6 +3,47 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK A KARÁCSONY UTÁNI 2. VASÁRNAP**
+
+**2021. JANUÁR 3-10.**
+
+Szerdán lesz Vízkereszt főünnepe. Templomunkban reggel 8 órakor és 17 órakor lesz szentmise. Ezen a napon lesz Pécsett a püspökszentelés is. Ahogy azt már korábban hirdettük, a szentelésre- a járványhelyzet miatt- csak a meghívottak mehetnek. Kísérjük figyelemmel ezt a jeles eseményt a televízió vagy az internet segítségével. Imádkozzunk egyházmegyénk új Főpásztoráért!
+
+Hétfőn és csütörtökön 18 óra 30 perctől a Szent Egyed közösség imádsága lesz templomunkban.
+
+Jövő vasárnap Urunk Megkeresztelkedésének Ünnep lesz. Mivel a hónap második vasárnapja is lesz, ezért 16 órától megtartjuk a hagyományos szentségimádási óránkat.
+
+Templomunk Betleheme jövő vasárnapig– naponta - 15 óra és 17 óra között látogatható.
+
+Áldott új esztendőt kívánunk!
+
+**_Reményik Sándor:_**
+
+**Béke**
+
+  
+ Valami furcsa összehangolódás,  
+ Valami ritka rend –  
+ Széthúzó erők erős egyensúlya,  
+ Mély belső bizonyosság idebent –  
+ Bizonyosság arról, hogy élni jó,  
+ Szenvedni elkerülhetetlen,  
+ Szeretni tisztán: megistenülés,  
+ Meghalni szép –  
+ S a Kifejezést meglelni mindezekhez,  
+ Megtalálni a felséges Igét:  
+ Az Igét mindezekhez:  
+ A Béke ez.  
+ Orkán ordíthat aztán odakünt,  
+ Robbanhat ezer bomba: kárbament,  
+ De kárt nem okozott.  
+ Bent:  
+ Csend.  
+ A Béke itt kezdődik.  
+ Bent:  
+ Csend.  
+ Isten hozott.
+
 **HIRDETÉSEINK A SZENT CSALÁD VASÁRNAPJÁN**
 
 **2020.DECEMBER 27- 2021. JANUÁR 3.**
@@ -36,76 +77,76 @@ Szeretettel hívjuk a kedves testvéreket január 1-én, a béke világnapján k
 I.
 
 Harang csendül,  
- Ének zendül,  
- Messze zsong a hálaének  
- Az én kedves kis falumban  
- Karácsonykor  
- Magába száll minden lélek.
+Ének zendül,  
+Messze zsong a hálaének  
+Az én kedves kis falumban  
+Karácsonykor  
+Magába száll minden lélek.
 
 Minden ember  
- Szeretettel  
- Borul földre imádkozni,  
- Az én kedves kis falumban  
- A Messiás  
- Boldogságot szokott hozni.
+Szeretettel  
+Borul földre imádkozni,  
+Az én kedves kis falumban  
+A Messiás  
+Boldogságot szokott hozni.
 
 A templomba  
- Hosszú sorba'  
- Indulnak el ifjak, vének,  
- Az én kedves kis falumban  
- Hálát adnak  
- A magasság Istenének.
+Hosszú sorba'  
+Indulnak el ifjak, vének,  
+Az én kedves kis falumban  
+Hálát adnak  
+A magasság Istenének.
 
 Mintha itt lenn  
- A nagy Isten  
- Szent kegyelme súgna, szállna,  
- Az én kedves kis falumban  
- Minden szívben  
- Csak szeretet lakik máma.
+A nagy Isten  
+Szent kegyelme súgna, szállna,  
+Az én kedves kis falumban  
+Minden szívben  
+Csak szeretet lakik máma.
 
 II.
 
 Bántja lelkem a nagy város  
- Durva zaja,  
- De jó volna ünnepelni  
- Odahaza.  
- De jó volna tiszta szívből  
- – Úgy mint régen –  
- Fohászkodni,  
- De jó volna megnyugodni.
+Durva zaja,  
+De jó volna ünnepelni  
+Odahaza.  
+De jó volna tiszta szívből  
+– Úgy mint régen –  
+Fohászkodni,  
+De jó volna megnyugodni.
 
 De jó volna, mindent,  
- Elfeledni,  
- De jó volna játszadozó  
- Gyermek lenni.  
- Igaz hittel, gyermek szívvel  
- A világgal  
- Kibékülni,  
- Szeretetben üdvözülni.
+Elfeledni,  
+De jó volna játszadozó  
+Gyermek lenni.  
+Igaz hittel, gyermek szívvel  
+A világgal  
+Kibékülni,  
+Szeretetben üdvözülni.
 
 III.
 
 Ha ez a szép rege  
- Igaz hitté válna,  
- Óh, de nagy boldogság  
- Szállna a világra.  
- Ez a gyarló ember  
- Ember lenne újra,  
- Talizmánja lenne  
- A szomorú útra.
+Igaz hitté válna,  
+Óh, de nagy boldogság  
+Szállna a világra.  
+Ez a gyarló ember  
+Ember lenne újra,  
+Talizmánja lenne  
+A szomorú útra.
 
 Golgota nem volna  
- Ez a földi élet,  
- Egy erő hatná át  
- A nagy mindenséget.  
- Nem volna más vallás,  
- Nem volna csak ennyi:  
- Imádni az Istent  
- És egymást szeretni…  
- Karácsonyi rege  
- Ha valóra válna,  
- Igazi boldogság  
- Szállna a világra.
+Ez a földi élet,  
+Egy erő hatná át  
+A nagy mindenséget.  
+Nem volna más vallás,  
+Nem volna csak ennyi:  
+Imádni az Istent  
+És egymást szeretni…  
+Karácsonyi rege  
+Ha valóra válna,  
+Igazi boldogság  
+Szállna a világra.
 
 **HIRDETÉSEINK ADVENT 4. VASÁRNAPJÁN**
 
