@@ -13,6 +13,18 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.JANUÁR 3.**
+
+**423** Mi hisszük és valljuk, hogy a Názáreti Jézus, aki Nagy Heródes király és Augustus császár idejében Izrael egy leányától, zsidóként, Betlehemben született, foglalkozására nézve ács, akit Tiberius császár uralkodása idején Poncius Pilátus helytartósága alatt Jeruzsálemben keresztre feszítve kivégeztek, Isten emberré lett örök Fia. "Istentől jött ki" (Jn 13,3), "az égből szállott alá" (Jn 3,13; 6,33), testben jött el, mert "az Ige testté lett és közöttük lakozott, és mi láttuk az ő dicsőségét, az Atya Egyszülöttének dicsőségét, akit kegyelem és igazság tölt el. (...) Mi mindannyian az ő teljességéből merítettünk, kegyelmet kegyelemre halmozva" (Jn 1,14.16).
+
+**457** Az Ige testté lett, hogy minket Istennel kiengesztelve üdvözítsen: "Isten szeretett minket és elküldte Fiát engesztelésül a bűneinkért" (1Jn 4,10). "Az Atya elküldte a Fiút a világ Üdvözítőjéül" (4,14). "Ő azért jelent meg, hogy elvegye a bűnöket" (3,5):
+
+"Orvosra volt szüksége természetünknek, mely betegségben sínylődött. Fölemelőre szorult az ember, aki elesett. Elevenítőre szorult az, aki kiesett az életből. A jóhoz visszavezető szorult az, aki elveszítette a jóban való részesedést. A világosság jelenlétére szorult az, akit sötétségbe zártak. Megváltót keresett a fogoly, támaszt a megbilincselt, szabadítót az, akit a rabszolgaság igája görnyesztett. Vajon értéktelen és jelentéktelen dolgok-e ezek, melyek arra indították Istent, hogy leszálljon emberi természetünk meglátogatására, amikor az emberiség oly nyomorúságos és szerencsétlen állapotban volt?
+
+**458** Az Ige testté lett, hogy így mi megismerjük Isten szeretetét: "Az Isten szeretete abban nyilvánult meg bennünk, hogy Isten elküldte a világba egyszülött Fiát, hogy általa éljünk" (1Jn 4,9). "Mert úgy szerette Isten a világot, hogy egyszülött Fiát adta oda, hogy aki hisz benne, az el ne vesszen, hanem örökké éljen" (Jn 3,16).
+
+**459** Az Ige testté lett, hogy a szentség példaképe legyen számunkra: "Vegyétek magatokra igámat és tanuljatok tőlem..." (Mt 11,29). "Én vagyok az Út, az Igazság és az Élet, senki sem jut az Atyához, csak énáltalam" (Jn 14,6). És a színeváltozás hegyén maga az Atya parancsolja: "Őt hallgassátok" (Mk 9,7). Ő csakugyan a boldogságok modellje és az új törvény normája: "Szeressétek egymást, amint én szerettelek titeket" (Jn 15,12). Ez a szeretet megköveteli, hogy az ő nyomában járva odaadjuk önmagunkat.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2020.DECEMBER 27.**
 
 **533** A názáreti rejtett élet minden ember számára lehetővé teszi, hogy az élet leghétköznapibb dolgaiban közösségben legyen Jézussal:
