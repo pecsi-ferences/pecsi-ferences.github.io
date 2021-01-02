@@ -13,8 +13,4 @@ title: Miserend a Pécsi Ferences Templomban
 
 Megértésüket köszönjük!
 
-Csütörtökön(2020.december 31.)17 órakor lesz az év végi hálaadás.
-
-Pénteken(2021.január 1.) 8 órakor és 17 órakor lesznek szentmisék.
-
-Áldott új esztendőt kívánunk!
+Szerdán(2021.január 6.)Vízkereszt főünnepén 8 órakor és 17 órakor lesz szentmise templomunkban.
