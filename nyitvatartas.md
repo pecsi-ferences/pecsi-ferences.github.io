@@ -4,8 +4,6 @@ title: Hivatal nyitvatartása
 
 ---
 
-**Szerdán Vízkereszt ünnepén (2021.január 6-án) a hivatal zárva tart.**
-
 # Hivatal nyitvatartása
 
 **Hétfőtől-Péntekig**
