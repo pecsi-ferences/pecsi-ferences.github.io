@@ -3,6 +3,7 @@ layout: default
 title: Hivatal nyitvatartása
 
 ---
+**Technikai okok miatt 2021.január 8-án délután az iroda zárva tart.**
 
 # Hivatal nyitvatartása
 
