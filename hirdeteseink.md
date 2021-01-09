@@ -13,6 +13,8 @@ Hétfőn és csütörtökön 18 óra 30 perctől a Szent Egyed közösség imád
 
 Kedden a 17 órai szentmise után Szent Antal áhítatot tartunk.
 
+Szombaton 17 órakor német-magyar mise lesz templomunkban.
+
 Megjelent a Barátok Lapja- plébániai tájékoztató-januári száma.
 
 [https://pecsi-ferences.github.io/assets/pdfs/2021-01.pdf](https://pecsi-ferences.github.io/assets/pdfs/2021-01.pdf "https://pecsi-ferences.github.io/assets/pdfs/2021-01.pdf")
@@ -20,31 +22,31 @@ Megjelent a Barátok Lapja- plébániai tájékoztató-januári száma.
 Sík Sándor: Isten lánca
 
 Nem, nem engedlek, fogom a kezed:  
- Az Isten lánca vagyok én neked.
+Az Isten lánca vagyok én neked.
 
 Kötlek, magadhoz, élő kötelekkel,  
- Komoly, virrasztó, nehéz szeretettel.
+Komoly, virrasztó, nehéz szeretettel.
 
 A ködlő múltat, akarom, feledd,  
- S állj meg hajnalló mélyeid felett.
+S állj meg hajnalló mélyeid felett.
 
 És nézz magadba boldog félelemmel:  
- Isten szemével és az én szememmel.
+Isten szemével és az én szememmel.
 
 És tépd el mind a félig-fátylakat.  
- Akarom: láss és megszeresd magad.
+Akarom: láss és megszeresd magad.
 
 Hogy lásd magad: ifjúnak és igaznak,  
- Erősségnek és mosolygó vigasznak.
+Erősségnek és mosolygó vigasznak.
 
 Lásd, hogy világol a boldog titok:  
- A zengő porta, mit Isten nyitott.
+A zengő porta, mit Isten nyitott.
 
 Akarom: keljen új életre benned  
- Alvó dala az építő igennek.
+Alvó dala az építő igennek.
 
 És mosolyogd rám, édes jó barát,  
- Az erős Isten élő mosolyát.
+Az erős Isten élő mosolyát.
 
 **HIRDETÉSEINK A KARÁCSONY UTÁNI 2. VASÁRNAP**
 
