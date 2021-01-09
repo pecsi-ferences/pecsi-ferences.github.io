@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.JANUÁR 10.**
+
+**535** Jézus nyilvános életének kezdete a keresztsége Jánosnál a Jordánban. János hirdette "a bűnbánat keresztségét a bűnök bocsánatára" (Lk 3,3). Bűnösök vámosok és katonák, farizeusok és szadduceusok és utcanők sokasága jött, hogy megkeresztelkedjék nála. "Akkor eljött Jézus." A Keresztelő vonakodott, de Jézus biztatta, és fölvette a keresztséget. Egy galamb képében leszáll a Szentlélek Jézusra, és a mennyből szózat hallatszik: "Ez az én szeretett Fiam" (Mt 3,13--17). Ez Jézusnak mint Izrael Messiásának és Isten Fiának megjelenése (epifániája).
+
+**536** A keresztség Jézus részéről a szenvedő Szolga küldetésének elfogadása és kezdete. Engedi, hogy a bűnösök közé sorolják. Már most "az Isten Báránya, aki elveszi a világ bűnét" (Jn 1,29); már elővételezi halálának "vérkeresztségét". Azért jön, hogy "beteljesítsen minden igazságot" (Mt 3,15), azaz teljesen aláveti magát Atyja akaratának: szeretetből vállalja magára a halál keresztségét bűneink bocsánatára.Erre a készségre válaszol az Atya hangja, aki Fiában teljesen kedvét találta. A Szentlélek, akit Jézus fogantatása óta teljesen birtokol, jön, hogy rajta "maradjon". Jézus az egész emberiség számára a Lélek forrása lesz. Keresztelésekor "megnyílt neki az ég" (Mt 3,16), melyet Ádám bűne bezárt; és amikor Jézus és a Lélek a vízbe ereszkedett, az megszentelődött -- ez az új teremtés előjátéka.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.JANUÁR 3.**
 
 **423** Mi hisszük és valljuk, hogy a Názáreti Jézus, aki Nagy Heródes király és Augustus császár idejében Izrael egy leányától, zsidóként, Betlehemben született, foglalkozására nézve ács, akit Tiberius császár uralkodása idején Poncius Pilátus helytartósága alatt Jeruzsálemben keresztre feszítve kivégeztek, Isten emberré lett örök Fia. "Istentől jött ki" (Jn 13,3), "az égből szállott alá" (Jn 3,13; 6,33), testben jött el, mert "az Ige testté lett és közöttük lakozott, és mi láttuk az ő dicsőségét, az Atya Egyszülöttének dicsőségét, akit kegyelem és igazság tölt el. (...) Mi mindannyian az ő teljességéből merítettünk, kegyelmet kegyelemre halmozva" (Jn 1,14.16).
