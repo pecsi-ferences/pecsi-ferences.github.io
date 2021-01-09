@@ -3,6 +3,49 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK URUNK MEGKERESZTELKEDÉSÉNEK ÜNNEPÉN**
+
+**2021. JANUÁR 10-17.**
+
+Ma Urunk Megkeresztelkedésének Ünnepe van. Mivel ez a hónap második vasárnapja, ezért 16 órától megtartjuk a hagyományos szentségimádási óránkat.
+
+Hétfőn és csütörtökön 18 óra 30 perctől a Szent Egyed közösség imádsága lesz templomunkban.
+
+Kedden a 17 órai szentmise után Szent Antal áhítatot tartunk.
+
+Megjelent a Barátok Lapja- plébániai tájékoztató-januári száma.
+
+[https://pecsi-ferences.github.io/assets/pdfs/2021-01.pdf](https://pecsi-ferences.github.io/assets/pdfs/2021-01.pdf "https://pecsi-ferences.github.io/assets/pdfs/2021-01.pdf")
+
+Sík Sándor: Isten lánca
+
+Nem, nem engedlek, fogom a kezed:  
+ Az Isten lánca vagyok én neked.
+
+Kötlek, magadhoz, élő kötelekkel,  
+ Komoly, virrasztó, nehéz szeretettel.
+
+A ködlő múltat, akarom, feledd,  
+ S állj meg hajnalló mélyeid felett.
+
+És nézz magadba boldog félelemmel:  
+ Isten szemével és az én szememmel.
+
+És tépd el mind a félig-fátylakat.  
+ Akarom: láss és megszeresd magad.
+
+Hogy lásd magad: ifjúnak és igaznak,  
+ Erősségnek és mosolygó vigasznak.
+
+Lásd, hogy világol a boldog titok:  
+ A zengő porta, mit Isten nyitott.
+
+Akarom: keljen új életre benned  
+ Alvó dala az építő igennek.
+
+És mosolyogd rám, édes jó barát,  
+ Az erős Isten élő mosolyát.
+
 **HIRDETÉSEINK A KARÁCSONY UTÁNI 2. VASÁRNAP**
 
 **2021. JANUÁR 3-10.**
@@ -21,28 +64,27 @@ Templomunk Betleheme jövő vasárnapig– naponta - 15 óra és 17 óra közöt
 
 **Béke**
 
-  
- Valami furcsa összehangolódás,  
- Valami ritka rend –  
- Széthúzó erők erős egyensúlya,  
- Mély belső bizonyosság idebent –  
- Bizonyosság arról, hogy élni jó,  
- Szenvedni elkerülhetetlen,  
- Szeretni tisztán: megistenülés,  
- Meghalni szép –  
- S a Kifejezést meglelni mindezekhez,  
- Megtalálni a felséges Igét:  
- Az Igét mindezekhez:  
- A Béke ez.  
- Orkán ordíthat aztán odakünt,  
- Robbanhat ezer bomba: kárbament,  
- De kárt nem okozott.  
- Bent:  
- Csend.  
- A Béke itt kezdődik.  
- Bent:  
- Csend.  
- Isten hozott.
+Valami furcsa összehangolódás,  
+Valami ritka rend –  
+Széthúzó erők erős egyensúlya,  
+Mély belső bizonyosság idebent –  
+Bizonyosság arról, hogy élni jó,  
+Szenvedni elkerülhetetlen,  
+Szeretni tisztán: megistenülés,  
+Meghalni szép –  
+S a Kifejezést meglelni mindezekhez,  
+Megtalálni a felséges Igét:  
+Az Igét mindezekhez:  
+A Béke ez.  
+Orkán ordíthat aztán odakünt,  
+Robbanhat ezer bomba: kárbament,  
+De kárt nem okozott.  
+Bent:  
+Csend.  
+A Béke itt kezdődik.  
+Bent:  
+Csend.  
+Isten hozott.
 
 **HIRDETÉSEINK A SZENT CSALÁD VASÁRNAPJÁN**
 
