@@ -3,6 +3,40 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 2. VASÁRNAP-2021. JANUÁR 17-24.**
+
+Hétfőn 18 óra 30 perckor a Szent Egyed közösség imaórája lesz templomunkban.
+
+Kedden a 17 órai szentmise után Szent Antal áhítat lesz templomunkban.
+
+Csütörtökön 18 óra 30 perckor a Szent Egyed közösség imaórája lesz templomunkban.
+
+Szombaton lesz a középiskolai írásbeli felvételi. Imádkozzunk a felvételiző tanulókért.
+
+Jövő vasárnap lesz az Isten Igéjének Vasárnapja. Ferenc pápa rendeléséből ez egy viszonylag új ünnep egyházunkban. A Szent Egyed közösség szervezésében 11 órakor is tartunk szentmisét templomunkban.
+
+**_Weöres Sándor:_**
+
+**Ki minek gondol, az vagyok annak...**
+
+Ki minek gondol, az vagyok annak…  
+ Mért gondolsz különc rokontalannak?  
+ Jelet látsz gyűlni a homlokomra:  
+ Te vagy magad, ki e jelet vonja.
+
+S vigyázz hogy fénybe vagy árnyba játszik,  
+ Mert fénye-árnya terád sugárzik.  
+ Ítélsz rólam, mint bölcsről, badarról:  
+ Rajtam látsz törvényt sajátmagadról.
+
+Okosnak nézel? Hát bízd magad rám.  
+ Bolondnak nézel? Csörög a sapkám.  
+ Ha lónak gondolsz, hátamra ülhetsz;  
+ Ha oroszlánnak, nem menekülhetsz.
+
+Szemem tavában magadat látod:  
+ Mint tükröd, vagyok leghűbb barátod.
+
 **HIRDETÉSEINK URUNK MEGKERESZTELKEDÉSÉNEK ÜNNEPÉN**
 
 **2021. JANUÁR 10-17.**
