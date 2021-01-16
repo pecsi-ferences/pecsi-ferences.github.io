@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.JANUÁR 17.**
+
+**523** Keresztelő Szent János az Úr közvetlen előfutára; Tőle küldetett, hogy utat készítsen. Ő maga a "Magasságbeli prófétája" (Lk 1,76), minden Prófétát fölülmúl,az utolsó közülük,megnyitja az evangéliumot;anyja méhéből köszönti Krisztus eljövetelét, és abban találja örömét, hogy ő a "vőlegény barátja" (Jn 3,29), akit "Isten bárányának" nevez, "aki elveszi a világ bűneit" (Jn 1,29). "Illés szellemével és erejével" (Lk 1,17) jár Jézus előtt, és prédikációjával, bűnbánati keresztségével s végül vértanúságával tanúságot tesz róla.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.JANUÁR 10.**
 
 **535** Jézus nyilvános életének kezdete a keresztsége Jánosnál a Jordánban. János hirdette "a bűnbánat keresztségét a bűnök bocsánatára" (Lk 3,3). Bűnösök vámosok és katonák, farizeusok és szadduceusok és utcanők sokasága jött, hogy megkeresztelkedjék nála. "Akkor eljött Jézus." A Keresztelő vonakodott, de Jézus biztatta, és fölvette a keresztséget. Egy galamb képében leszáll a Szentlélek Jézusra, és a mennyből szózat hallatszik: "Ez az én szeretett Fiam" (Mt 3,13--17). Ez Jézusnak mint Izrael Messiásának és Isten Fiának megjelenése (epifániája).
