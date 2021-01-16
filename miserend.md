@@ -13,4 +13,4 @@ title: Miserend a Pécsi Ferences Templomban
 
 Megértésüket köszönjük!
 
-Szerdán(2021.január 6.)Vízkereszt főünnepén 8 órakor és 17 órakor lesz szentmise templomunkban.
+Jövő vasárnap (2021.január 24.) 11 órakor is lesz szentmise templomunkban.
