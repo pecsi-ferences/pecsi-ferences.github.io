@@ -13,6 +13,24 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. JANUÁR 24**.
+
+**543** Minden ember meghívás kap arra, hogy belépjen az Országba. Ez a messiási ország, melyet először Izrael fiainak hirdettek,minden nép embereinek szól. Aki be akar lépni az Országba, annak el kell fogadnia Jézus szavát.
+
+"Az Úr igéje ugyanis a földbe vetett maghoz hasonlít: akik hittel hallgatják és Krisztus kicsiny nyájához számláltatnak, azok magát az Országot fogadták be; a mag azután saját erejéből csírázik és növekszik egészen az aratásig."
+
+**544** Az ország a szegényeké és a kicsinyeké, vagyis azoké, akik alázatos szívvel elfogadták. Jézus küldetése az, hogy "örömhírt vigyen a szegényeknek" (Lk 4,18). Boldognak mondja őket, mert "övék a mennyek országa" (Mt 5,3); az Atya a "kicsinyeknek" akarta kinyilatkoztatni azt, ami rejtve marad a bölcsek és az okosok előtt. A jászoltól a keresztig Jézus megosztja életét a szegényekkel; ismeri az éhséget, a szomjúságot és a nélkülözést. Sőt, azonosítja magát minden szegénnyel, és az irántuk tanúsított tevékeny szeretetet teszi az országába belépés föltételéül.
+
+**545** Jézus az Istenország asztalához hívja a bűnösöket: "Nem az igazakat jöttem hívni, hanem a bűnösöket" (Mk 2,17). Megtérésre szólítja föl őket, ami nélkül nem lehet belépni az Országba. De szóval és tettel megmutatja nekik Atyja határtalan irgalmát irántuk, és a határtalan "örömöt", mely "az égben lesz egyetlen megtérő bűnös miatt" (Lk 15,7). E szeretet legfőbb bizonysága életének föláldozása "a bűnök bocsánatára" (Mt 26,28).
+
+**546** Jézus példabeszédek által -- melyek tanításának jellegzetességei -- hív arra, hogy belépjünk az Országba. Általuk hív meg az Ország ünnepi lakomájára, ugyanakkor radikális döntést kíván: az Ország elnyeréséért az embernek mindent el kell ajándékoznia; a szavak nem elegendők, tettekre van szükség. A példabeszédek szinte tükröt tartanak az ember elé, melyben fölismerheti: sziklás talajként vagy jó földként fogadja-e be az igét? Mit kezd a kapott talentumokkal? A példabeszédek lényegi magva Jézus és az Ország jelenléte a földön. Az embernek be kell lépnie az Országba, azaz Krisztus tanítványává kell lennie, hogy "megismerje a mennyek országának titkait" (Mt 13,11). A "kívülállóknak" (Mk 4,11) minden rejtve marad.
+
+**858** Jézust az Atya küldötte. Szolgálatának kezdetétől fogva "magához hívta azokat, akiket Ő maga akart (...). És megalkotta a Tizenkettőt, hogy vele legyenek, és hogy elküldje őket prédikálni" (Mk 3,13--14). Ettől kezdve ők az Ő "küldöttei" (a görög aposztoloi szó ezt jelenti). Ő bennük hajtja végre saját küldetését: "Miként engem küldött az Atya, én is küldelek titeket" (Jn 20,21). Szolgálatuk tehát az Ő küldetésének folytatása: "Aki titeket befogad, engem fogad be" -- mondja Ő maga a Tizenkettőnek (Mt 10,40).
+
+**859** Jézus az Atyától kapott küldetéséhez társítja őket: miként "a Fiú semmit sem tehet önmagától" (Jn 5,19.30), hanem mindent az Atyától kap, aki Őt küldte, úgy azok, akiket Jézus küld, semmit sem tehetnek Nélküle, akitől a missziós parancsot és a teljesítéséhez szükséges hatalmat kapják. Krisztus apostolai tehát tudják, hogy Isten tette őket alkalmassá arra, hogy "az új Szövetség szolgái" (2Kor 3,6), "Isten szolgái" (2Kor 6,4) legyenek, "Krisztus követségében" (2Kor 5,20) járjanak el mint "Krisztus szolgái és Isten misztériumainak gondnokai" (1Kor 4,1).
+
+**860** Az apostolok feladatában van egy mozzanat, mely átadhatatlan: tudniillik, hogy az Úr föltámadásának tanúi és az Egyház alapjai. Ugyanakkor feladatuknak van egy maradandó mozzanata is. Krisztus megígérte nekik, hogy velük marad az idők végéig. "Ez az isteni küldetés, melyet Krisztus bízott az apostolokra, a világ végéig fog tartani, mert az evangélium, melyet nekik kell továbbadniuk, minden időkre az Egyház egész életének alapja. Ezért az Apostolok (...) utódok rendeléséről gondoskodtak."
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.JANUÁR 17.**
 
 **523** Keresztelő Szent János az Úr közvetlen előfutára; Tőle küldetett, hogy utat készítsen. Ő maga a "Magasságbeli prófétája" (Lk 1,76), minden Prófétát fölülmúl,az utolsó közülük,megnyitja az evangéliumot;anyja méhéből köszönti Krisztus eljövetelét, és abban találja örömét, hogy ő a "vőlegény barátja" (Jn 3,29), akit "Isten bárányának" nevez, "aki elveszi a világ bűneit" (Jn 1,29). "Illés szellemével és erejével" (Lk 1,17) jár Jézus előtt, és prédikációjával, bűnbánati keresztségével s végül vértanúságával tanúságot tesz róla.
