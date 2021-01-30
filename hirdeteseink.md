@@ -15,9 +15,7 @@ Pénteken elsőpéntek lesz.
 
 Jövő vasárnap gyertyaszentelés és balázsolás is lesz a szentmiséken.
 
-Figyelmükbe ajánljuk a Házasság Hete programsorozatot.
-
-[https://mail.google.com/mail/u/0/#search/pasztoralis.iroda%40pecs.egyhazmegye.hu?projector=1](https://mail.google.com/mail/u/0/#search/pasztoralis.iroda%40pecs.egyhazmegye.hu?projector=1 "https://mail.google.com/mail/u/0/#search/pasztoralis.iroda%40pecs.egyhazmegye.hu?projector=1")
+Idén február 6-14-e között lesz a Házasság hete programsorozat, amellyel a házasság szentségének fontosságára szeretnék felhívni a figyelmet (a járványhelyzet miatt alapvetően online módon). Bővebb információ: www.pecsiegyhazmegye.hu/hazassag-hete
 
 **Kovács Bettina A Gyógyítás Mestere**
 
