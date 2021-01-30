@@ -15,6 +15,10 @@ Pénteken elsőpéntek lesz.
 
 Jövő vasárnap gyertyaszentelés és balázsolás is lesz a szentmiséken.
 
+Figyelmükbe ajánljuk a Házasság Hete programsorozatot.
+
+[https://mail.google.com/mail/u/0/#search/pasztoralis.iroda%40pecs.egyhazmegye.hu?projector=1](https://mail.google.com/mail/u/0/#search/pasztoralis.iroda%40pecs.egyhazmegye.hu?projector=1 "https://mail.google.com/mail/u/0/#search/pasztoralis.iroda%40pecs.egyhazmegye.hu?projector=1")
+
 **Kovács Bettina A Gyógyítás Mestere**
 
 Jöhet bármilyen betegség,
