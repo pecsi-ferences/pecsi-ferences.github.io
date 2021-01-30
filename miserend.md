@@ -13,4 +13,4 @@ title: Miserend a Pécsi Ferences Templomban
 
 Megértésüket köszönjük!
 
-Jövő vasárnap (2021.január 24.) 11 órakor is lesz szentmise templomunkban.
+Most vasárnap (2021.január 31.) 16 órakor horvát nyelvű szentmise lesz templomunkban.
