@@ -3,6 +3,84 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 4. VASÁRNAP - 2021. JANUÁR 31-FEBRUÁR 7.**
+
+Ma 16 órakor horvát nyelvű szentmise lesz templomunkban. A szentmisét Barics Gábriel Bicsérdi Plébános fogja bemutatni. **A plébániai szentmise- a szokott időben- 17 órakor kezdődik.**
+
+Kedden (február 2) lesz Gyertyaszentelő Boldogasszony ünnepe. Ezen a napon és majd a következő hétvégi szentmiséken is végzünk gyertyaszentelést templomunkban.
+
+Szerdán (február 3) lesz Szent Balázs püspök és vértanú ünnepe. Ezen a napon és majd a következő hétvégi szentmiséken is végzünk balázsolást/torokáldást templomunkban.
+
+Pénteken elsőpéntek lesz.
+
+Jövő vasárnap gyertyaszentelés és balázsolás is lesz a szentmiséken.
+
+**Kovács Bettina A Gyógyítás Mestere**
+
+Jöhet bármilyen betegség,
+
+Jöhet lelki szomjúság vagy éhség.
+
+Egyre kell csak figyelni,
+
+Soha nem szabad feladni.
+
+Mert voltak bénák, vakok, sánták,
+
+Ők a betegség útját járták.
+
+Így éltek hosszú éveken át,
+
+S egyedül Jézustól várták a csodát.
+
+Volt olyan, akinek elég volt az Úr szava,
+
+És tudta, hogy meggyógyul az ő szolgája.
+
+S volt olyan, akinek oly nagy volt a hite,
+
+Hogy csak a ruhája szegélyét érintette.
+
+És ott volt a négy napos Lázár,
+
+Akin nem tudott győzni a halál.
+
+Mert jött az Úr s megmentette,
+
+Szavával őt is életre keltette.
+
+És volt olyan, akit megszállt a gonosz lélek,
+
+Az emberek megijedtek és féltek.
+
+De az Úr elűzte a szellemet,
+
+S megmentett egy ártatlan életet.
+
+Lehet, hogy vannak akik lelkileg szegények,
+
+Szemük előtt halványulnak a mennyei fények.
+
+Akik nem tudnak már semminek sem örülni,
+
+Az ilyen emberekért kell imát mondani.
+
+Lehet testi vagy lelki a gondod,
+
+Ha Isten elé viszed, megoldod.
+
+Nincs olyan nagy probléma,
+
+Amin a Jó Isten segíteni ne tudna.
+
+Bármi nehézségen mész most keresztül,
+
+Tudd, hogy nem vagy egyedül.
+
+Isten a gyógyítás mestere,
+
+S te lehetsz a gyógyulás győztese.
+
 **HIRDETÉSEINK ÉVKÖZI 3. VASÁRNAP- ISTEN IGÉJÉNEK VASÁRNAPJA-2021. JANUÁR 24-31.**
 
 Ma van Isten Igéjének Vasárnapja. Ferenc pápa rendeléséből ez egy viszonylag új ünnep egyházunkban. A Szent Egyed közösség szervezésében 11 órakor is tartunk szentmisét templomunkban.
@@ -38,9 +116,9 @@ Mint Ő, mást elfogadni, felemelni…
 Megbocsátani, mint Ő megbocsát.
 
 Mesterükre! Egyedül Ő adhatja  
- a nyitott szemet, szívet,  
- alázatot, erőt a szolgálatra…  
- s gyümölcsöt teremni csak így lehet.
+a nyitott szemet, szívet,  
+alázatot, erőt a szolgálatra…  
+s gyümölcsöt teremni csak így lehet.
 
 **HIRDETÉSEINK ÉVKÖZI 2. VASÁRNAP-2021. JANUÁR 17-24.**
 
