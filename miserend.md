@@ -12,5 +12,3 @@ title: Miserend a Pécsi Ferences Templomban
 * A szentmisék előtt és -lehetőség szerint-hétvégén a szentmisék ideje alatt, a gyóntatófolyosón van gyónási lehetőség.
 
 Megértésüket köszönjük!
-
-Most vasárnap (2021.január 31.) 16 órakor horvát nyelvű szentmise lesz templomunkban.
