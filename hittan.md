@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.FEBRUÁR 7.**
+
+**2419** "A krisztusi kinyilatkoztatás (...) elvezet minket a társadalmi élet törvényeinek mélyebb megértésére." Az Egyház az evangéliumból megkapja az ember igazságára vonatkozó teljes kinyilatkoztatást. Amikor az evangélium hirdetésére szóló küldetését teljesíti, Krisztus nevében tanúsítja az embernek tulajdon méltóságát és meghívását a személyek közösségébe; az isteni bölcsesség szerint tanítja neki az igazságosság és a béke követelményeit.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2021. JANUÁR 31.**
 
 **515** Az evangéliumokat olyan emberek írták, akik az első hívők közé tartoztak és akik közölni akarták a hitet másokkal. Mivel a hitben tudták, hogy kicsoda Jézus, ezért egész földi életében szemlélni és másokkal is láttatni tudták misztériumának nyomait. Jézus életében minden -- pólyájától, amibe születésekor betakarták, az eceten át, amivel a kereszten itatták,egészen az arcát takaró kendőig, amit a föltámadás után a sírban hagyott -- az Ő legbensőbb misztériumának a jele. Cselekedetei, csodái, szavai által vált nyilvánvalóvá, hogy "benne lakik testileg az istenség teljessége" (Kol 2,9). Embersége "szentségként", azaz istenségének és az általa hozott üdvösségnek jele és eszközeként jelenik meg: ami az Ő földi életében látható volt, az istenfiúságának és megváltói küldetésének láthatatlan misztériumára utalt.
