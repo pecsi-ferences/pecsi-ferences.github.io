@@ -3,6 +3,78 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 5. VASÁRNAP - 2021. FEBRUÁR 7-14.**
+
+Ma gyertyaszentelés és balázsolás is lesz a szentmiséken.
+
+Csütörtökön lesz a Betegek Világnapja egyházukban. Az idei évben a betegek szentségének közösségi kiszolgáltatása- a járványhelyzet miatt- elmarad.
+
+Jövő vasárnap- mivel a hónap második vasárnapja- 16 órától Szentségimádási óra lesz templomunkban.
+
+Templomunkban folytatódik a Lourdes-i kilenced imádság.
+
+Idén február 6-14-e között lesz/van a Házasság hete programsorozat, amellyel a házasság szentségének fontosságára szeretnék felhívni a figyelmet (a járványhelyzet miatt alapvetően online módon). Bővebb információ: az interneten.([www.pecsiegyhazmegye.hu/hazassag-hete](http://www.pecsiegyhazmegye.hu/hazassag-hete))
+
+Megjelent a Barátok Lapja-plébániai tájékoztató- februári száma.
+
+[https://pecsi-ferences.github.io/assets/pdfs/2021-02.pdf](https://pecsi-ferences.github.io/assets/pdfs/2021-02.pdf "https://pecsi-ferences.github.io/assets/pdfs/2021-02.pdf")
+
+SÍK SÁNDOR – KETTEN A MESTERREL
+
+Fehér fényben, fehér ruhában,  
+ Egy férfi jár előttem egyre.  
+ Vezet, vezet, kezem kezében,  
+ Föl a magányos, nagy hegyekre.  
+ Az emberarcok ködbe vesztek,  
+ Ketten vagyunk a hegyeken.  
+ Kézen fogva vezet a Mester,  
+ S én követem.
+
+Megláboltam a pusztaságot,  
+ Homokviharos, sívó tengert.  
+ Szürke porát szívemre szórta,  
+ Szörnyű magánya majd hogy elnyelt.  
+ De tikkadt lelkem felüdítve  
+ A Mester arca járt velem.  
+ Kezem meleg kezébe fogta,  
+ S én követem.
+
+Lehevertem illatos fűre  
+ Oázisok mézes szelében,  
+ Elálmodoztam rózsás felhőn,  
+ Távol dalon, zsongó levélen.  
+ De kezét homlokomra tette  
+ S megnyitva álmodó szemem,  
+ Előre mutatott a Mester,  
+ S én követem.
+
+Elértem a hegyek tövébe  
+ S indultam fölfelé nyomában.  
+ Dideregtem a szirti szélben,  
+ A szikla megvérezte lábam.  
+ Ha megálltam, szemembe nézett  
+ És rám mosolygott csendesen.  
+ S belém szállott a Mester lelke.  
+ És követem.
+
+Mikor az első csúcsra értem,  
+ Verejtékes nap estelén,  
+ Megkísértett a nagy Kísértő,  
+ És egy világot tárt elém.  
+ De a Mester szemembe nézett,  
+ Szomorú szemmel, könnyesen,  
+ S rajta kívül nem láttam semmit.  
+ És követem.
+
+Járok magányos hegytetőkön,  
+ A magasságos szirthazában.  
+ S egy férfi jár előttem egyre,  
+ Fehér fényben, fehér ruhában.  
+ Léptünk alatt meleg virágok  
+ Serkednek a vad köveken.  
+ Kézen fogva vezet a Mester,  
+ S én követem.
+
 **HIRDETÉSEINK ÉVKÖZI 4. VASÁRNAP - 2021. JANUÁR 31-FEBRUÁR 7.**
 
 Ma 16 órakor horvát nyelvű szentmise lesz templomunkban. A szentmisét Barics Gábriel Bicsérdi Plébános fogja bemutatni. **A plébániai szentmise- a szokott időben- 17 órakor kezdődik.**
