@@ -3,6 +3,37 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 6. VASÁRNAP - 2021. FEBRUÁR 14-21.**
+
+**Ma** - mivel a hónap második vasárnapja van- 16 órától Szentségimádási óra lesz templomunkban.
+
+**Szerdán** lesz Hamvazószerda. Ezzel elkezdődik a nagyböjti időszak. Az idei esztendőben az Apostoli Szentszék rendelkezése nyomán, nem rajzolunk keresztet a hamvazkodó homlokára, hanem a bűnbánó lehajtott fejére kis mennyiségű hamut szórunk, nyilván a kedves testvér(ek) megérintése nélkül. Kérjük, hogy a hamvazkodás idejére a kalapot, sapkát vegyük majd le.
+
+**Pénteken** a 17 órai szentmise után keresztutat végzünk templomunkban.
+
+**Szombaton** 17 órakor német-magyar misét mutat be Berecz Tibor atya és Zoltán atya.
+
+**Jövő vasárnap** nagyböjt 1. vasárnapja lesz. A jövő hétvégi szentmisék után is lesz hamvazás templomunkban.
+
+**FÜLE LAJOS KERESZT**
+
+**Visszük...Mindenki mást,  
+ mindenki másként,  
+ de - a magáét.  
+ Az átháríthatatlant,  
+ a megközelíthetetlent,  
+ az el-nem-dobhatót.  
+ Súlya alatt roskad a váll,  
+ süpped a föld,  
+ mélyül az ösvény.  
+ Nem szállhatunk, ahogy a léggömb,  
+ nem sodorhat tova a szél,  
+ földhöz kötöz, sorshoz kötöz,  
+ terhével óv,  
+ terhével áld meg.  
+   
+ **
+
 **HIRDETÉSEINK ÉVKÖZI 5. VASÁRNAP - 2021. FEBRUÁR 7-14.**
 
 Ma gyertyaszentelés és balázsolás is lesz a szentmiséken.
@@ -22,58 +53,58 @@ Megjelent a Barátok Lapja-plébániai tájékoztató- februári száma.
 SÍK SÁNDOR – KETTEN A MESTERREL
 
 Fehér fényben, fehér ruhában,  
- Egy férfi jár előttem egyre.  
- Vezet, vezet, kezem kezében,  
- Föl a magányos, nagy hegyekre.  
- Az emberarcok ködbe vesztek,  
- Ketten vagyunk a hegyeken.  
- Kézen fogva vezet a Mester,  
- S én követem.
+Egy férfi jár előttem egyre.  
+Vezet, vezet, kezem kezében,  
+Föl a magányos, nagy hegyekre.  
+Az emberarcok ködbe vesztek,  
+Ketten vagyunk a hegyeken.  
+Kézen fogva vezet a Mester,  
+S én követem.
 
 Megláboltam a pusztaságot,  
- Homokviharos, sívó tengert.  
- Szürke porát szívemre szórta,  
- Szörnyű magánya majd hogy elnyelt.  
- De tikkadt lelkem felüdítve  
- A Mester arca járt velem.  
- Kezem meleg kezébe fogta,  
- S én követem.
+Homokviharos, sívó tengert.  
+Szürke porát szívemre szórta,  
+Szörnyű magánya majd hogy elnyelt.  
+De tikkadt lelkem felüdítve  
+A Mester arca járt velem.  
+Kezem meleg kezébe fogta,  
+S én követem.
 
 Lehevertem illatos fűre  
- Oázisok mézes szelében,  
- Elálmodoztam rózsás felhőn,  
- Távol dalon, zsongó levélen.  
- De kezét homlokomra tette  
- S megnyitva álmodó szemem,  
- Előre mutatott a Mester,  
- S én követem.
+Oázisok mézes szelében,  
+Elálmodoztam rózsás felhőn,  
+Távol dalon, zsongó levélen.  
+De kezét homlokomra tette  
+S megnyitva álmodó szemem,  
+Előre mutatott a Mester,  
+S én követem.
 
 Elértem a hegyek tövébe  
- S indultam fölfelé nyomában.  
- Dideregtem a szirti szélben,  
- A szikla megvérezte lábam.  
- Ha megálltam, szemembe nézett  
- És rám mosolygott csendesen.  
- S belém szállott a Mester lelke.  
- És követem.
+S indultam fölfelé nyomában.  
+Dideregtem a szirti szélben,  
+A szikla megvérezte lábam.  
+Ha megálltam, szemembe nézett  
+És rám mosolygott csendesen.  
+S belém szállott a Mester lelke.  
+És követem.
 
 Mikor az első csúcsra értem,  
- Verejtékes nap estelén,  
- Megkísértett a nagy Kísértő,  
- És egy világot tárt elém.  
- De a Mester szemembe nézett,  
- Szomorú szemmel, könnyesen,  
- S rajta kívül nem láttam semmit.  
- És követem.
+Verejtékes nap estelén,  
+Megkísértett a nagy Kísértő,  
+És egy világot tárt elém.  
+De a Mester szemembe nézett,  
+Szomorú szemmel, könnyesen,  
+S rajta kívül nem láttam semmit.  
+És követem.
 
 Járok magányos hegytetőkön,  
- A magasságos szirthazában.  
- S egy férfi jár előttem egyre,  
- Fehér fényben, fehér ruhában.  
- Léptünk alatt meleg virágok  
- Serkednek a vad köveken.  
- Kézen fogva vezet a Mester,  
- S én követem.
+A magasságos szirthazában.  
+S egy férfi jár előttem egyre,  
+Fehér fényben, fehér ruhában.  
+Léptünk alatt meleg virágok  
+Serkednek a vad köveken.  
+Kézen fogva vezet a Mester,  
+S én követem.
 
 **HIRDETÉSEINK ÉVKÖZI 4. VASÁRNAP - 2021. JANUÁR 31-FEBRUÁR 7.**
 
