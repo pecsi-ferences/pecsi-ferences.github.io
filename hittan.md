@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.FEBRUÁR 14.**
+
+**1210** Az Újszövetség szentségeit Krisztus alapította és szám szerint hét van: keresztség, bérmálás, Oltáriszentség (Eucharisztia), bűnbánat, betegek kenete, egyházi rend és házasság szentsége. A hét szentség a keresztény élet minden fontos pillanatát és állomását érinti: a szentségek a keresztények hitéletéhez megadják a születést és a növekedést, a gyógyítást és a küldetést. Ezen a téren bizonyos hasonlóság található a természetes élet állomásai és a lelkiélet állomásai között.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.FEBRUÁR 7.**
 
 **2419** "A krisztusi kinyilatkoztatás (...) elvezet minket a társadalmi élet törvényeinek mélyebb megértésére." Az Egyház az evangéliumból megkapja az ember igazságára vonatkozó teljes kinyilatkoztatást. Amikor az evangélium hirdetésére szóló küldetését teljesíti, Krisztus nevében tanúsítja az embernek tulajdon méltóságát és meghívását a személyek közösségébe; az isteni bölcsesség szerint tanítja neki az igazságosság és a béke követelményeit.
