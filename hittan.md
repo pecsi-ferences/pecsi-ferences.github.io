@@ -13,6 +13,14 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. FEBRUÁR 21.**
+
+**538** Az evangéliumok beszélnek egy magányos időszakról, melyet Jézus közvetlenül a Jánostól fölvett keresztsége után a pusztában töltött: "a Lélek a pusztába vitte Őt" (Mk 1,12), és Ő ott maradt negyven napig étlenül; vadállatok között élt és angyalok szolgáltak neki. Ennek az időszaknak a végén a Sátán háromszor kísérti meg Őt, hogy próbára tegye fiúi kapcsolatát Istennel. Jézus visszaveri e támadásokat, melyek összefoglalják az Ádámot a Paradicsomban és Izraelt a pusztában ért kísértéseket, ezután az ördög egy időre visszahúzódott Tőle (Lk 4,13).
+
+**539** Az evangélisták utalnak e titokzatos esemény üdvtörténeti jelentőségére. Jézus az új Ádám, aki hűséges marad abban, amiben az első engedett a kísértésnek. Jézus tökéletesen teljesíti Izrael hivatását: azokkal ellentétben, akik egykor negyven évig provokálták Istent a pusztában, ezzel szemben Krisztus Isten Szolgájának bizonyul, aki egészen engedelmes Isten akaratának. Jézus ebben győztes az ördöggel szemben: "megkötözte az erőset", hogy elragadja tőle a zsákmányt. Jézus győzelme a pusztában a kísértő fölött szenvedésének győzelmét elővételezi, mely szenvedés az Atya iránti fiúi szeretet legnagyobb engedelmessége.
+
+**540** A kísértés megmutatja, hogy Isten Fia mely módon Messiás, ellentétben azzal a szereppel, amit a Sátán javasolt neki, s melyben az emberek szívesen látták volna. Ezért Krisztus helyettünk győzte le a Kísértőt: "Főpapunk ugyanis nem olyan, hogy ne tudna együttérezni gyöngeségeinkkel, hanem olyan, aki hozzánk hasonlóan mindenben kísértést szenvedett, a bűntől azonban ment maradt" (Zsid 4,15). A negyven napos böjti idő által az Egyház minden esztendőben egyesül Jézus misztériumával a pusztában.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.FEBRUÁR 14.**
 
 **1210** Az Újszövetség szentségeit Krisztus alapította és szám szerint hét van: keresztség, bérmálás, Oltáriszentség (Eucharisztia), bűnbánat, betegek kenete, egyházi rend és házasság szentsége. A hét szentség a keresztény élet minden fontos pillanatát és állomását érinti: a szentségek a keresztények hitéletéhez megadják a születést és a növekedést, a gyógyítást és a küldetést. Ezen a téren bizonyos hasonlóság található a természetes élet állomásai és a lelkiélet állomásai között.
