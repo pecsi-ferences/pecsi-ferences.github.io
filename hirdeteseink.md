@@ -3,6 +3,37 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK NAGYBÖJT 1. VASÁRNAPJÁN - 2021. FEBRUÁR 21-28.**
+
+**Ma** nagyböjt 1. vasárnapján . A szentmisék után is lesz hamvazás templomunkban.
+
+**Hétfőn** és csütörtökön 18 óra 30 perctől a Szent Egyed közösség imaórája lesz templomunkban.
+
+**Pénteken** a 17 órai szentmise után keresztutat végzünk a templomban.
+
+**Jövő vasárnap** 16 órakor horvát nyelvű szentmise lesz templomunkban. A plébániai szentmise 17 órakor kezdődik.
+
+**Jövő vasárnap** országos templomi gyűjtés lesz a katolikus iskolák javára.
+
+Dsida Jenő Mária szobra a kertben
+
+A kertben áll.  
+ Bús. Széteső.  
+ Belepi burján,  
+ mossa eső.
+
+A szitáló  
+ lassú cseppek  
+ orrahegyéről  
+ lecsepegnek.
+
+Az embereknek  
+ Krisztust adott.  
+ Az emberek közt  
+ elhagyatott.
+
+**1934**
+
 **HIRDETÉSEINK ÉVKÖZI 6. VASÁRNAP - 2021. FEBRUÁR 14-21.**
 
 **Ma** - mivel a hónap második vasárnapja van- 16 órától Szentségimádási óra lesz templomunkban.
@@ -17,22 +48,22 @@ title: Hirdetéseink
 
 **FÜLE LAJOS KERESZT**
 
-**Visszük...Mindenki mást,  
- mindenki másként,  
- de - a magáét.  
- Az átháríthatatlant,  
- a megközelíthetetlent,  
- az el-nem-dobhatót.  
- Súlya alatt roskad a váll,  
- süpped a föld,  
- mélyül az ösvény.  
- Nem szállhatunk, ahogy a léggömb,  
- nem sodorhat tova a szél,  
- földhöz kötöz, sorshoz kötöz,  
- terhével óv,  
- terhével áld meg.  
-   
- **
+\**Visszük...Mindenki mást,  
+mindenki másként,  
+de - a magáét.  
+Az átháríthatatlant,  
+a megközelíthetetlent,  
+az el-nem-dobhatót.  
+Súlya alatt roskad a váll,  
+süpped a föld,  
+mélyül az ösvény.  
+Nem szállhatunk, ahogy a léggömb,  
+nem sodorhat tova a szél,  
+földhöz kötöz, sorshoz kötöz,  
+terhével óv,  
+terhével áld meg.
+
+\**
 
 **HIRDETÉSEINK ÉVKÖZI 5. VASÁRNAP - 2021. FEBRUÁR 7-14.**
 
