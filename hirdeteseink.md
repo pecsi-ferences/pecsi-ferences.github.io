@@ -3,6 +3,86 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK NAGYBÖJT 2. VASÁRNAPJÁN –**
+
+**2021. FEBRUÁR 28 - MÁRCIUS 7.**
+
+**Ma** országos templomi gyűjtés van a katolikus iskolák javára.
+
+**Ma** 16 órakor horvát nyelvű szentmise lesz templomunkban. A plébániai szentmise 17 órakor kezdődik.
+
+**Hétfőn** és csütörtökön 18 óra 30 perctől a Szent Egyed közösség imaórája lesz templomunkban.
+
+**Pénteken** a 17 órai szentmise után keresztutat végzünk a templomban.
+
+**Szombaton** 11 órakor az elhunyt hajléktalanokért mutatunk be szentmisét templomunkban. Az úgynevezett Miklós misét a Szent Egyed közösség szervezi.
+
+REMÉNYIK SÁNDOR
+
+KENYÉR HELYETT
+
+"Változtasd a köveket kenyerekké!" -  
+ Nem a sátán szól. Milliók zokogják.  
+ Egyetlen jajkiáltás a világ,  
+ Egyetlen kéztördelő mozdulat,  
+ Egyetlenegy roppant fenyegetés.  
+ A nyomorúság völgyei fölött  
+ A bosszúálló Isten hegyei  
+ Feltornyosulnak irgalmatlanul,  
+ Nem indulnak változni kenyerekké.
+
+"Változtasd a köveket kenyerekké!"  
+ Hallom én is a rettentő igét,  
+ Mint végítélet, úgy zuhan reám,  
+ Szíven talál, mint kővé vált kenyér.  
+ Az életemet mostan kérik számon,  
+ Most köveznek kővé vált kenyerekkel.  
+ Megálljatok... nagyon bűnös vagyok,  
+ De talán mégsem úgy, mint hiszitek.  
+ Én nem vettem el senki kenyerét,  
+ Csak ép nem tudtam kenyeret keresni,  
+ Csak éltem, éltem, ingyen, irgalomból,  
+ Az Isten irgalmának hegyeit  
+ Bebolyongtam virágot szedegetve,  
+ Tudom, nem ér most falat kenyeret  
+ Az egész szárazvirág-gyüjtemény.
+
+"Változtasd a köveket kenyerekké!" -  
+ Máskor talán feleltem volna rá,  
+ Szóltam volna: "Nem csak kenyérrel éltek!"  
+ Most torkom, szívem egyként elszorul,  
+ Szédül a szó és megfullad a hang.  
+ Csak Egy, csak Egy, csak Egy felelhet így, -  
+ Nem én, nem én, az Ő nevébe se...  
+ Testvéreim, ha volna rá hatalmam,  
+ Testvéreim, ha tőlem függene,  
+ Holnap puha sziklákon pihennétek,  
+ Kenyérhegyek nőnének számotokra,  
+ Hegyóriások csupa szín-kenyérből,  
+ Merő aranykalácsból Alpesek...  
+ De nincs hatalmam, - betegen bolyongok,  
+ S még most is virágokat keresek.  
+ S ha még találok egy-egy halaványat:  
+ Tépelődöm, hogy megmutassam-e?  
+ Asztalotokra merjem-e belopni -  
+ Kenyértelen, üres asztalotokra  
+ Kenyértelen kővilág kis virágát? -  
+ Vagy morzsoljam szét a kezem között,  
+ Mielőtt bárki rátekintene,  
+ És fojtsam meg, mint gyermekét anya,  
+ Mint bukott leány drága szégyenét?
+
+"Változtasd a köveket kenyerekké!"  
+ Hegyeket változtatnék - nem lehet.  
+ Kenyértelen, kegyetlen kővilágban  
+ Lehajtom megadással fejemet.  
+ Testvéreim, ne könyörüljetek.  
+ Kenyértelen, kegyetlen kővilágban,  
+ A bosszúálló Isten hegyein  
+ Én nektek most is csak virágot téptem.  
+ Zuhogj fejemre, kővé vált kenyér:  
+ Én vétkem, én vétkem, én igen nagy vétkem.
+
 **HIRDETÉSEINK NAGYBÖJT 1. VASÁRNAPJÁN - 2021. FEBRUÁR 21-28.**
 
 **Ma** nagyböjt 1. vasárnapján . A szentmisék után is lesz hamvazás templomunkban.
@@ -18,19 +98,19 @@ title: Hirdetéseink
 Dsida Jenő Mária szobra a kertben
 
 A kertben áll.  
- Bús. Széteső.  
- Belepi burján,  
- mossa eső.
+Bús. Széteső.  
+Belepi burján,  
+mossa eső.
 
 A szitáló  
- lassú cseppek  
- orrahegyéről  
- lecsepegnek.
+lassú cseppek  
+orrahegyéről  
+lecsepegnek.
 
 Az embereknek  
- Krisztust adott.  
- Az emberek közt  
- elhagyatott.
+Krisztust adott.  
+Az emberek közt  
+elhagyatott.
 
 **1934**
 
