@@ -13,6 +13,20 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. FEBRUÁR 28.**
+
+**554** Attól a naptól fogva, amikor Péter megvallotta, hogy Jézus a Krisztus, az élő Isten Fia, a Mester "magyarázni kezdte tanítványainak: Jeruzsálembe kell mennie, (...) sokat kell szenvednie, megölik, de harmadnapon föl fog támadni" (Mt 16,21). Péter visszautasítja ezt a bejelentést; a többiek sem tudták fölfogni. Ebben az összefüggésben áll Jézus színeváltozásának titokzatos eseménye, egy magas hegyen három kiválasztott tanú: Péter, Jakab és János előtt. Jézus arca és ruhája ragyogó fényessé vált; megjelent Illés és Mózes, és beszélgettek vele, "elmondták kivonulását, melyet majd Jeruzsálemben fog beteljesíteni" (Lk 9,31). Felhő árnyékolta be őket, és egy hang az égből mondta: "Ez az én választott Fiam, őt hallgassátok" (Lk 9,35).
+
+**555** Jézus egy pillanatra megmutatta isteni dicsőségét, megerősítvén így Péter hitvallását. Azt is megmutatja: Jeruzsálemben el kell szenvednie a kereszten a halált, hogy bemehessen "dicsőségébe" (Lk 24,26). Mózes és Illés hegyen látták Isten dicsőségét; a Törvény és a Próféták megjövendölték a Messiás szenvedéseit. Jézus szenvedése az Atya akarata; a Fiú Isten szolgájaként cselekszik; a felhő a Szentlélek jelenlétének jele: "Az egész Szentháromság megjelent: az Atya a hangban, a Fiú az emberben, a Szentlélek a fényes felhőben":
+
+"Te színedben elváltoztál a hegyen, s amennyire képesek voltak rá, tanítványaid látták dicsőségedet, Krisztus Istenünk, hogy ha majd keresztre feszítve látnak, megértsék, hogy szenvedésed önkéntes volt; és hirdessék a világnak, hogy Te valóban az Atya ragyogása vagy."
+
+**556** A nyilvános élet küszöbén: a keresztség, a húsvét küszöbén: a színeváltozás. Jézus keresztsége "föltárta az első újjászületés misztériumát": keresztségünket; a színeváltozás "a második újjászületés szakramentuma": föltámadásunk. Már most részesedünk az Úr föltámadásában a Szentlélek által, aki Krisztus Testének szentségeiben működik. A színeváltozás megízlelteti velünk Krisztus dicsőséges eljövetelét, "aki átalakítja gyarló testünket, hogy hasonlóvá tegye megdicsőült testéhez" (Fil 3,21). De a színeváltozás azt is mondja, hogy "sok szorongatáson át (...) kell bejutnunk Isten országába" (ApCsel 14,22):
+
+"Ezt Péter még nem értette akkor, amikor Krisztussal akart a hegyen élni. Ezt az életet, Péter, a halála utáni időre tartotta fönn. Most pedig ő maga mondja: Jöjj le a hegyről, hogy a földön fáradozzál, a földön szolgálj, a földön megvessenek és keresztre feszítsenek. Lejön az élet, hogy megöljék; lejön a kenyér, hogy éhes legyen; lejön az út, hogy útközben elfáradjon; lejön a forrás, hogy szomjazzon -- te pedig vonakodsz a fáradságtól?"
+
+**568** Krisztus színeváltozásának célja, hogy az apostolok hitét a szenvedéssel kapcsolatban megerősítse: a fölmenetel a "magas hegyre" a Kálváriára való fölmenetelt készíti elő. Krisztus, az Egyház feje kinyilvánítja azt, amit teste tartalmaz, s ami a szentségekben tükröződik: "a dicsőség reményét" (Kol 1,27).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. FEBRUÁR 21.**
 
 **538** Az evangéliumok beszélnek egy magányos időszakról, melyet Jézus közvetlenül a Jánostól fölvett keresztsége után a pusztában töltött: "a Lélek a pusztába vitte Őt" (Mk 1,12), és Ő ott maradt negyven napig étlenül; vadállatok között élt és angyalok szolgáltak neki. Ennek az időszaknak a végén a Sátán háromszor kísérti meg Őt, hogy próbára tegye fiúi kapcsolatát Istennel. Jézus visszaveri e támadásokat, melyek összefoglalják az Ádámot a Paradicsomban és Izraelt a pusztában ért kísértéseket, ezután az ördög egy időre visszahúzódott Tőle (Lk 4,13).
