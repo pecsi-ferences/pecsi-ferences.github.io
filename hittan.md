@@ -13,6 +13,16 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. MÁRCIUS 7.**
+
+**583** Jézus, miként előtte a próféták, a jeruzsálemi Templom iránt mélységes tiszteletet tanúsított. Itt mutatta be József és Mária a születése után negyven nappal. Tizenkét évesen úgy határozott, hogy a Templomban marad, hogy szüleit emlékeztesse, hogy neki Atyja dolgaiban kell lennie. Rejtett élete során évről évre legalább a húsvéti ünnepre fölment a Templomba; nyilvános működésének szinte ritmusát adta a zsidók nagy ünnepeinek jeruzsálemi zarándoklata.
+
+**584** Jézus úgy megy föl a Templomba, mint az Istennel való találkozás kiváltságos helyére. Számára a Templom Atyjának lakása, az imádság háza, és méltatlankodik amiatt, hogy külső előcsarnokát piaccá tették. Amikor a kereskedőket kiűzi a Templomból, Atyja iránti féltő szeretetből teszi: "Ne tegyétek Atyám házát vásárcsarnokká!" Tanítványai emlékeztek az Írás szavára: "Emészt a házadért való buzgóság" (Zsolt 69,10; Jn 2,16--17). Föltámadása után az apostolok tiszteletteljes magatartást tanúsítottak a Templom iránt.
+
+**585** Jézus azonban szenvedésének küszöbén megjövendölte ennek a csodálatos építménynek a romlását, melyből nem fognak követ kövön hagyni. Ezt mint a végső időnek jelét jövendöli, melyek az Ő húsvétjával kezdődnek meg. De ezt a próféciát eltorzítva hamis tanúk idézni tudták a kihallgatáson a főpap előtt,majd gúnyolódva a keresztre szegezett Jézus fejére olvasták.
+
+**586** Jézus egyáltalán nem volt ellenséges a Templommal szemben,ahol tanításának lényeges részeit mondta el; le akarta róni a templomadót Péterrel együtt, akit az imént tett leendő Egyháza alapjává. Sőt azonosította magát a Templommal, amikor úgy mutatta be magát, mint Isten végső emberek között lakását. Ezért testi megölése a Templom lerombolását jövendöli, ami ki fogja nyilvánítani az üdvösség története új korszakának kezdetét: "Eljön az óra, amikor sem ezen a hegyen, sem Jeruzsálemben nem fogjátok imádni az Atyát" (Jn 4,21).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. FEBRUÁR 28.**
 
 **554** Attól a naptól fogva, amikor Péter megvallotta, hogy Jézus a Krisztus, az élő Isten Fia, a Mester "magyarázni kezdte tanítványainak: Jeruzsálembe kell mennie, (...) sokat kell szenvednie, megölik, de harmadnapon föl fog támadni" (Mt 16,21). Péter visszautasítja ezt a bejelentést; a többiek sem tudták fölfogni. Ebben az összefüggésben áll Jézus színeváltozásának titokzatos eseménye, egy magas hegyen három kiválasztott tanú: Péter, Jakab és János előtt. Jézus arca és ruhája ragyogó fényessé vált; megjelent Illés és Mózes, és beszélgettek vele, "elmondták kivonulását, melyet majd Jeruzsálemben fog beteljesíteni" (Lk 9,31). Felhő árnyékolta be őket, és egy hang az égből mondta: "Ez az én választott Fiam, őt hallgassátok" (Lk 9,35).
