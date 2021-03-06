@@ -3,6 +3,68 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK NAGYBÖJT 3. VASÁRNAPJÁN**
+
+**2021. MÁRCIUS 7-14.**
+
+**Hétfőn** és csütörtökön 18 óra 30 perctől a Szent Egyed közösség imaórája lesz templomunkban.
+
+**Pénteken** a 17 órai szentmise után keresztutat végzünk a templomban.
+
+**Jövő** vasárnap-mivel a hónap második vasárnapja lesz- 16 órakor szentségimádási óra lesz templomunkban.
+
+**Múlt vasárnap** a katolikus iskolák részére volt országos templomi gyűjtés. A mi templomunkban 120 000 forint gyűlt össze. Köszönet az adakozóknak!
+
+**A Barátok Lapja**-plébániai tájékoztató- ebben a hónapban csak a plébániai internetes felületén jelenik meg. [https://pecsi-ferences.github.io/assets/pdfs/2021-03.pdf](https://pecsi-ferences.github.io/assets/pdfs/2021-03.pdf "https://pecsi-ferences.github.io/assets/pdfs/2021-03.pdf")
+
+| --- | --- | --- | --- |
+| Reményik Sándor Egy perc |  |  |  |
+
+Egy percre ma  
+ Úgy néztem fel a csillagokra én,  
+ Mintha bámuló, nagy gyerekszememmel  
+ Legelőször tekinteném.  
+ Egy percre ma  
+ Gyöngyvirágillat szállt át a szobán.  
+ Csodálkoztam, mint hogy ha legelőször  
+ Csodálkoznék el édes illatán.  
+ Egy percre ma  
+ Minden oly könnyű lett s oly egyszerű,  
+ S az élet a kezemben:  
+ Engedelmes, jól hangolt hegedű.  
+ Egy percre ma  
+ Megindultam - és nem tudtam: mi az.  
+ Messziről, mélyről intett elibém  
+ Egy elsüllyedt tavasz.  
+ Egy percre ma  
+ Mint szegény embert, nem húzott az ág,  
+ Halkan csengetyűzött a föld alatt  
+ Sok eltemetett csengetyűvirág.  
+ Egy percre ma  
+ Megpróbáltam a más lelkébe látni,  
+ Nem ítélve és el nem ítéltetve:  
+ Bocsánatot nyerni és megbocsátni.  
+ Egy percre ma  
+ Ragyogtak reám halvány testvér-arcok,  
+ Amelyek elé köd ereszkedett:  
+ Céltalan hajsza és megutált harcok.  
+ Egy percre ma,  
+ Ó tiszta, bölcs és boldog látomás:  
+ Elváltozott, mint Jézus a hegyen  
+ A mindenség, - s be más lett, ó be más!  
+ Egy percre ma...  
+ Nem lehet ezt a percet kibeszélni.  
+ Hogy is tudna szivárványglóriás  
+ Tündértörékeny teste rímbe férni!  
+ Egy percre ma  
+ Oly boldog voltam s oly boldogtalan,  
+ Tudva: e perc egy percig tart csupán -  
+ És aztán vége van.  
+ És én ki tudja meddig várhatok,  
+ Lesve zug-éltem kis part-szögletéből  
+ Míg újra fölbukkan egy ily vitorla  
+ Az örökkévalóság tengeréből.
+
 **HIRDETÉSEINK NAGYBÖJT 2. VASÁRNAPJÁN –**
 
 **2021. FEBRUÁR 28 - MÁRCIUS 7.**
@@ -22,66 +84,66 @@ REMÉNYIK SÁNDOR
 KENYÉR HELYETT
 
 "Változtasd a köveket kenyerekké!" -  
- Nem a sátán szól. Milliók zokogják.  
- Egyetlen jajkiáltás a világ,  
- Egyetlen kéztördelő mozdulat,  
- Egyetlenegy roppant fenyegetés.  
- A nyomorúság völgyei fölött  
- A bosszúálló Isten hegyei  
- Feltornyosulnak irgalmatlanul,  
- Nem indulnak változni kenyerekké.
+Nem a sátán szól. Milliók zokogják.  
+Egyetlen jajkiáltás a világ,  
+Egyetlen kéztördelő mozdulat,  
+Egyetlenegy roppant fenyegetés.  
+A nyomorúság völgyei fölött  
+A bosszúálló Isten hegyei  
+Feltornyosulnak irgalmatlanul,  
+Nem indulnak változni kenyerekké.
 
 "Változtasd a köveket kenyerekké!"  
- Hallom én is a rettentő igét,  
- Mint végítélet, úgy zuhan reám,  
- Szíven talál, mint kővé vált kenyér.  
- Az életemet mostan kérik számon,  
- Most köveznek kővé vált kenyerekkel.  
- Megálljatok... nagyon bűnös vagyok,  
- De talán mégsem úgy, mint hiszitek.  
- Én nem vettem el senki kenyerét,  
- Csak ép nem tudtam kenyeret keresni,  
- Csak éltem, éltem, ingyen, irgalomból,  
- Az Isten irgalmának hegyeit  
- Bebolyongtam virágot szedegetve,  
- Tudom, nem ér most falat kenyeret  
- Az egész szárazvirág-gyüjtemény.
+Hallom én is a rettentő igét,  
+Mint végítélet, úgy zuhan reám,  
+Szíven talál, mint kővé vált kenyér.  
+Az életemet mostan kérik számon,  
+Most köveznek kővé vált kenyerekkel.  
+Megálljatok... nagyon bűnös vagyok,  
+De talán mégsem úgy, mint hiszitek.  
+Én nem vettem el senki kenyerét,  
+Csak ép nem tudtam kenyeret keresni,  
+Csak éltem, éltem, ingyen, irgalomból,  
+Az Isten irgalmának hegyeit  
+Bebolyongtam virágot szedegetve,  
+Tudom, nem ér most falat kenyeret  
+Az egész szárazvirág-gyüjtemény.
 
 "Változtasd a köveket kenyerekké!" -  
- Máskor talán feleltem volna rá,  
- Szóltam volna: "Nem csak kenyérrel éltek!"  
- Most torkom, szívem egyként elszorul,  
- Szédül a szó és megfullad a hang.  
- Csak Egy, csak Egy, csak Egy felelhet így, -  
- Nem én, nem én, az Ő nevébe se...  
- Testvéreim, ha volna rá hatalmam,  
- Testvéreim, ha tőlem függene,  
- Holnap puha sziklákon pihennétek,  
- Kenyérhegyek nőnének számotokra,  
- Hegyóriások csupa szín-kenyérből,  
- Merő aranykalácsból Alpesek...  
- De nincs hatalmam, - betegen bolyongok,  
- S még most is virágokat keresek.  
- S ha még találok egy-egy halaványat:  
- Tépelődöm, hogy megmutassam-e?  
- Asztalotokra merjem-e belopni -  
- Kenyértelen, üres asztalotokra  
- Kenyértelen kővilág kis virágát? -  
- Vagy morzsoljam szét a kezem között,  
- Mielőtt bárki rátekintene,  
- És fojtsam meg, mint gyermekét anya,  
- Mint bukott leány drága szégyenét?
+Máskor talán feleltem volna rá,  
+Szóltam volna: "Nem csak kenyérrel éltek!"  
+Most torkom, szívem egyként elszorul,  
+Szédül a szó és megfullad a hang.  
+Csak Egy, csak Egy, csak Egy felelhet így, -  
+Nem én, nem én, az Ő nevébe se...  
+Testvéreim, ha volna rá hatalmam,  
+Testvéreim, ha tőlem függene,  
+Holnap puha sziklákon pihennétek,  
+Kenyérhegyek nőnének számotokra,  
+Hegyóriások csupa szín-kenyérből,  
+Merő aranykalácsból Alpesek...  
+De nincs hatalmam, - betegen bolyongok,  
+S még most is virágokat keresek.  
+S ha még találok egy-egy halaványat:  
+Tépelődöm, hogy megmutassam-e?  
+Asztalotokra merjem-e belopni -  
+Kenyértelen, üres asztalotokra  
+Kenyértelen kővilág kis virágát? -  
+Vagy morzsoljam szét a kezem között,  
+Mielőtt bárki rátekintene,  
+És fojtsam meg, mint gyermekét anya,  
+Mint bukott leány drága szégyenét?
 
 "Változtasd a köveket kenyerekké!"  
- Hegyeket változtatnék - nem lehet.  
- Kenyértelen, kegyetlen kővilágban  
- Lehajtom megadással fejemet.  
- Testvéreim, ne könyörüljetek.  
- Kenyértelen, kegyetlen kővilágban,  
- A bosszúálló Isten hegyein  
- Én nektek most is csak virágot téptem.  
- Zuhogj fejemre, kővé vált kenyér:  
- Én vétkem, én vétkem, én igen nagy vétkem.
+Hegyeket változtatnék - nem lehet.  
+Kenyértelen, kegyetlen kővilágban  
+Lehajtom megadással fejemet.  
+Testvéreim, ne könyörüljetek.  
+Kenyértelen, kegyetlen kővilágban,  
+A bosszúálló Isten hegyein  
+Én nektek most is csak virágot téptem.  
+Zuhogj fejemre, kővé vált kenyér:  
+Én vétkem, én vétkem, én igen nagy vétkem.
 
 **HIRDETÉSEINK NAGYBÖJT 1. VASÁRNAPJÁN - 2021. FEBRUÁR 21-28.**
 
