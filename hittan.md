@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. MÁRCIUS 14.**
+
+**1438** A bűnbánati idők és napok a liturgikus év folyamán (nagyböjti idő, a pénteki napok az Úr halálának emlékezetére) értékes alkalmak az Egyház bűnbánati gyakorlata számára. Ezek az idők különösen alkalmasak lelkigyakorlatokra, bűnbánati liturgiákra, bűnbánati zarándoklatokra, önkéntes lemondásokra -- például böjt és alamizsnaadás -- és a testvéri segítségnyújtásra (karitatív és missziós tevékenység).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. MÁRCIUS 7.**
 
 **583** Jézus, miként előtte a próféták, a jeruzsálemi Templom iránt mélységes tiszteletet tanúsított. Itt mutatta be József és Mária a születése után negyven nappal. Tizenkét évesen úgy határozott, hogy a Templomban marad, hogy szüleit emlékeztesse, hogy neki Atyja dolgaiban kell lennie. Rejtett élete során évről évre legalább a húsvéti ünnepre fölment a Templomba; nyilvános működésének szinte ritmusát adta a zsidók nagy ünnepeinek jeruzsálemi zarándoklata.
