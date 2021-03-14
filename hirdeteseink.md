@@ -15,224 +15,226 @@ title: Hirdetéseink
 
 **Jövő szombaton** 17 órakor német-magyar szentmise lesz templomunkban, melyet Berecz Tibor atya és Zoltán atya mutatnak be.
 
+**Jövő vasárnap** a Szentföld megsegítésére lesz országos templomi gyűjtés.
+
 **_Sík Sándor:_**
 
 **Megyeri hitvallás**
 
 Őrt áll a Hold a Nagykevély felett.  
- Ezer sátorban nyolcezer fiú  
- Munkás nap után izmos álmot alszik.  
- Kismagyarország nagyot álmodik.
+Ezer sátorban nyolcezer fiú  
+Munkás nap után izmos álmot alszik.  
+Kismagyarország nagyot álmodik.
 
 A völgyben itt-ott pislogó tüzek  
- Föl-fölvetik még fáradt szemüket,  
- És hunyorgatnak: Mire jó?
+Föl-fölvetik még fáradt szemüket,  
+És hunyorgatnak: Mire jó?
 
 Állok a dombon s birkózom magammal:  
- Szorongatom a „Mire jó?”-kígyó,  
- Az ezeréves őskígyó nyakát.  
- És a kígyó sziszeg, sziszeg:  
- Mit állsz itt,  
- Te nagy bolond, gyereknél gyerekebb?  
- Mire jó ez a cifra katonásdi?  
- Poéta-álom, gyönyörű hazugság?  
- A görgeteg elébe fekszel-é?  
- Őserdők lángját kézzel olthatod?  
- Foltos hullába támaszthatsz-e lelket?
+Szorongatom a „Mire jó?”-kígyó,  
+Az ezeréves őskígyó nyakát.  
+És a kígyó sziszeg, sziszeg:  
+Mit állsz itt,  
+Te nagy bolond, gyereknél gyerekebb?  
+Mire jó ez a cifra katonásdi?  
+Poéta-álom, gyönyörű hazugság?  
+A görgeteg elébe fekszel-é?  
+Őserdők lángját kézzel olthatod?  
+Foltos hullába támaszthatsz-e lelket?
 
 Nézd, délfelé pokolveres az ég.  
- Tudod, mi az? A pesti éjszaka!  
- Mozik reklámja, kávéházi csillár,  
- Szeméremoltó színpadok tüze,  
- Vadember-tánc őrjöngő forgatagja,  
- Csupasz testeknek festett fénye-szennye,  
- Lihegő, lázas, cigarettafüstös,  
- Villanysugaras, izzó rothadás.  
- Nem látod-e, hogy tántorog belé  
- A céda fénybe minden, ami ép?  
- A nemzet húsa, édes veleje,  
- Haza és jövő és emberiség!
+Tudod, mi az? A pesti éjszaka!  
+Mozik reklámja, kávéházi csillár,  
+Szeméremoltó színpadok tüze,  
+Vadember-tánc őrjöngő forgatagja,  
+Csupasz testeknek festett fénye-szennye,  
+Lihegő, lázas, cigarettafüstös,  
+Villanysugaras, izzó rothadás.  
+Nem látod-e, hogy tántorog belé  
+A céda fénybe minden, ami ép?  
+A nemzet húsa, édes veleje,  
+Haza és jövő és emberiség!
 
 Halál, halál! – Ezek itt alszanak!  
- Meddig virrasztol ifjú álmukon?  
- Hisz véreik, az édes véreik  
- (Tegnap még ifjú-épek, mint ma ők!)  
- Ott ránganak a Sátán ütemén!  
- Odakerülnek ők is! Ha ma nem  
- Holnap talán, vagy esztendő-ilyenkor:  
- Mind ott kering a hullatánc-füzérben,  
- És onnan nevet téged és Megyert,  
- S az ezer-sátor gyerek-mítoszát!  
- Bolond! Bolond! Poéta! Mire jó?
+Meddig virrasztol ifjú álmukon?  
+Hisz véreik, az édes véreik  
+(Tegnap még ifjú-épek, mint ma ők!)  
+Ott ránganak a Sátán ütemén!  
+Odakerülnek ők is! Ha ma nem  
+Holnap talán, vagy esztendő-ilyenkor:  
+Mind ott kering a hullatánc-füzérben,  
+És onnan nevet téged és Megyert,  
+S az ezer-sátor gyerek-mítoszát!  
+Bolond! Bolond! Poéta! Mire jó?
 
 Másfelé nézel? Keletre, nyugatra?  
- Alföld! Dunántúl! Alszik. Minden alszik!  
- És álmaik, merész nagy álmaik  
- Meddig repesnek? Egyiké: a szomszéd  
- Kövér telkéig, falu végéig;  
- A másiké: hogy eztán tíz garast  
- Kaparhasson kilenc helyett;  
- A harmadik: hogy egy collal magasabb  
- Székbe ülhessen, mint a többiek.  
- Álom, álom! Ki hallja itt  
- A Kárpátok sikongató szelét?  
- Kinek fáj itt, ami téged gyötör?  
- Ki sejti itt Megyernek álmait?  
- Alföld? Dunántúl? Alszik. Vagy halott?  
- S az Isten föltámaszt-e oly halottat,  
- Aki jól érzi a sírban magát?  
- Megyer? Ezeknek? Bolond! Mire jó?
+Alföld! Dunántúl! Alszik. Minden alszik!  
+És álmaik, merész nagy álmaik  
+Meddig repesnek? Egyiké: a szomszéd  
+Kövér telkéig, falu végéig;  
+A másiké: hogy eztán tíz garast  
+Kaparhasson kilenc helyett;  
+A harmadik: hogy egy collal magasabb  
+Székbe ülhessen, mint a többiek.  
+Álom, álom! Ki hallja itt  
+A Kárpátok sikongató szelét?  
+Kinek fáj itt, ami téged gyötör?  
+Ki sejti itt Megyernek álmait?  
+Alföld? Dunántúl? Alszik. Vagy halott?  
+S az Isten föltámaszt-e oly halottat,  
+Aki jól érzi a sírban magát?  
+Megyer? Ezeknek? Bolond! Mire jó?
 
 Te még tovább tekintel? Nyugaton,  
- Északon, Délen hordozod szemed?  
- Az Emberiségnek ültetsz új palántát?  
- Főnixet vársz, újjá-kelő világot?  
- Hát nem látod az üstököst az égen,  
- Száz üstököst, vérfarkas hírnököt?
+Északon, Délen hordozod szemed?  
+Az Emberiségnek ültetsz új palántát?  
+Főnixet vársz, újjá-kelő világot?  
+Hát nem látod az üstököst az égen,  
+Száz üstököst, vérfarkas hírnököt?
 
 Nem érzed-e, hogy az emberiség  
- Mély szívében valami meghasadt?  
- Ember volt mindig ember farkasa,  
- De a farkas is falkában vonít;  
- Most, most a farkas farkast fojtogat,  
- Testvér testvérnek marcangolja torkát,  
- Jóllakott éhest, éhes jóllakottat.  
- Mert ütni fáj, mindenki érzi már.  
- Fáj az ütöttnek, jobban az ütőnek,  
- És mégis: őrült, gazdátlan kezek  
- Céltalanul az izzó levegőben  
- Csak kaszabolnak, zúznak, irtanak.  
- S míg meggyalázva könyvet és keresztet,  
- Az őrjöngő emberkirály  
- Ízekre tépi teste templomát:  
- Köröskörül a vérsötét egen  
- Toronyodnak vigyorgó ördögárnyak:  
- Vörös rém, sárga rém, fekete rém.  
- Halál, halál!  
- Emberhalál és istenalkonyat!  
- Kettérepedt a korhadt földgolyó!  
- Azt véled-e, hogy egypár brit suhanccal,  
- Egy félmaréknyi germán álmodóval,  
- Egy sátoralja vállas kismagyarral  
- A hulló gömböt összetarthatod?  
- A szálló Lelket visszakeltheted?  
- Eredj, bolondos, magad-hitető!  
- Hadd rúgja szét a szürkelábú hajnal  
- A tábortűz haldokló hamvait,  
- Eredj aludni, mint a csillagok,  
- Aludni, mint az Isten. Nincs miért?
+Mély szívében valami meghasadt?  
+Ember volt mindig ember farkasa,  
+De a farkas is falkában vonít;  
+Most, most a farkas farkast fojtogat,  
+Testvér testvérnek marcangolja torkát,  
+Jóllakott éhest, éhes jóllakottat.  
+Mert ütni fáj, mindenki érzi már.  
+Fáj az ütöttnek, jobban az ütőnek,  
+És mégis: őrült, gazdátlan kezek  
+Céltalanul az izzó levegőben  
+Csak kaszabolnak, zúznak, irtanak.  
+S míg meggyalázva könyvet és keresztet,  
+Az őrjöngő emberkirály  
+Ízekre tépi teste templomát:  
+Köröskörül a vérsötét egen  
+Toronyodnak vigyorgó ördögárnyak:  
+Vörös rém, sárga rém, fekete rém.  
+Halál, halál!  
+Emberhalál és istenalkonyat!  
+Kettérepedt a korhadt földgolyó!  
+Azt véled-e, hogy egypár brit suhanccal,  
+Egy félmaréknyi germán álmodóval,  
+Egy sátoralja vállas kismagyarral  
+A hulló gömböt összetarthatod?  
+A szálló Lelket visszakeltheted?  
+Eredj, bolondos, magad-hitető!  
+Hadd rúgja szét a szürkelábú hajnal  
+A tábortűz haldokló hamvait,  
+Eredj aludni, mint a csillagok,  
+Aludni, mint az Isten. Nincs miért?
 
 S állván a zászlótartó domb fején,  
- Ezer sátor fehér hullámain,  
- Szeges sarkam a vén homokba vágom,  
- Hogy a Vezérdomb fölsajog belé,  
- És ajakammal nyolcezer fiú  
- Énekel égre vallomást:  
- Hiszek!  
- Hiszek!  
- A tűzben, amely odalent parázslik,  
- És holnap este újra föllobog,  
- És minden este újra föllobog,  
- És föllobog délen és északon,  
- Egy tűz, száz tűz, ezer tűz,  
- És föltüzel – piros zsoltár – az égre,  
- És sápadt arcot rózsaszínre fest,  
- És a szemekbe ősi lángot villant.  
- A tűzoszlopban, amely gyújtatott,  
- Olajmécs volt a katakomba éjén,  
- És tábortűz a lappangó kurucnak.  
- Hiszek a Tűzben, amely eljövendő,  
- Amely a szívek katlanát feszíti,  
- És el nem alszik pernye-szenny alatt.
+Ezer sátor fehér hullámain,  
+Szeges sarkam a vén homokba vágom,  
+Hogy a Vezérdomb fölsajog belé,  
+És ajakammal nyolcezer fiú  
+Énekel égre vallomást:  
+Hiszek!  
+Hiszek!  
+A tűzben, amely odalent parázslik,  
+És holnap este újra föllobog,  
+És minden este újra föllobog,  
+És föllobog délen és északon,  
+Egy tűz, száz tűz, ezer tűz,  
+És föltüzel – piros zsoltár – az égre,  
+És sápadt arcot rózsaszínre fest,  
+És a szemekbe ősi lángot villant.  
+A tűzoszlopban, amely gyújtatott,  
+Olajmécs volt a katakomba éjén,  
+És tábortűz a lappangó kurucnak.  
+Hiszek a Tűzben, amely eljövendő,  
+Amely a szívek katlanát feszíti,  
+És el nem alszik pernye-szenny alatt.
 
 Hiszek a szélben, fürge cimboránkban,  
- Amely a szemből álmodást söpör,  
- És bacillust a rothadt utcalégből,  
- Lobogót lebbent, lábat táncra szökkent,  
- Nótát fakaszt és vitorlát dagaszt,  
- S tábortüzeink dacos dallamát  
- A Lomnic és a Hargita tövében  
- Fülébe súgja testvértáborok  
- Húnyó tüzét kavaró ikreinknek.
+Amely a szemből álmodást söpör,  
+És bacillust a rothadt utcalégből,  
+Lobogót lebbent, lábat táncra szökkent,  
+Nótát fakaszt és vitorlát dagaszt,  
+S tábortüzeink dacos dallamát  
+A Lomnic és a Hargita tövében  
+Fülébe súgja testvértáborok  
+Húnyó tüzét kavaró ikreinknek.
 
 Hiszek a földben, ifjú szép anyánkban,  
- Hogy édesünk, nem morcos mostohánk,  
- És ezer jóval boldog méhe áldott.  
- Tudom, hogy már vajúdik és remeg:  
- Már ideszült körém a semmiből  
- Ezer sátort és nyolcezer fiút.  
- Hiszem, hogy egyszer olyan dalra gyújt,  
- Hogy meghallják a renegát kövek,  
- Szétomlanak a gyilkos Bábelek,  
- A hullamérges város-pörsenések  
- Szűz bőre hamván fehérre simulnak,  
- És mézes melle újszülött tején  
- Új dallal emtet új embernemet.  
- Hiszek!  
- A kevesek egymásba tett kezében,  
- A testvérszóban, a bajtársmarokban,  
- Az érben, mely patak lesz és folyó,  
- S halott tengerbe életet zuhant.  
- A Szépségben, hogy szebb és édesebb  
- A rútnál, és szürkét széppé tehet.  
- A tiszta vízben, hogy sodorni tud,  
- És ragadóbb a szennyvíz-áradásnál.  
- A vízözönben, szeretetözönben,  
- Jóság-galambban, Lélek-Ararátban.
+Hogy édesünk, nem morcos mostohánk,  
+És ezer jóval boldog méhe áldott.  
+Tudom, hogy már vajúdik és remeg:  
+Már ideszült körém a semmiből  
+Ezer sátort és nyolcezer fiút.  
+Hiszem, hogy egyszer olyan dalra gyújt,  
+Hogy meghallják a renegát kövek,  
+Szétomlanak a gyilkos Bábelek,  
+A hullamérges város-pörsenések  
+Szűz bőre hamván fehérre simulnak,  
+És mézes melle újszülött tején  
+Új dallal emtet új embernemet.  
+Hiszek!  
+A kevesek egymásba tett kezében,  
+A testvérszóban, a bajtársmarokban,  
+Az érben, mely patak lesz és folyó,  
+S halott tengerbe életet zuhant.  
+A Szépségben, hogy szebb és édesebb  
+A rútnál, és szürkét széppé tehet.  
+A tiszta vízben, hogy sodorni tud,  
+És ragadóbb a szennyvíz-áradásnál.  
+A vízözönben, szeretetözönben,  
+Jóság-galambban, Lélek-Ararátban.
 
 Mert hiszek az Igében,  
- Mely elhangzott a teremtés felett,  
- És testté lett az idők telijében.  
- A Kovászban:  
- Hogy emberségünk lomha derce-lisztjét  
- Mégiscsak egyszer élővé keleszti.  
- A Hegyi Beszéd próféta-szavát  
- Falánk idők fertelmes bálna-gyomra  
- Hiába nyelte el, lesz még egy harmadik nap,  
- Mikor a mélyből felsüvölt a szó,  
- És nem lesz, aki meg ne hallaná.  
- A Mustármagban, mely kiszóratott,  
- És szívében hordozza a jövőt,  
- Mert újrazsendül minden ezerévben,  
- És odatartja fészkes lombozatját  
- Viharzilálta embermadaraknak,  
- S testvérörömben elfér ágain  
- Fehér madár és fekete madár  
- És sárga és piros és minden.
+Mely elhangzott a teremtés felett,  
+És testté lett az idők telijében.  
+A Kovászban:  
+Hogy emberségünk lomha derce-lisztjét  
+Mégiscsak egyszer élővé keleszti.  
+A Hegyi Beszéd próféta-szavát  
+Falánk idők fertelmes bálna-gyomra  
+Hiába nyelte el, lesz még egy harmadik nap,  
+Mikor a mélyből felsüvölt a szó,  
+És nem lesz, aki meg ne hallaná.  
+A Mustármagban, mely kiszóratott,  
+És szívében hordozza a jövőt,  
+Mert újrazsendül minden ezerévben,  
+És odatartja fészkes lombozatját  
+Viharzilálta embermadaraknak,  
+S testvérörömben elfér ágain  
+Fehér madár és fekete madár  
+És sárga és piros és minden.
 
 A Lélekben hiszek,  
- Amely megzúdul ott, ahol akar.  
- Hiszem, hogy zúdul, akar és teremt,  
- Zúdul s teremt miáltalunk.  
- A Lélekben, amely az élet,  
- Amely tojáshéjat repeszt,  
- Búzaszemet bukkant a hant alól,  
- És sziklából Krisztust kelet.  
- A Lélekben, amely bennünk dörömböl,  
- És az idők méhében harsadoz,  
- És énekel az ajkamon: Hiszek!  
- Hiszek.
+Amely megzúdul ott, ahol akar.  
+Hiszem, hogy zúdul, akar és teremt,  
+Zúdul s teremt miáltalunk.  
+A Lélekben, amely az élet,  
+Amely tojáshéjat repeszt,  
+Búzaszemet bukkant a hant alól,  
+És sziklából Krisztust kelet.  
+A Lélekben, amely bennünk dörömböl,  
+És az idők méhében harsadoz,  
+És énekel az ajkamon: Hiszek!  
+Hiszek.
 
 És hogyha nem: hát akkor is!  
- Ha mindhiába: akkor is!  
- Ha minden álom: akkor is!  
- Ha minden meghal: akkor is!  
- A szép akkor is szép marad,  
- A tiszta tiszta, rút a rút.  
- Az Igazság igazság akkor is,  
- Ha meg nem látja senki szem.  
- A Szeretet mosolyog és szeret,  
- És a kereszten is király.  
- A tett különb a tunyaságnál,  
- És hol a tépett lobogónál  
- Tiszteletesebb szemfedő?
+Ha mindhiába: akkor is!  
+Ha minden álom: akkor is!  
+Ha minden meghal: akkor is!  
+A szép akkor is szép marad,  
+A tiszta tiszta, rút a rút.  
+Az Igazság igazság akkor is,  
+Ha meg nem látja senki szem.  
+A Szeretet mosolyog és szeret,  
+És a kereszten is király.  
+A tett különb a tunyaságnál,  
+És hol a tépett lobogónál  
+Tiszteletesebb szemfedő?
 
 Mert akit egyszer meglehelt a Lélek,  
- Annak mindegy-lom élet vagy halál:  
- Az él és áll és énekel és alkot,  
- Megyeren és Magyarországon,  
- Hét világrészen és a másvilágon,  
- Az Isten őtet úgy segélje. Amen.
+Annak mindegy-lom élet vagy halál:  
+Az él és áll és énekel és alkot,  
+Megyeren és Magyarországon,  
+Hét világrészen és a másvilágon,  
+Az Isten őtet úgy segélje. Amen.
 
 _Megyeri cserkésztábor, 1926. július_
 
@@ -250,7 +252,7 @@ _Megyeri cserkésztábor, 1926. július_
 
 **A Barátok Lapja**-plébániai tájékoztató- ebben a hónapban csak a plébániai internetes felületén jelenik meg. [https://pecsi-ferences.github.io/assets/pdfs/2021-03.pdf](https://pecsi-ferences.github.io/assets/pdfs/2021-03.pdf "https://pecsi-ferences.github.io/assets/pdfs/2021-03.pdf")
 
-| --- | --- | --- | --- | | Reményik Sándor Egy perc |  | 
+| --- | --- | --- | --- | | Reményik Sándor Egy perc |  |
 
 Egy percre ma  
 Úgy néztem fel a csillagokra én,  
