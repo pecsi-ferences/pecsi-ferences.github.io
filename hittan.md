@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2021. MÁRCIUS 21.**
+
+**1006** "Az emberi lét a halál színe előtt válik a legnagyobb talánnyá". A testi halál bizonyos értelemben természetes, ám a hit szemében valójában a "bűn zsoldja" (Róm 6,23). Azok számára viszont, akik Krisztus kegyelmében halnak meg, a halál részesedés az Úr halálában, hogy föltámadásában is részesülhessenek.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. MÁRCIUS 14.**
 
 **1438** A bűnbánati idők és napok a liturgikus év folyamán (nagyböjti idő, a pénteki napok az Úr halálának emlékezetére) értékes alkalmak az Egyház bűnbánati gyakorlata számára. Ezek az idők különösen alkalmasak lelkigyakorlatokra, bűnbánati liturgiákra, bűnbánati zarándoklatokra, önkéntes lemondásokra -- például böjt és alamizsnaadás -- és a testvéri segítségnyújtásra (karitatív és missziós tevékenység).
