@@ -11,42 +11,46 @@ title: Hirdetéseink
 
 **Hétfőn** **és csütörtökön** 18 óra 30 perctől a Szent Egyed közösség imaórája lesz templomunkban.
 
+**Csütörtökön** lesz Urunk Születésének Hírüladása Ünnepe, vagyis Gyümölcsoltó Boldogasszony Ünnepe.
+
 **Pénteken** a 17 órai szentmise után keresztutat végzünk a templomban.
 
 **Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkban. A plébániai szentmise- a szokott időben- 17 órakor kezdődik.**
 
+**Jövő vasárnap lesz az Óraátállítás.**
+
 AZ ÚR VEZET…
 
 Emlékezzelek!  
- És mintha csak tegnap történt volna,  
- Halljátok meg ismét az elhívást!  
- És dobbanjon rá újra szívetek,  
- ne kívánjatok soha, soha mást!  
- Akármi lesz… Az Úr vezet…
+És mintha csak tegnap történt volna,  
+Halljátok meg ismét az elhívást!  
+És dobbanjon rá újra szívetek,  
+ne kívánjatok soha, soha mást!  
+Akármi lesz… Az Úr vezet…
 
 Az elhívás nem sima útra szólt,  
- És nem vert nektek hidat a vízen,  
- A víz víz maradt, az élet élet.  
- De – járni tanított a tengeren…  
- A víz felett…  
- Az Úr vezet!  
- Szürke, nehéz köd borul reátok.  
- Sokan inganak, sokan elesnek,  
- – Testvéreim! De ti álljatok meg!  
- Mert rajta kívül bármit is kerestek,  
- Kudarcba fúl…  
- Vezet az Úr…
+És nem vert nektek hidat a vízen,  
+A víz víz maradt, az élet élet.  
+De – járni tanított a tengeren…  
+A víz felett…  
+Az Úr vezet!  
+Szürke, nehéz köd borul reátok.  
+Sokan inganak, sokan elesnek,  
+– Testvéreim! De ti álljatok meg!  
+Mert rajta kívül bármit is kerestek,  
+Kudarcba fúl…  
+Vezet az Úr…
 
 Higgyétek el és ma még erősebb  
- Legyen bennetek a drága tudat  
- Hogy bármi sötét köd is száll reátok,  
- A felhők között ott fénylik a napi  
- Egyszer előtör izzó sugárral,  
- S akit elhívott szent elhivatással,  
- Boldog lesz, hogy nem lett hűtelen.  
- Mert vezet az Úr,  
- Vezet…  
- Szüntelen…
+Legyen bennetek a drága tudat  
+Hogy bármi sötét köd is száll reátok,  
+A felhők között ott fénylik a napi  
+Egyszer előtör izzó sugárral,  
+S akit elhívott szent elhivatással,  
+Boldog lesz, hogy nem lett hűtelen.  
+Mert vezet az Úr,  
+Vezet…  
+Szüntelen…
 
 _Lukátsi Vilma_
 
