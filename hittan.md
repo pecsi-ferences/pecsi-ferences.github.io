@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.MÁRCIUS 28.**
+
+**1095** Ezért az Egyház főként Advent és Nagyböjt idején, és leginkább húsvét éjszakáján az üdvtörténet e nagy eseményeit, liturgiájának "mai napján" újraolvassa és újraéli. Ez azonban megkívánja azt is, hogy a katekézis segítse a hívőket megnyílni az üdvrend e "lelki" megértésére, amint azt az Egyház a liturgiában megmutatja és éli.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2021. MÁRCIUS 21.**
 
 **1006** "Az emberi lét a halál színe előtt válik a legnagyobb talánnyá". A testi halál bizonyos értelemben természetes, ám a hit szemében valójában a "bűn zsoldja" (Róm 6,23). Azok számára viszont, akik Krisztus kegyelmében halnak meg, a halál részesedés az Úr halálában, hogy föltámadásában is részesülhessenek.
