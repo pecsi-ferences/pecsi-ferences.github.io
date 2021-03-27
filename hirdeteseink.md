@@ -3,6 +3,53 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK VIRÁGVASÁRNAP**
+
+**2021. MÁRCIUS 28-ÁPRILIS 4.**
+
+**Most** hétvégén van az Óraátállítás.
+
+**Ma** 15 óra 30 perckor horvát nyelvű rózsafüzér lesz templomunkban, majd 16 órakor horvát nyelvű szentmise lesz. A plébániai szentmise 17 órakor kezdődik.
+
+**Jövő** héten kezdődik a Nagyhét.
+
+**Hétfőn** 18 óra 30 perctől a Szent Egyed közösség imaórája lesz templomunkban.
+
+**Nagycsütörtökön** 17 órakor az Utolsó Vacsora tiszteletére mutatjuk be a szentmisét.
+
+**Nagypénteken 16 órakor keresztutat végzünk a templomban. A nagypénteki szertartás (csonkamise) 17 órakor kezdődik.**
+
+**Nagyszombaton 17 órakor kezdődik a szertartás templomunkban.**
+
+**Húsvétvasárnap 8 órakor és 17 órakor lesznek a szentmisék templomunkban.**
+
+**Múlt vasárnap a Szentföld javára volt országos templomi gyűjtés. Templomunkban 59 500 forint gyűlt össze erre a célra. Köszönjük a jószívűséget!**
+
+**Virágvasárnap az idei évben online passió lesz, melyet ma 15 órától az egyházmegye internetes felületein lehet nyomon követni.**
+
+Wass Albert – Ünnepvárás
+
+**Erdők, rétek, mezők:  
+ terítsetek eléje szőnyeget!**
+
+**Amikor erre jön:**  
+ **virágok, nyíljatok előtte ki.**  
+ **Pacsirták: énekeljetek!**  
+ **Patakok: csengjetek, nevessetek!**  
+ **Galambok: búgjatok!**  
+ **A nagy mező dallal legyen tele,**  
+ **és napsugárral, fénnyel, szerelemmel,**  
+ **csak tavasz legyen akkor és kacagás,**  
+ **szemeinkben ne lásson könnyeket…..**  
+ **Erdők, rétek, mezők:**  
+ **terítsetek eléje szőnyeget!**
+
+**Én majd csak nézni fogom “ŐT”,**  
+ **és imádkozva szüntelen,**  
+ **Ha rám se néz, ha meg se lát,**  
+ **megcsókolom a lábai nyomát:**  
+ **nekem ez lesz a legszebb ünnepem!**
+
 **HIRDETÉSEINK NAGYBÖJT 5. VASÁRNAPJÁN**
 
 **2021. MÁRCIUS 21-28.**
