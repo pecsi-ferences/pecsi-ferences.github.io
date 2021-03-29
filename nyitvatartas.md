@@ -3,6 +3,11 @@ layout: default
 title: Hivatal nyitvatartása
 
 ---
+2021\.április 1-én a hivatal zárva tart.
+
+2021\.április 2-án délután a hivatal zárva tart.
+
+2021\.április 5-én a hivatal zárva tart.
 
 # Hivatal nyitvatartása
 
