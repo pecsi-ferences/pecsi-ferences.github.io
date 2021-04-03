@@ -3,6 +3,43 @@ layout: default
 title: Hirdetéseink
 
 ---
+HIRDETÉSEINK HÚSVÉTVASÁRNAP-2021. ÁPRILIS 4-11.
+
+Ma 8 órakor és 17 órakor vannak a szentmisék templomunkba.
+
+Húsvéthétfőn 8 órakor és 17 órakor lesznek a plébániai szentmisék, de 16 órakor horvát nyelvű szentmise is lesz.
+
+Jövő vasárnap lesz az Isteni Irgalmasság Vasárnapja. Mivel ez a hónap második vasárnapja, ezért 16 órától szentségimádási órát tartunk templomunkban.
+
+Megjelent a Barátok Lapja áprilisi száma.
+
+[https://pecsi-ferences.github.io/assets/pdfs/2021-04.pdf](https://pecsi-ferences.github.io/assets/pdfs/2021-04.pdf "https://pecsi-ferences.github.io/assets/pdfs/2021-04.pdf")
+
+**Juhász Gyula:  
+ Húsvétra**  
+   
+ Köszönt e vers, te váltig visszatérő  
+ Föltámadás a földi tájakon,  
+ Mezők smaragdja, nap tüzében égő,  
+ Te zsendülő és zendülő pagony!  
+ Köszönt e vers, élet, örökkön élő,  
+ Fogadd könnyektől harmatos dalom:  
+ Szívemnek már a gyász is röpke álom  
+ S az élet: győzelem az elmuláson.  
+   
+ ................  
+   
+ Egy régi húsvét fényénél borongott  
+ S vigasztalódott sok tűnt nemzedék,  
+ Én dalt jövendő húsvétjára zsongok  
+ És neki szánok lombot és zenét.  
+ E zene túlzeng majd minden harangot  
+ S betölt e Húsvét majd minden reményt.  
+ Addig zöld ágban és piros virágban  
+ Hirdesd világ, hogy új föltámadás van!
+
+ÁLDOTT HÚSVÉTOT MINDENKINEK!
+
 **HIRDETÉSEINK VIRÁGVASÁRNAP**
 
 **2021. MÁRCIUS 28-ÁPRILIS 4.**
@@ -30,25 +67,25 @@ title: Hirdetéseink
 Wass Albert – Ünnepvárás
 
 **Erdők, rétek, mezők:  
- terítsetek eléje szőnyeget!**
+terítsetek eléje szőnyeget!**
 
 **Amikor erre jön:**  
- **virágok, nyíljatok előtte ki.**  
- **Pacsirták: énekeljetek!**  
- **Patakok: csengjetek, nevessetek!**  
- **Galambok: búgjatok!**  
- **A nagy mező dallal legyen tele,**  
- **és napsugárral, fénnyel, szerelemmel,**  
- **csak tavasz legyen akkor és kacagás,**  
- **szemeinkben ne lásson könnyeket…..**  
- **Erdők, rétek, mezők:**  
- **terítsetek eléje szőnyeget!**
+**virágok, nyíljatok előtte ki.**  
+**Pacsirták: énekeljetek!**  
+**Patakok: csengjetek, nevessetek!**  
+**Galambok: búgjatok!**  
+**A nagy mező dallal legyen tele,**  
+**és napsugárral, fénnyel, szerelemmel,**  
+**csak tavasz legyen akkor és kacagás,**  
+**szemeinkben ne lásson könnyeket…..**  
+**Erdők, rétek, mezők:**  
+**terítsetek eléje szőnyeget!**
 
 **Én majd csak nézni fogom “ŐT”,**  
- **és imádkozva szüntelen,**  
- **Ha rám se néz, ha meg se lát,**  
- **megcsókolom a lábai nyomát:**  
- **nekem ez lesz a legszebb ünnepem!**
+**és imádkozva szüntelen,**  
+**Ha rám se néz, ha meg se lát,**  
+**megcsókolom a lábai nyomát:**  
+**nekem ez lesz a legszebb ünnepem!**
 
 **HIRDETÉSEINK NAGYBÖJT 5. VASÁRNAPJÁN**
 
