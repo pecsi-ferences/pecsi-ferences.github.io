@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. ÁPRILIS 4.**
+
+**1168** A föltámadás új ideje a húsvéti szent három napból mint fényforrásból beragyogja az egész liturgikus évet. Az esztendő a három húsvéti nap előtt és után a liturgia által lépésről lépésre átalakul. Valóban "az Úr kedves esztendeje" lesz.Az üdvrend az idő keretében hat, de Jézus húsvétjában és a Szentlélek kiáradásában történt beteljesedése óta a történelem végének "előízét" elővételezzük, és Isten Országa belép a mi időnkbe.
+
+**1169** Ezért a húsvét nem egyszerűen egy ünnep a többi között, hanem az "ünnepnapok ünnepnapja", "az ünneplések ünneplése", mint ahogy az Eucharisztia a szentségek szentsége (a nagy szentség). Szent Atanáz "a nagy vasárnapnak" nevezi,mint ahogy a szent hetet Keleten (és Magyarországon is) "Nagy Hétnek" nevezik. A föltámadás misztériuma, melyben Krisztus megsemmisítette a halált, hatalmas erejével áthatja a mi régi időnket, mindaddig, amíg minden alá nem lesz vetve Krisztusnak.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.MÁRCIUS 28.**
 
 **1095** Ezért az Egyház főként Advent és Nagyböjt idején, és leginkább húsvét éjszakáján az üdvtörténet e nagy eseményeit, liturgiájának "mai napján" újraolvassa és újraéli. Ez azonban megkívánja azt is, hogy a katekézis segítse a hívőket megnyílni az üdvrend e "lelki" megértésére, amint azt az Egyház a liturgiában megmutatja és éli.
