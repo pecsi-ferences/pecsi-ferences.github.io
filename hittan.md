@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. ÁPRILIS 11.**
+
+**644** A tanítványok még a föltámadott Jézus valósága láttán is kételkedtek; annyira lehetetlennek tűnt nekik a dolog: azt gondolták, hogy kísértetet látnak, "álmélkodtak, de örömükben még mindig nem mertek hinni" (Lk 24,41). Tamás a kételkedésnek ugyanezt a próbáját élte át, s még a Máté által elbeszélt utolsó, galileai megjelenéskor is "egyesek (...) kételkedtek" (28,17). Ezért a hipotézis, mely szerint a föltámadás az apostolok hitének (vagy hiszékenységének) "eredménye" lett volna, minden alapot nélkülöz. Épp ellenkezőleg, hitük a föltámadásban -- az isteni kegyelem hatása alatt -- a föltámadott Jézus valóságának közvetlen megtapasztalásából született.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. ÁPRILIS 4.**
 
 **1168** A föltámadás új ideje a húsvéti szent három napból mint fényforrásból beragyogja az egész liturgikus évet. Az esztendő a három húsvéti nap előtt és után a liturgia által lépésről lépésre átalakul. Valóban "az Úr kedves esztendeje" lesz.Az üdvrend az idő keretében hat, de Jézus húsvétjában és a Szentlélek kiáradásában történt beteljesedése óta a történelem végének "előízét" elővételezzük, és Isten Országa belép a mi időnkbe.
