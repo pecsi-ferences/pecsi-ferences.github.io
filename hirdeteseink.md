@@ -3,6 +3,36 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK HÚSVÉT 2. VASÁRNAPJÁN –**
+
+**2021. ÁPRILIS 11-18.**
+
+Ma van az Isteni Irgalmasság Vasárnapja. Mivel ez a hónap második vasárnapja, ezért 16 órától szentségimádási órát tartunk templomunkban.
+
+Jövő szombaton német-magyar nyelvű mise lesz templomunkban.
+
+**Kányádi Sándor: Szelíd fohász**
+
+szelíd fohász az én fohászom  
+ félig könyörgés félig hála  
+ hogy nem juttattál s ezután se  
+ juttass engemet szégyenfára
+
+de eljut-e az én fohászom  
+ eljuthat-e vajon tehozzád  
+ útjaidat úton útfélen  
+ szertartások barikádozzák
+
+nem marad-e sziklára hullt  
+ magokként vajon terméketlen  
+ mit egy hosszú életen át  
+ a jövendőnek elvetettem
+
+tudom sokat eltékozoltam  
+ abból mit rám bíztál sokat  
+ de azért ne tagadd meg tőlem  
+ holtomban se áldásodat
+
 HIRDETÉSEINK HÚSVÉTVASÁRNAP-2021. ÁPRILIS 4-11.
 
 Ma 8 órakor és 17 órakor vannak a szentmisék templomunkba.
@@ -16,27 +46,27 @@ Megjelent a Barátok Lapja áprilisi száma.
 [https://pecsi-ferences.github.io/assets/pdfs/2021-04.pdf](https://pecsi-ferences.github.io/assets/pdfs/2021-04.pdf "https://pecsi-ferences.github.io/assets/pdfs/2021-04.pdf")
 
 **Juhász Gyula:  
- Húsvétra**  
-   
- Köszönt e vers, te váltig visszatérő  
- Föltámadás a földi tájakon,  
- Mezők smaragdja, nap tüzében égő,  
- Te zsendülő és zendülő pagony!  
- Köszönt e vers, élet, örökkön élő,  
- Fogadd könnyektől harmatos dalom:  
- Szívemnek már a gyász is röpke álom  
- S az élet: győzelem az elmuláson.  
-   
- ................  
-   
- Egy régi húsvét fényénél borongott  
- S vigasztalódott sok tűnt nemzedék,  
- Én dalt jövendő húsvétjára zsongok  
- És neki szánok lombot és zenét.  
- E zene túlzeng majd minden harangot  
- S betölt e Húsvét majd minden reményt.  
- Addig zöld ágban és piros virágban  
- Hirdesd világ, hogy új föltámadás van!
+Húsvétra**
+
+Köszönt e vers, te váltig visszatérő  
+Föltámadás a földi tájakon,  
+Mezők smaragdja, nap tüzében égő,  
+Te zsendülő és zendülő pagony!  
+Köszönt e vers, élet, örökkön élő,  
+Fogadd könnyektől harmatos dalom:  
+Szívemnek már a gyász is röpke álom  
+S az élet: győzelem az elmuláson.
+
+................
+
+Egy régi húsvét fényénél borongott  
+S vigasztalódott sok tűnt nemzedék,  
+Én dalt jövendő húsvétjára zsongok  
+És neki szánok lombot és zenét.  
+E zene túlzeng majd minden harangot  
+S betölt e Húsvét majd minden reményt.  
+Addig zöld ágban és piros virágban  
+Hirdesd világ, hogy új föltámadás van!
 
 ÁLDOTT HÚSVÉTOT MINDENKINEK!
 
