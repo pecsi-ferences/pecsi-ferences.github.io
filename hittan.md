@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL – 2021. ÁPRILIS 18.**
+
+**646** Krisztus föltámadása nem a földi életbe való visszatérés volt, mint azon föltámasztások esetében, melyeket Ő húsvét előtt végzett: Jairus kislányáé, a naimi ifjúé és Lázáré. E tények csodás események voltak, de a személyek, akikkel a csoda történt, a "megszokott" földi életet nyerték vissza Jézus hatalma által. A maguk idejében újból meg fognak halni. Krisztus föltámadása lényegében különbözik ettől. Föltámadott testében a halál állapotából átmegy egy időn és téren túli, másik életbe. Jézus testét a föltámadásban a Szentlélek eltölti hatalommal; dicsőségének állapotában az isteni életben részesedik, úgy, hogy Szent Pál elmondhatta Krisztusról: Ő a mennyei ember.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. ÁPRILIS 11.**
 
 **644** A tanítványok még a föltámadott Jézus valósága láttán is kételkedtek; annyira lehetetlennek tűnt nekik a dolog: azt gondolták, hogy kísértetet látnak, "álmélkodtak, de örömükben még mindig nem mertek hinni" (Lk 24,41). Tamás a kételkedésnek ugyanezt a próbáját élte át, s még a Máté által elbeszélt utolsó, galileai megjelenéskor is "egyesek (...) kételkedtek" (28,17). Ezért a hipotézis, mely szerint a föltámadás az apostolok hitének (vagy hiszékenységének) "eredménye" lett volna, minden alapot nélkülöz. Épp ellenkezőleg, hitük a föltámadásban -- az isteni kegyelem hatása alatt -- a föltámadott Jézus valóságának közvetlen megtapasztalásából született.
