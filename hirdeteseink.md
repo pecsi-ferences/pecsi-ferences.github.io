@@ -3,6 +3,31 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK HÚSVÉT 3. VASÁRNAPJÁN-2021. április 18-25.**
+
+Szerdán a szentmisét Dr. Vass László atyáért- a Collegium Seraphicum alapítójáért - mutatjuk be, halálának 15. évfordulóján.
+
+Jövő vasárnap lesz a Jó Pásztor Vasárnapja. Ezen a vasárnapon imádkozunk a hivatásokért, és a papnevelés céljaira lesz templomi gyűjtés.
+
+Ugyancsak jövő vasárnap imádkozunk jó termésért és búzaszentelést végzünk.
+
+**Babits Mihály TAVASZ ELŐTT**
+
+A fák az égre nyujtják mezítlen karjukat,  
+ „Ruházzatok fel minket!” kérik a mennyeket.  
+ „Adjatok bő ruhának lobogó lombokat,  
+ húzzatok ujjainkra zöld selyemkesztyüket.”
+
+A domb görbítve hátát sütkérez a napon  
+ és szól: „Tavaszi tarka ruhámat megkapom,  
+ zöld bársony lesz a vállam, tollas a kalapom  
+ virágos fák tollával tollas a kalapom.”
+
+A fázós öreg föld is új ruhájára vár  
+ s fázón röpül az űrben, mint egy vedlett madár,  
+ szeretne napanyjához közelebb szállni már  
+ s meleg ölébe bújni, mint egy vedlett madár.
+
 **HIRDETÉSEINK HÚSVÉT 2. VASÁRNAPJÁN –**
 
 **2021. ÁPRILIS 11-18.**
@@ -14,24 +39,24 @@ Jövő szombaton német-magyar nyelvű mise lesz templomunkban.
 **Kányádi Sándor: Szelíd fohász**
 
 szelíd fohász az én fohászom  
- félig könyörgés félig hála  
- hogy nem juttattál s ezután se  
- juttass engemet szégyenfára
+félig könyörgés félig hála  
+hogy nem juttattál s ezután se  
+juttass engemet szégyenfára
 
 de eljut-e az én fohászom  
- eljuthat-e vajon tehozzád  
- útjaidat úton útfélen  
- szertartások barikádozzák
+eljuthat-e vajon tehozzád  
+útjaidat úton útfélen  
+szertartások barikádozzák
 
 nem marad-e sziklára hullt  
- magokként vajon terméketlen  
- mit egy hosszú életen át  
- a jövendőnek elvetettem
+magokként vajon terméketlen  
+mit egy hosszú életen át  
+a jövendőnek elvetettem
 
 tudom sokat eltékozoltam  
- abból mit rám bíztál sokat  
- de azért ne tagadd meg tőlem  
- holtomban se áldásodat
+abból mit rám bíztál sokat  
+de azért ne tagadd meg tőlem  
+holtomban se áldásodat
 
 HIRDETÉSEINK HÚSVÉTVASÁRNAP-2021. ÁPRILIS 4-11.
 
