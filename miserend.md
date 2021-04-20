@@ -12,5 +12,3 @@ title: Miserend a Pécsi Ferences Templomban
 * A szentmisék előtt és -lehetőség szerint-hétvégén a szentmisék ideje alatt, a gyóntatófolyosón van gyónási lehetőség.
 
 Megértésüket köszönjük!
-
-2021. ÁPRILIS  17-ÉN  17 ÓRAKOR NÉMET-MAGYAR NYELVŰ SZENTMISE LESZ TEMPLOMUNKBAN.
