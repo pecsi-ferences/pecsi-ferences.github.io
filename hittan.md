@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. ÁPRILIS 25.**
+
+**1553** Az "egész Egyház nevében" nem azt jelenti, hogy a papok a közösség megbízottai. Az Egyház imádsága és áldozata nem választható el fejének, Krisztusnak imádságától és áldozatától. Mindig Krisztus kultusza Egyházában és Egyháza által. Az egész Egyház, Krisztus Teste imádkozik és ajánlja föl magát "őáltala, ővele és őbenne" a Szentlélekkel egységben az Atyaistennek. Az egész test -- a fő és a tagok -- imádkozik és ajánlja föl önmagát, s ezért azokat, akik a Testben különleges módon szolgálnak, nem csupán Krisztus szolgáinak, hanem az Egyház szolgáinak is nevezik. Mivel a szolgálati papság Krisztust képviseli, képviselheti az Egyházat.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL – 2021. ÁPRILIS 18.**
 
 **646** Krisztus föltámadása nem a földi életbe való visszatérés volt, mint azon föltámasztások esetében, melyeket Ő húsvét előtt végzett: Jairus kislányáé, a naimi ifjúé és Lázáré. E tények csodás események voltak, de a személyek, akikkel a csoda történt, a "megszokott" földi életet nyerték vissza Jézus hatalma által. A maguk idejében újból meg fognak halni. Krisztus föltámadása lényegében különbözik ettől. Föltámadott testében a halál állapotából átmegy egy időn és téren túli, másik életbe. Jézus testét a föltámadásban a Szentlélek eltölti hatalommal; dicsőségének állapotában az isteni életben részesedik, úgy, hogy Szent Pál elmondhatta Krisztusról: Ő a mennyei ember.
