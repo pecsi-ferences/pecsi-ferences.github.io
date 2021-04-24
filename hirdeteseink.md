@@ -3,6 +3,34 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK HÚSVÉT 4. VASÁRNAPJÁN-2021. április 25-május 2.**
+
+Ma van a Jó Pásztor Vasárnapja. Ma imádkozunk a hivatásokért, és a papnevelés céljaira lesz templomi gyűjtés.
+
+Ugyancsak ma imádkozunk jó termésért, valamint búzaszentelést végzünk.
+
+Jövő vasárnap húsvét 5. vasárnapja lesz.
+
+JUHÁSZ GYULA JÓ PÁSZTOR
+
+Engedjétek hozzám a kisdedet mind,  
+ A gyermeket, az ifjút, aki jő,  
+ Kinek szeméből még a jó remény int  
+ S kit vár a jobb, az eljövő idő.  
+ Kinek szívében még virágos éden  
+ Friss harmata és dús illata van,  
+ Ki járva füstös és ködös vidéken,  
+ Még aranyos derűs és vágytalan.
+
+Hadd lássam kék s bársony tekintetükben  
+ A víg napot, a távoli tavaszt,  
+ Mely ott kereng még az azúros űrben,  
+ Ó vártam és hiába vártam azt.  
+ S hadd fogjam én szelíd körtáncba lépve  
+ A kezüket, mely ég felé repes  
+ - S majd síromon dalolva és zenélve  
+ Üzennek, ha örökre este lesz.
+
 **HIRDETÉSEINK HÚSVÉT 3. VASÁRNAPJÁN-2021. április 18-25.**
 
 Szerdán a szentmisét Dr. Vass László atyáért- a Collegium Seraphicum alapítójáért - mutatjuk be, halálának 15. évfordulóján.
@@ -14,19 +42,19 @@ Ugyancsak jövő vasárnap imádkozunk jó termésért és búzaszentelést vég
 **Babits Mihály TAVASZ ELŐTT**
 
 A fák az égre nyujtják mezítlen karjukat,  
- „Ruházzatok fel minket!” kérik a mennyeket.  
- „Adjatok bő ruhának lobogó lombokat,  
- húzzatok ujjainkra zöld selyemkesztyüket.”
+„Ruházzatok fel minket!” kérik a mennyeket.  
+„Adjatok bő ruhának lobogó lombokat,  
+húzzatok ujjainkra zöld selyemkesztyüket.”
 
 A domb görbítve hátát sütkérez a napon  
- és szól: „Tavaszi tarka ruhámat megkapom,  
- zöld bársony lesz a vállam, tollas a kalapom  
- virágos fák tollával tollas a kalapom.”
+és szól: „Tavaszi tarka ruhámat megkapom,  
+zöld bársony lesz a vállam, tollas a kalapom  
+virágos fák tollával tollas a kalapom.”
 
 A fázós öreg föld is új ruhájára vár  
- s fázón röpül az űrben, mint egy vedlett madár,  
- szeretne napanyjához közelebb szállni már  
- s meleg ölébe bújni, mint egy vedlett madár.
+s fázón röpül az űrben, mint egy vedlett madár,  
+szeretne napanyjához közelebb szállni már  
+s meleg ölébe bújni, mint egy vedlett madár.
 
 **HIRDETÉSEINK HÚSVÉT 2. VASÁRNAPJÁN –**
 
