@@ -3,6 +3,88 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK HÚSVÉT 5. VASÁRNAPJÁN-2021. május 2-9.**
+
+Május hónapban- hétfőtől-péntekig – 16 óra 30 perctől rózsafüzért imádkozunk a templomban. A 17 órai szentmise után pedig elimádkozzuk a lorettói litániát. Májusban a keddi Szent Antal imádságokat nem tartjuk meg.
+
+Jövő vasárnap-mivel a hónap második vasárnapja- 16 órától szentségimádási óra lesz a templomban.
+
+Múlt vasárnap volt a Jó Pásztor vasárnapja. Templomunkban a papnevelés céljaira 82 000 forint gyűlt össze. A Gondviselés sokszorosan fizesse meg az adakozók jóságát!
+
+KRISZTUS A SZŐLŐTŐ
+
+Én vagyok a szőlőtőke,  
+ Atyám a műves.  
+ Lemetsz minden vesszőt, amely  
+ gyümölcstelen, üres.
+
+Amelyik meg gyümölcsöt hoz,  
+ megtisztítja szépen,  
+ hogy még többet teremhessen,  
+ mint amennyit régen.
+
+Ti már tiszták vagytok ama  
+ beszéd által, melyet  
+ szóltam néktek mindarról mi  
+ új embert nevelhet.
+
+Maradjatok hát énbennem,  
+ így én is bennetek,  
+ mert gyümölcsöt nálam nélkül  
+ sosem teremhettek.
+
+Én vagyok a szőlőtőke,  
+ ti a szőlővesszők:  
+ hogyha bennem maradtok, csak  
+ Úgy lehettek termők.
+
+Ha valaki meg nem marad  
+ bennem, az elszárad,  
+ s tűzre vetik, mint levágott  
+ száraz szőlőágat.
+
+De ha bennem megmaradtok,  
+ s bennetek beszédem,  
+ bármit akartok megadom,  
+ ha kéritek szépen.
+
+Akkor fogják dicsérni majd  
+ az én jó Atyámat,  
+ ha sok gyümölcse lesz minden  
+ igaz tanítványnak.
+
+Amiképpen az én Atyám  
+ nagyon szeret engem,  
+ akképpen én is titeket:  
+ maradjatok ebben!
+
+Ezeket beszéltem néktek,  
+ hogy így maradjon  
+ bennetek az én örömem:  
+ új parancsolatom.
+
+Ti vagytok a barátaim,  
+ ha szent parancsomat  
+ megtartjátok, mert a példa  
+ másokra is kihat.
+
+Azért életem áldozom  
+ ki barátom nékem,  
+ ennél nagyobb szeretet nincs  
+ földön és az égen.
+
+Próbáljátok ti is egymást  
+ ekképpen szeretni,  
+ s múló földi életetek  
+ nem fog kárba veszni!
+
+Ilyeneket mondott Jézus,  
+ s még mennyi szép Igét!  
+ Tartsuk meg, és megvalósul  
+ mindaz, amit ígért!
+
+_Balog Miklós_
+
 **HIRDETÉSEINK HÚSVÉT 4. VASÁRNAPJÁN-2021. április 25-május 2.**
 
 Ma van a Jó Pásztor Vasárnapja. Ma imádkozunk a hivatásokért, és a papnevelés céljaira lesz templomi gyűjtés.
@@ -14,22 +96,23 @@ Jövő vasárnap húsvét 5. vasárnapja lesz.
 JUHÁSZ GYULA JÓ PÁSZTOR
 
 Engedjétek hozzám a kisdedet mind,  
- A gyermeket, az ifjút, aki jő,  
- Kinek szeméből még a jó remény int  
- S kit vár a jobb, az eljövő idő.  
- Kinek szívében még virágos éden  
- Friss harmata és dús illata van,  
- Ki járva füstös és ködös vidéken,  
- Még aranyos derűs és vágytalan.
+A gyermeket, az ifjút, aki jő,  
+Kinek szeméből még a jó remény int  
+S kit vár a jobb, az eljövő idő.  
+Kinek szívében még virágos éden  
+Friss harmata és dús illata van,  
+Ki járva füstös és ködös vidéken,  
+Még aranyos derűs és vágytalan.
 
 Hadd lássam kék s bársony tekintetükben  
- A víg napot, a távoli tavaszt,  
- Mely ott kereng még az azúros űrben,  
- Ó vártam és hiába vártam azt.  
- S hadd fogjam én szelíd körtáncba lépve  
- A kezüket, mely ég felé repes  
- - S majd síromon dalolva és zenélve  
- Üzennek, ha örökre este lesz.
+A víg napot, a távoli tavaszt,  
+Mely ott kereng még az azúros űrben,  
+Ó vártam és hiába vártam azt.  
+S hadd fogjam én szelíd körtáncba lépve  
+A kezüket, mely ég felé repes
+
+* S majd síromon dalolva és zenélve  
+  Üzennek, ha örökre este lesz.
 
 **HIRDETÉSEINK HÚSVÉT 3. VASÁRNAPJÁN-2021. április 18-25.**
 
