@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. MÁJUS 2.**
+
+**755** "Az Egyház megmunkált föld, vagyis Isten szántóföldje. Ezen a földön nő az az ősi olajfa, melynek szent gyökere a pátriárkák voltak, s melyben megtörtént és meg fog történni a zsidók és a pogányok kiengesztelődése. Az Egyházat a mennyei Földműves mint választott szőlőskertet telepítette. Krisztus az igazi szőlőtő, aki életet és termékenységet ad a vesszőknek, azaz nekünk, akik az Egyház által őbenne maradunk, s aki nélkül semmit sem tehetünk. "
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. ÁPRILIS 25.**
 
 **1553** Az "egész Egyház nevében" nem azt jelenti, hogy a papok a közösség megbízottai. Az Egyház imádsága és áldozata nem választható el fejének, Krisztusnak imádságától és áldozatától. Mindig Krisztus kultusza Egyházában és Egyháza által. Az egész Egyház, Krisztus Teste imádkozik és ajánlja föl magát "őáltala, ővele és őbenne" a Szentlélekkel egységben az Atyaistennek. Az egész test -- a fő és a tagok -- imádkozik és ajánlja föl önmagát, s ezért azokat, akik a Testben különleges módon szolgálnak, nem csupán Krisztus szolgáinak, hanem az Egyház szolgáinak is nevezik. Mivel a szolgálati papság Krisztust képviseli, képviselheti az Egyházat.
