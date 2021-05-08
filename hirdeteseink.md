@@ -9,6 +9,8 @@ Ma - mivel a hónap második vasárnapja van- 16 órától szentségimádási ó
 
 Szombaton 17 órakor német-magyar szentmise lesz templomunkban.
 
+Jövő vasárnap 17 órakor a Szeráfi Kórus teljesít zenei szolgálatot. Nagy Ernő Karnagy Úr vezetésével.
+
 Május hónapban- hétfőtől-péntekig – 16 óra 15 perctől rózsafüzért imádkozunk a templomban. A 17 órai szentmise után pedig elimádkozzuk a loretói litániát. Májusban a keddi Szent Antal imádságokat nem tartjuk meg.
 
 Megjelent a Barátok Lapja-plébániai tájékoztató- májusi száma.
@@ -20,33 +22,33 @@ Megjelent a Barátok Lapja-plébániai tájékoztató- májusi száma.
 **Hálaadás**
 
 Köszönöm Istenem az édesanyámat!  
- Amíg ő véd engem, nem ér semmi bánat!  
- Körülvesz virrasztó áldó szeretettel.  
- Értem éjjel-nappal dolgozni nem restel.  
- Áldott teste, lelke csak érettem fárad.  
- Köszönöm, Istenem az édesanyámat.
+Amíg ő véd engem, nem ér semmi bánat!  
+Körülvesz virrasztó áldó szeretettel.  
+Értem éjjel-nappal dolgozni nem restel.  
+Áldott teste, lelke csak érettem fárad.  
+Köszönöm, Istenem az édesanyámat.
 
 Köszönöm a lelkét, melyből reggel, este  
- imádság száll Hozzád, gyermekéért esdve.  
- Köszönöm a szívét, mely csak értem dobban  
- – itt e földön senki sem szerethet jobban! –  
- Köszönöm a szemét, melyből jóság árad,  
- Istenem, köszönöm az édesanyámat.
+imádság száll Hozzád, gyermekéért esdve.  
+Köszönöm a szívét, mely csak értem dobban  
+– itt e földön senki sem szerethet jobban! –  
+Köszönöm a szemét, melyből jóság árad,  
+Istenem, köszönöm az édesanyámat.
 
 Te tudod, Istenem – milyen sok az árva,  
- Aki oltalmadat, vigaszodat várja.  
- Leborulva kérlek: gondod legyen rájuk,  
- Hiszen szegényeknek nincsen édesanyjuk!  
- Vigasztald meg őket áldó kegyelmeddel,  
- Nagy-nagy bánatukat takard el, temesd el!
+Aki oltalmadat, vigaszodat várja.  
+Leborulva kérlek: gondod legyen rájuk,  
+Hiszen szegényeknek nincsen édesanyjuk!  
+Vigasztald meg őket áldó kegyelmeddel,  
+Nagy-nagy bánatukat takard el, temesd el!
 
 Áldd meg édesanyám járását-kelését,  
- Áldd meg könnyhullatását, áldd meg szenvedését!  
- Áldd meg imádságát, melyben el nem fárad,  
- Áldd meg két kezeddel az Édesanyámat!
+Áldd meg könnyhullatását, áldd meg szenvedését!  
+Áldd meg imádságát, melyben el nem fárad,  
+Áldd meg két kezeddel az Édesanyámat!
 
 Halld meg jó Istenem, legbuzgóbb imámat:  
- Köszönöm, köszönöm az édesanyámat!!!
+Köszönöm, köszönöm az édesanyámat!!!
 
 **HIRDETÉSEINK HÚSVÉT 5. VASÁRNAPJÁN-2021. május 2-9.**
 
