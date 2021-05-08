@@ -3,6 +3,51 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK HÚSVÉT 6. VASÁRNAPJÁN-2021. május 9-16.**
+
+Ma - mivel a hónap második vasárnapja van- 16 órától szentségimádási óra lesz a templomban.
+
+Szombaton 17 órakor német-magyar szentmise lesz templomunkban.
+
+Május hónapban- hétfőtől-péntekig – 16 óra 15 perctől rózsafüzért imádkozunk a templomban. A 17 órai szentmise után pedig elimádkozzuk a loretói litániát. Májusban a keddi Szent Antal imádságokat nem tartjuk meg.
+
+Megjelent a Barátok Lapja-plébániai tájékoztató- májusi száma.
+
+[https://pecsi-ferences.github.io/assets/pdfs/2021-05.pdf](https://pecsi-ferences.github.io/assets/pdfs/2021-05.pdf "https://pecsi-ferences.github.io/assets/pdfs/2021-05.pdf")
+
+**_Dsida Jenő:_**
+
+**Hálaadás**
+
+Köszönöm Istenem az édesanyámat!  
+ Amíg ő véd engem, nem ér semmi bánat!  
+ Körülvesz virrasztó áldó szeretettel.  
+ Értem éjjel-nappal dolgozni nem restel.  
+ Áldott teste, lelke csak érettem fárad.  
+ Köszönöm, Istenem az édesanyámat.
+
+Köszönöm a lelkét, melyből reggel, este  
+ imádság száll Hozzád, gyermekéért esdve.  
+ Köszönöm a szívét, mely csak értem dobban  
+ – itt e földön senki sem szerethet jobban! –  
+ Köszönöm a szemét, melyből jóság árad,  
+ Istenem, köszönöm az édesanyámat.
+
+Te tudod, Istenem – milyen sok az árva,  
+ Aki oltalmadat, vigaszodat várja.  
+ Leborulva kérlek: gondod legyen rájuk,  
+ Hiszen szegényeknek nincsen édesanyjuk!  
+ Vigasztald meg őket áldó kegyelmeddel,  
+ Nagy-nagy bánatukat takard el, temesd el!
+
+Áldd meg édesanyám járását-kelését,  
+ Áldd meg könnyhullatását, áldd meg szenvedését!  
+ Áldd meg imádságát, melyben el nem fárad,  
+ Áldd meg két kezeddel az Édesanyámat!
+
+Halld meg jó Istenem, legbuzgóbb imámat:  
+ Köszönöm, köszönöm az édesanyámat!!!
+
 **HIRDETÉSEINK HÚSVÉT 5. VASÁRNAPJÁN-2021. május 2-9.**
 
 Május hónapban- hétfőtől-péntekig – 16 óra 30 perctől rózsafüzért imádkozunk a templomban. A 17 órai szentmise után pedig elimádkozzuk a lorettói litániát. Májusban a keddi Szent Antal imádságokat nem tartjuk meg.
@@ -14,74 +59,74 @@ Múlt vasárnap volt a Jó Pásztor vasárnapja. Templomunkban a papnevelés cé
 KRISZTUS A SZŐLŐTŐ
 
 Én vagyok a szőlőtőke,  
- Atyám a műves.  
- Lemetsz minden vesszőt, amely  
- gyümölcstelen, üres.
+Atyám a műves.  
+Lemetsz minden vesszőt, amely  
+gyümölcstelen, üres.
 
 Amelyik meg gyümölcsöt hoz,  
- megtisztítja szépen,  
- hogy még többet teremhessen,  
- mint amennyit régen.
+megtisztítja szépen,  
+hogy még többet teremhessen,  
+mint amennyit régen.
 
 Ti már tiszták vagytok ama  
- beszéd által, melyet  
- szóltam néktek mindarról mi  
- új embert nevelhet.
+beszéd által, melyet  
+szóltam néktek mindarról mi  
+új embert nevelhet.
 
 Maradjatok hát énbennem,  
- így én is bennetek,  
- mert gyümölcsöt nálam nélkül  
- sosem teremhettek.
+így én is bennetek,  
+mert gyümölcsöt nálam nélkül  
+sosem teremhettek.
 
 Én vagyok a szőlőtőke,  
- ti a szőlővesszők:  
- hogyha bennem maradtok, csak  
- Úgy lehettek termők.
+ti a szőlővesszők:  
+hogyha bennem maradtok, csak  
+Úgy lehettek termők.
 
 Ha valaki meg nem marad  
- bennem, az elszárad,  
- s tűzre vetik, mint levágott  
- száraz szőlőágat.
+bennem, az elszárad,  
+s tűzre vetik, mint levágott  
+száraz szőlőágat.
 
 De ha bennem megmaradtok,  
- s bennetek beszédem,  
- bármit akartok megadom,  
- ha kéritek szépen.
+s bennetek beszédem,  
+bármit akartok megadom,  
+ha kéritek szépen.
 
 Akkor fogják dicsérni majd  
- az én jó Atyámat,  
- ha sok gyümölcse lesz minden  
- igaz tanítványnak.
+az én jó Atyámat,  
+ha sok gyümölcse lesz minden  
+igaz tanítványnak.
 
 Amiképpen az én Atyám  
- nagyon szeret engem,  
- akképpen én is titeket:  
- maradjatok ebben!
+nagyon szeret engem,  
+akképpen én is titeket:  
+maradjatok ebben!
 
 Ezeket beszéltem néktek,  
- hogy így maradjon  
- bennetek az én örömem:  
- új parancsolatom.
+hogy így maradjon  
+bennetek az én örömem:  
+új parancsolatom.
 
 Ti vagytok a barátaim,  
- ha szent parancsomat  
- megtartjátok, mert a példa  
- másokra is kihat.
+ha szent parancsomat  
+megtartjátok, mert a példa  
+másokra is kihat.
 
 Azért életem áldozom  
- ki barátom nékem,  
- ennél nagyobb szeretet nincs  
- földön és az égen.
+ki barátom nékem,  
+ennél nagyobb szeretet nincs  
+földön és az égen.
 
 Próbáljátok ti is egymást  
- ekképpen szeretni,  
- s múló földi életetek  
- nem fog kárba veszni!
+ekképpen szeretni,  
+s múló földi életetek  
+nem fog kárba veszni!
 
 Ilyeneket mondott Jézus,  
- s még mennyi szép Igét!  
- Tartsuk meg, és megvalósul  
- mindaz, amit ígért!
+s még mennyi szép Igét!  
+Tartsuk meg, és megvalósul  
+mindaz, amit ígért!
 
 _Balog Miklós_
 
