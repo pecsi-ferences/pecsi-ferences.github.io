@@ -13,6 +13,20 @@ title: Hittan
 
 **A Plébános**
 
+A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.MÁJUS 9.
+
+**142** Kinyilatkoztatásával "a láthatatlan Isten szeretetének bőségéből mint barátaihoz szól az emberekhez, és társalog velük, hogy meghívja őket és befogadja a saját közösségébe". E meghívásra adott megfelelő válasz a hit.
+
+**609** Jézus emberi szívében az Atya emberek iránti szeretetét magáévá téve "mindvégig szerette őket" (Jn 13,1), mert "nagyobb szeretete senkinek sincs annál, aki életét adja barátaiért" (Jn 15,13). Így embersége a szenvedésben és a halálban szabad és tökéletes eszközévé vált annak az isteni szeretetnek, mely az emberek üdvösségét akarja. Valóban, szenvedését és halálát szabadon fogadta el az Atya és az emberek iránti szeretetből, akiket az Atya üdvözíteni akar: "Senki sem veszi el (...) (az életemet) tőlem, hanem én magamtól teszem le" (Jn 10,18). Ezért Isten Fiának szabadsága akkor a legnagyobb, amikor a halál felé megy.
+
+**1972** Az új Törvény a szeretet törvénye, mert inkább a Szentlélek által belénk árasztott szeretet, mint a félelem késztet cselekvésre bennünket; a kegyelem törvénye, mert a hit és a szentségek révén adja a kegyelem erejét a cselekvéshez; a szabadság törvénye, mert megszabadít a régi Törvény rituális és jogi előírásaitól; megtanít arra, hogy a szeretet hatására önként cselekedjünk, s végül a szolgai állapotból, melyben "a szolga nem tudja, mit tesz az ura", Krisztus barátjává emel, "mert mindent tudtul adtam nektek, amit az én Atyámtól hallottam" (Jn 15,15); sőt az öröklő fiú állapotába helyez.
+
+**2063** Az Isten és az ember közti szövetségről és párbeszédről tanúskodik az is, hogy az összes parancsolat egyes szám első személyben hangzik el ("Én vagyok az Úr...") és egy másik személynek szól ("te..."). Isten minden parancsolatában egyesszámú névmás jelöli a címzettet. Isten megismerteti akaratát az egész néppel, s ugyanakkor minden egyes emberrel is:
+
+"Az Isten iránti szeretetet is parancsolta, és a felebarát iránti igazságosságot is sürgette, hogy se igazságtalan, se Istenhez méltatlan ne legyen az ember, akit így készített föl a Tízparancsolat által a vele való barátságra és a felebaráttal való összhangra (...). És ezért (a Tízparancsolat szavai) nálunk (keresztényeknél) hasonlóképpen érvényben vannak, tágabb és mélyebb értelmet nyernek, és nem oldódnak föl az Ő test szerinti eljövetele által."
+
+**2576** "Az Úr pedig szemtől szemben beszélt Mózeshez, ahogy az ember beszél a barátjához" (Kiv 33,11). Mózes imádsága a kontemplatív imádság előképe, ami miatt Isten szolgája hű marad küldetéséhez. Mózes gyakran és hosszasan "beszélget" az Úrral, fölmegy a hegyre, hogy hallgassa Istent és könyörögjön Hozzá, majd lejön a néphez, hogy elismételje nekik Istenének szavait és vezesse őket. "Egész házamban a leghűségesebb! Ővele közvetlenül, szemtől szemben beszélek" (Szám 12,7--8), "Mózes ugyanis nagyon alázatos ember volt, alázatosabb, mint bárki a földön" (Szám 12,3).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. MÁJUS 2.**
 
 **755** "Az Egyház megmunkált föld, vagyis Isten szántóföldje. Ezen a földön nő az az ősi olajfa, melynek szent gyökere a pátriárkák voltak, s melyben megtörtént és meg fog történni a zsidók és a pogányok kiengesztelődése. Az Egyházat a mennyei Földműves mint választott szőlőskertet telepítette. Krisztus az igazi szőlőtő, aki életet és termékenységet ad a vesszőknek, azaz nekünk, akik az Egyház által őbenne maradunk, s aki nélkül semmit sem tehetünk. "
