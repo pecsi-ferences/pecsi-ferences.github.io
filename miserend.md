@@ -12,3 +12,5 @@ title: Miserend a Pécsi Ferences Templomban
 * A szentmisék előtt és -lehetőség szerint-hétvégén a szentmisék ideje alatt, a gyóntatófolyosón van gyónási lehetőség.
 
 Megértésüket köszönjük!
+
+2021. május 15-én- 17 órakor- német mise lesz templomunkban.
