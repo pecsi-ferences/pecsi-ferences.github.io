@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. MÁJUS 16.**
+
+**659** "Az Úr Jézus, miután ezeket mondta, fölvétetett a mennybe és leült az Isten jobbján" (Mk 16,19). Krisztus teste föltámadásának pillanatától megdicsőült, amint azt az új és természetfölötti tulajdonságai mutatják, melyekkel attól kezdve állandóan rendelkezik.De negyven napon át, amikor tanítványaival bensőségesen együtt evett és ivott és az Országról tanította őket,dicsősége még a megszokott emberség körvonalai alatt elfátyolozott marad. Jézus utolsó megjelenését az zárja le, hogy embersége visszavonhatatlanul belép az isteni dicsőségbe, melyet a felhő és az ég -- ahol ettől kezdve Isten jobbján ül -- jelez. Végül teljesen kivételes és egyedülálló módon Pálnak -- "mint egy elvetéltnek" (1Kor 15,8) -- egy utolsó jelenésben megmutatkozik, mellyel apostollá teszi őt.
+
+**660** A Föltámadott dicsőségének ez időben elfátyolozott jellege átragyog Mária Magdolnához intézett titokzatos szavain: "Még nem (...) mentem föl az Atyához; de menj az én testvéreimhez, és mondd nekik: Fölmegyek az én Atyámhoz és a ti Atyátokhoz, az én Istenemhez és a ti Istenetekhez" (Jn 20,17). Ez a föltámadott Krisztus és az Atya jobbjára fölmagasztalt Krisztus dicsősége közötti különbségre utal. A mennybemenetel egyszerre történeti és transzcendens eseménye az átmenetet jelenti az egyikből a másikba.
+
 A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.MÁJUS 9.
 
 **142** Kinyilatkoztatásával "a láthatatlan Isten szeretetének bőségéből mint barátaihoz szól az emberekhez, és társalog velük, hogy meghívja őket és befogadja a saját közösségébe". E meghívásra adott megfelelő válasz a hit.
