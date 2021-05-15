@@ -3,6 +3,52 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK URUNK MENNYBEMENETELÉNEK FŐÜNNEPÉN-2021. május 16-23.**
+
+Ma 17 órakor a Szeráfi Kórus teljesít zenei szolgálatot. Nagy Ernő Karnagy Úr vezetésével.
+
+Május hónapban- hétfőtől-péntekig – 16 óra 15 perctől rózsafüzért imádkozunk a templomban. A 17 órai szentmise után pedig elimádkozzuk a Lorettói litániát. Májusban a keddi Szent Antal imádságokat nem tartjuk meg.
+
+Kedden lesz Dr. Szalai János tanár úr halálának 6. évfordulója. Mivel sokáig szolgált templomunkban, az esti szentmisében megemlékezünk róla.
+
+Jövő vasárnap ünnepeljük Pünkösd Főünnepét. Pünkösd vasárnapján 16 órakor horvát mise lesz templomunkban. A plébánia szentmise 17 órakor fog kezdődni.
+
+JOBB NÉKTEK ÍGY
+
+Jobb néktek így, hogy immár elmegyek”  
+ Bár szívetek sajog, vérzik e szóra.  
+ Ám fájdalom bölcsője az örömnek,  
+ S enyészet az öröklét hordozója.  
+ Virág fakad a sírhalom tövében.  
+ Érettetek s még sokakért folyt vérem,  
+ Jobb néktek így!…
+
+Jobb néktek így! Nem ismertek ti még,  
+ Nem, lélekben, csak múló porhüvelyben;  
+ Ím lássátok a megtisztult Igét,  
+ Mi salak volt – a test – eztán pihenjen.  
+ A lelket egykor rátok majd kiontom,  
+ Hogy kebleteken égi láng lobogjon.  
+ Jobb néktek így!…
+
+Jobb néktek így! Míg féltve őrzi anyja,  
+ Nem oly merész, nem oly erős a gyermek.  
+ De künn a síkon, önmagára hagyva  
+ Tanul szemébe nézni fergetegnek.  
+ Keblét viharra, vészre bátran tárva, –  
+ Ott születik a hős a bősz csatákba’…  
+ Jobb néktek így!…
+
+Jobb néktek így! Bár most nem értitek,  
+ Hisz könnyben úszik szemetek pillája,  
+ Ám lesz idő, igen, megéritek,  
+ Hogy tisztán láttok napba’, éjszakába.  
+ A hívőké az élet koronája,  
+ Higgyétek hát a szó akárhogy fájna:  
+ Jobb néktek így!
+
+_Vajkó Pál_
+
 **HIRDETÉSEINK HÚSVÉT 6. VASÁRNAPJÁN-2021. május 9-16.**
 
 Ma - mivel a hónap második vasárnapja van- 16 órától szentségimádási óra lesz a templomban.
