@@ -13,4 +13,4 @@ title: Miserend a Pécsi Ferences Templomban
 
 Megértésüket köszönjük!
 
-2021. május 15-én- 17 órakor- német mise lesz templomunkban.
+Május 23-án- 16 órakor- horvát mise lesz templomunkban.
