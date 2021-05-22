@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.MÁJUS 23.**
+
+**767** "A mű elkészülte után, melyet az Atya a Fiúra bízott, hogy elvégezze a földön, pünkösdkor elküldetett a Szentlélek, hogy szüntelenül megszentelje az Egyházat."Az Egyház ekkor lett "nyilvánossá a sokaság előtt, és az igehirdetés által megkezdődött az evangélium terjedése a nemzetek között". Mivel az Egyház minden ember "összehívása" az üdvösségre, természete szerint missziós, Krisztus küldi az összes néphez, hogy minden embert tanítvánnyá tegyen.
+
+**768** A Szentlélek az Egyházat "különböző hierarchikus és karizmatikus ajándékokkal látja el és irányítja",hogy küldetését teljesíteni tudja. Így "az Egyház, fölruházva alapítójának ajándékaival és hűségesen megtartva a szeretet, az alázatosság és az önmegtagadás parancsát, küldetést kapott arra, hogy Krisztus és Isten Országát hirdesse és a népek között terjessze, s ennek az Országnak csírája és kezdete a földön".
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. MÁJUS 16.**
 
 **659** "Az Úr Jézus, miután ezeket mondta, fölvétetett a mennybe és leült az Isten jobbján" (Mk 16,19). Krisztus teste föltámadásának pillanatától megdicsőült, amint azt az új és természetfölötti tulajdonságai mutatják, melyekkel attól kezdve állandóan rendelkezik.De negyven napon át, amikor tanítványaival bensőségesen együtt evett és ivott és az Országról tanította őket,dicsősége még a megszokott emberség körvonalai alatt elfátyolozott marad. Jézus utolsó megjelenését az zárja le, hogy embersége visszavonhatatlanul belép az isteni dicsőségbe, melyet a felhő és az ég -- ahol ettől kezdve Isten jobbján ül -- jelez. Végül teljesen kivételes és egyedülálló módon Pálnak -- "mint egy elvetéltnek" (1Kor 15,8) -- egy utolsó jelenésben megmutatkozik, mellyel apostollá teszi őt.
