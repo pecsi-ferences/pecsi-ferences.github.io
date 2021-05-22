@@ -3,6 +3,44 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK PÜNKÖSD FŐÜNNEPÉN-2021. május 23-30.**
+
+Ma ünnepeljük Pünkösd Főünnepét. Pünkösd vasárnapján 16 órakor horvát mise lesz templomunkban. A plébániai szentmise 17 órakor fog kezdődni.
+
+Pünkösdhétfőn 8 órakor nem lesz szentmise. A május hónapban szokásos Mária köszöntőt délután megtartjuk.
+
+Csütörtökön 18 óra 30 perckor a Szent Egyed közösség imaórája lesz templomunkban.
+
+Május hónapban- hétfőtől-péntekig – 16 óra 15 perctől rózsafüzért imádkozunk a templomban. A 17 órai szentmise után pedig elimádkozzuk a Lorettói litániát. Májusban a keddi Szent Antal imádságokat nem tartjuk meg.
+
+A Pécsi Püspöki Hittudományi Főiskola felvételeit hirdet képzéseire. Bővebb információt a kihelyezett plakátokon találunk. Jelentkezési határidő: 2021. június 10.
+
+**Benedek Elek Pünkösdi harangok**
+
+Olyan szépen csengnek a harangok,
+
+mintha nem is harang volna,
+
+hanem ezer harangvirág
+
+Imádságos szava szólna.
+
+Piros pünkösd vasárnapján
+
+Piros rózsa nyíl a kertben,
+
+Kis szívünkben tiszta öröm
+
+Imádsága énekeljen.
+
+Piros pünkösd vasárnapján
+
+Szálljon reánk a Szentlélek,
+
+S térdre hullva mondjunk hálát
+
+A mindenség Istenének.
+
 **HIRDETÉSEINK URUNK MENNYBEMENETELÉNEK FŐÜNNEPÉN-2021. május 16-23.**
 
 Ma 17 órakor a Szeráfi Kórus teljesít zenei szolgálatot. Nagy Ernő Karnagy Úr vezetésével.
