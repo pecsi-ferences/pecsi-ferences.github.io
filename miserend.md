@@ -12,5 +12,3 @@ title: Miserend a Pécsi Ferences Templomban
 * A szentmisék előtt és -lehetőség szerint-hétvégén a szentmisék ideje alatt, a gyóntatófolyosón van gyónási lehetőség.
 
 Megértésüket köszönjük!
-
-Május 23-án- 16 órakor- horvát mise lesz templomunkban.
