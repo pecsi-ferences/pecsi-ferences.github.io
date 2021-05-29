@@ -13,6 +13,12 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.MÁJUS 30.**
+
+**249** A Szentháromság kinyilatkoztatott igazsága -- elsősorban a keresztség révén -- kezdettől fogva az Egyház élő hitének alapja. Kifejezést nyer a keresztségi hitvallás hitszabályában, mely az Egyház igehirdetésében, katekézisében és imádságában fogalmazódott meg. Ilyen formulákat találunk már az apostolok írásaiban, mint például az Eucharisztia ünneplésébe átvett köszöntés: "A mi Urunk Jézus Krisztus kegyelme, az Atya Isten szeretete és a Szentlélek közössége legyen mindnyájatokkal" (2Kor 13,13)
+
+**1066** Az Egyház a hitvallásban megvallja a Szentháromság misztériumát és "az ő tetszése szerinti akaratának misztériumát" (Ef 1,9) az egész teremtésre vonatkozóan: az Atya "akaratának misztériumát" azáltal teljesíti be, hogy szeretett Fiát és Szentlelkét ajándékozza a világ üdvösségére és saját nevének dicsőségére. Ez Krisztusnak történelemben végrehajtott és kinyilatkoztatott misztériuma, egy terv, egy bölcsen elgondolt "rend" szerint, melyet Szent Pál "a misztérium rendjének \[ökonómiájának\]" (Ef 3,9), a patrisztikus hagyomány pedig később "a megtestesült Ige rendjének \[ökonómiájának\]" vagy "az üdvösség rendjének \[ökonómiájának\]" nevez.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.MÁJUS 23.**
 
 **767** "A mű elkészülte után, melyet az Atya a Fiúra bízott, hogy elvégezze a földön, pünkösdkor elküldetett a Szentlélek, hogy szüntelenül megszentelje az Egyházat."Az Egyház ekkor lett "nyilvánossá a sokaság előtt, és az igehirdetés által megkezdődött az evangélium terjedése a nemzetek között". Mivel az Egyház minden ember "összehívása" az üdvösségre, természete szerint missziós, Krisztus küldi az összes néphez, hogy minden embert tanítvánnyá tegyen.
