@@ -3,6 +3,45 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK SZENTHÁROMSÁG VASÁRNAPJÁN - 2021. május 30-június 6.**
+
+Hétfőn és csütörtökön 18 óra 30 perckor a Szent Egyed közösség imaórája lesz templomunkban.
+
+Kedden a 17 órai szentmise után megtartjuk a szokásos Szent Antal imádságot.
+
+Köszönetet mondunk mindazoknak, akik május hónapban- templomunkban -imádkozták a rózsafüzért és a Lorettói litániát!
+
+A Pécsi Püspöki Hittudományi Főiskola felvételeit hirdet képzéseire. Bővebb információt a kihelyezett plakátokon találunk. Jelentkezési határidő: 2021. június 10.
+
+**BABITS MIHÁLY**
+
+**HIMNUSZA A SZENTHÁROMSÁGRÓL**
+
+Hárman a fenség trónusán  
+ ülnek az égi lakomán;  
+ (mert a magányost a magány  
+ nem vigasztalja igazán).
+
+Mig örök szelleme szemét  
+ magára szegzi az Atya,  
+ fényének tükörére kép  
+ vetődik: egy uj-önmaga.
+
+S amint a kép megszületett,  
+ az Egy nincs többé egyedül:  
+ a Születetlen és Szülött  
+ egymásnak társasan örül.
+
+S a Szentlélek ez az öröm,  
+ mely összeköt Atyát s Fiút;  
+ s a Három együvé ömöl,  
+ egy fő-fő Jóba összefut.
+
+S annak ki sohse született,  
+ illőn, és aki született,  
+ s a Léleknek, oltárra-tett  
+ szívvel zengjünk dicséretet!
+
 **HIRDETÉSEINK PÜNKÖSD FŐÜNNEPÉN-2021. május 23-30.**
 
 Ma ünnepeljük Pünkösd Főünnepét. Pünkösd vasárnapján 16 órakor horvát mise lesz templomunkban. A plébániai szentmise 17 órakor fog kezdődni.
