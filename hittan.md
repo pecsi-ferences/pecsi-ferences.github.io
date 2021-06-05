@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2021. JÚNIUS 6.**
+
+**1391** A szentáldozás elmélyíti egyesülésünket Krisztussal. Az Eucharisztia vételének a szentáldozásban a legfőbb gyümölcse a benső egyesülés Jézus Krisztussal. Az Úr mondja: "Aki eszi az én testemet és issza az én véremet, az bennem marad, én meg őbenne" (Jn 6,56). A Krisztusban való élet alapja az eucharisztikus lakoma: "Ahogy engem az élő Atya küldött és Én az Atya által élek, úgy az is, aki engem eszik, általam fog élni" (Jn 6,57).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.MÁJUS 30.**
 
 **249** A Szentháromság kinyilatkoztatott igazsága -- elsősorban a keresztség révén -- kezdettől fogva az Egyház élő hitének alapja. Kifejezést nyer a keresztségi hitvallás hitszabályában, mely az Egyház igehirdetésében, katekézisében és imádságában fogalmazódott meg. Ilyen formulákat találunk már az apostolok írásaiban, mint például az Eucharisztia ünneplésébe átvett köszöntés: "A mi Urunk Jézus Krisztus kegyelme, az Atya Isten szeretete és a Szentlélek közössége legyen mindnyájatokkal" (2Kor 13,13)
