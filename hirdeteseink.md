@@ -3,6 +3,148 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEK KRISZTUS TESTÉNEK ÉS VÉRÉNEK FŐÜNNEPÉN - 2021. június 6-13.**
+
+Hétfőn és csütörtökön 18 óra 30 perckor a Szent Egyed közösség imaórája lesz templomunkban.
+
+Kedden a 17 órai szentmise után megtartjuk a szokásos Szent Antal imádságot.
+
+Jövő vasárnap-mivel a hónap második vasárnapja lesz- szentségimádási órát tartunk templomunkban.
+
+Jövő vasárnap a 17 órai szentmisében tartjuk a Hittanos Te Deumot.
+
+Ugyancsak jövő vasárnap a 17 órai szentmisében a Szeráfi Kórus teljesít ének-zenei szolgálatot. Nagy Ernő Karnagy Úr vezetésével, vezényletével.
+
+A Pécsi Püspöki Hittudományi Főiskola felvételeit hirdet képzéseire. Bővebb információt a kihelyezett plakátokon találunk. Jelentkezési határidő: 2021. június 10.
+
+Babits Mihály Úrnapi Éneke
+
+Dicsérd, Sion, a Megváltót,  
+ dicsérd a vezért, a pásztort,
+
+| --- | --- |
+|  | zengj himnuszt, zengj éneket! |
+
+Ahogy bírod, akként merjed:  
+ nagyobb Ő mint a dicséret,
+
+| --- | --- |
+|  | méltón nem dicsérheted. |
+
+S a dicséret külön tárgya  
+ ma hogy a Kenyeret áldja,
+
+| --- | --- |
+|  | mely éltet és eleven, |
+
+s hogy végvacsoráján kapta  
+ a Tizenkettők csapatja,
+
+| --- | --- |
+|  | nem kétséges semmiben. |
+
+Legyen teljes, legyen zengő,  
+ legyen vidám és illendő
+
+| --- | --- |
+|  | szivünk ujjongása ma: |
+
+mert azt a napot jelzi ünnepünk,  
+ melyen először adatott nekünk
+
+| --- | --- |
+|  | ez a lelki lakoma |
+
+Új királynak asztalára  
+ új törvénynek szállt páskája:
+
+| --- | --- |
+|  | elavult a régi már. |
+
+Fut az ujtól ami agg,  
+ igazságtól ami vak;
+
+| --- | --- |
+|  | fut a fénytől a homály. |
+
+Amit Krisztus tett ez estén,  
+ hagyta hogy rá emlékezvén
+
+| --- | --- |
+|  | cselekedjük mi is azt. |
+
+Okultunk szent törvényéből:  
+ így lesz borból és kenyérből
+
+| --- | --- |
+|  | üdvösséges áldozat. |
+
+Más és más - de nem lényegben,  
+ csak jel szerint más - szinekben
+
+| --- | --- |
+|  | égi jók lappanganak. |
+
+A vér ital, a hús étel:  
+ mégis Krisztus, lényegével,
+
+| --- | --- |
+|  | teljes mindkét szín alatt. |
+
+Oly kenyér, melyet meg nem tör,  
+ aki vesz miként étekből,
+
+| --- | --- |
+|  | s el se vág, és meg se szel. |
+
+Veszi egy és veszik ezren:  
+ annyit egy; amennyit ezren;
+
+| --- | --- |
+|  | fogyasztják és nem fogy el. |
+
+Veszik jók és veszik rosszak:  
+ csakhogy különböző sorsnak
+
+| --- | --- |
+|  | részesei ők vele. |
+
+Rossznak halál, jónak élet:  
+ ilyen az egyforma étek
+
+| --- | --- |
+|  | különböző ereje. |
+
+Im az angyalok kenyere,  
+ utonjárók eledele,  
+ édesfiaknak étele,
+
+| --- | --- |
+|  | nem ebek számára szánt, |
+
+melynek előképe már a  
+ husvéti bárány halála,  
+ valamint Izsák oltára,
+
+| --- | --- |
+|  | s hogy az égből manna szállt. |
+
+Óh igaz Kenyér, jó Pásztor,  
+ Jézus, óvj az elbukástól,  
+ te táplálj és te palástolj  
+ s add hogy a feltámadáskor
+
+| --- | --- |
+|  | üdvnek látói legyünk. |
+
+Te, ki mindent bírsz és értesz,  
+ s e földön táplálsz és éltetsz,  
+ tedd, hogy szent népeddel, ékes  
+ asztalodnál majd az édes
+
+| --- | --- |
+|  | örökségben résztvegyünk! |
+
 **HIRDETÉSEINK SZENTHÁROMSÁG VASÁRNAPJÁN - 2021. május 30-június 6.**
 
 Hétfőn és csütörtökön 18 óra 30 perckor a Szent Egyed közösség imaórája lesz templomunkban.
@@ -18,29 +160,29 @@ A Pécsi Püspöki Hittudományi Főiskola felvételeit hirdet képzéseire. Bő
 **HIMNUSZA A SZENTHÁROMSÁGRÓL**
 
 Hárman a fenség trónusán  
- ülnek az égi lakomán;  
- (mert a magányost a magány  
- nem vigasztalja igazán).
+ülnek az égi lakomán;  
+(mert a magányost a magány  
+nem vigasztalja igazán).
 
 Mig örök szelleme szemét  
- magára szegzi az Atya,  
- fényének tükörére kép  
- vetődik: egy uj-önmaga.
+magára szegzi az Atya,  
+fényének tükörére kép  
+vetődik: egy uj-önmaga.
 
 S amint a kép megszületett,  
- az Egy nincs többé egyedül:  
- a Születetlen és Szülött  
- egymásnak társasan örül.
+az Egy nincs többé egyedül:  
+a Születetlen és Szülött  
+egymásnak társasan örül.
 
 S a Szentlélek ez az öröm,  
- mely összeköt Atyát s Fiút;  
- s a Három együvé ömöl,  
- egy fő-fő Jóba összefut.
+mely összeköt Atyát s Fiút;  
+s a Három együvé ömöl,  
+egy fő-fő Jóba összefut.
 
 S annak ki sohse született,  
- illőn, és aki született,  
- s a Léleknek, oltárra-tett  
- szívvel zengjünk dicséretet!
+illőn, és aki született,  
+s a Léleknek, oltárra-tett  
+szívvel zengjünk dicséretet!
 
 **HIRDETÉSEINK PÜNKÖSD FŐÜNNEPÉN-2021. május 23-30.**
 
