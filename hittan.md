@@ -13,6 +13,10 @@ title: Hittan
 
 **A Plébános**
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. JÚNIUS 13.**
+
+**2822** A mi Atyánk akarata az, hogy "minden ember (...) üdvözüljön és eljusson az igazság megismerésére" (1Tim 2,3--4). "Türelmes (...), mert nem akarja, hogy valaki is elvesszen" (2Pt 3,9). Az Ő minden egyebet összefoglaló parancsa, ami az Ő egész akaratát is kifejezi számunkra, az, hogy szeressük egymást, ahogy Ő szeretett minket.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2021. JÚNIUS 6.**
 
 **1391** A szentáldozás elmélyíti egyesülésünket Krisztussal. Az Eucharisztia vételének a szentáldozásban a legfőbb gyümölcse a benső egyesülés Jézus Krisztussal. Az Úr mondja: "Aki eszi az én testemet és issza az én véremet, az bennem marad, én meg őbenne" (Jn 6,56). A Krisztusban való élet alapja az eucharisztikus lakoma: "Ahogy engem az élő Atya küldött és Én az Atya által élek, úgy az is, aki engem eszik, általam fog élni" (Jn 6,57).
