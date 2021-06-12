@@ -13,6 +13,28 @@ title: Hittan
 
 **A Plébános**
 
+**Óvodai hitoktatás**
+
+Kedves Szülők!
+
+2021\. szeptember hónapban szervezzük, mint a korábbi évben is, az óvodai hittant, amely majd **okt. 1-jétől** kezdődik el heti egy alkalommal.   
+ **Csonka Laura** új hitoktatónk nagy szeretettel és sok tapasztalattal várja a gyermekeket   
+ 30 perces foglalkozásokra, ahol játékos formában megismerhetik hitünk alapjait. Ezek az alkalmak előkészítik az iskolai hitoktatást és segítik az otthoni hitre való nevelést.
+
+Szent Ferenc Plébániához területileg tartozó óvodák, ahonnan szeretettel várjuk a jelentkezést:   
+   
+ Városközponti Óvoda Bornemissza Gergely Utcai Tagóvodája   
+ 7624 Pécs Bornemissza Gergely utca 3.   
+   
+ Városközponti Óvoda József Attila Utcai Tagóvodája   
+ 7623 Pécs, József Attila utca 20. 3.
+
+Nyugati Városrészi Óvoda   
+ 7623 Pécs Mezőszél utca 2.
+
+Nyugati Városrészi Óvoda Nagy Jenő Utcai Tagóvodája   
+ 7624 Pécs, Nagy Jenő utca 38.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. JÚNIUS 13.**
 
 **2822** A mi Atyánk akarata az, hogy "minden ember (...) üdvözüljön és eljusson az igazság megismerésére" (1Tim 2,3--4). "Türelmes (...), mert nem akarja, hogy valaki is elvesszen" (2Pt 3,9). Az Ő minden egyebet összefoglaló parancsa, ami az Ő egész akaratát is kifejezi számunkra, az, hogy szeressük egymást, ahogy Ő szeretett minket.
