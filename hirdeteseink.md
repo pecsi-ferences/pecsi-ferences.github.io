@@ -3,6 +3,66 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEK ÉVKÖZI 11. VASÁRNAP- 2021. június 13-20.**
+
+Ma - mivel a hónap második vasárnapja van – 16 órától szentségimádási órát tartunk templomunkban.
+
+Ma a 17 órai szentmisében tartjuk a Hittanos Te Deumot.
+
+Ugyancsak ma a 17 órai szentmisében a Szeráfi Kórus teljesít ének-zenei szolgálatot. Nagy Ernő Karnagy Úr vezetésével, vezényletével.
+
+Jövő szombaton 17 órakor német-magyar mise lesz a templomban.
+
+Jövő vasárnap 11 órakor a Szent Egyed közösség szentmiséje lesz templomunkban.
+
+MAGVETÉS
+
+Ha a nagy Magvető nyomdokába léptél,
+
+ha vállaltad a magvetés szolgálatát:
+
+vállalnod kell vele a zord napokat is,
+
+esőket, szeleket, viharok próbáját,
+
+melyek terheikkel sorra mind megjönnek,
+
+hogy próbára tegyék a te hűségedet.
+
+Számíts arra is, hogy az elhintett jó mag
+
+nem mindig a jó talajba talál,
+
+kövek közé is hull, meg tövisek közé,
+
+ahol fojtogatja a magot a halál.
+
+Ne keserítsen el, ne hidd, hogy hiába!
+
+A magvetés soha, soha nem vész kárba!
+
+És ha forró szelek tikkasztják a vetést,
+
+tudnod kell, hogy itt az öntözés ideje,
+
+s akkor öntözz, öntözz, dús könnyhullatással,
+
+szívedből feltörő, könnyes imádsággal!
+
+A könnyek lágyítják a kőkemény talajt,
+
+utat egyengetnek a gyenge csírának.
+
+Légy fáradhatatlan, mint a nagy Magvető!
+
+Ha munkádat csendes hűséggel elvégzed,
+
+meglátod, megáldja ő könnyes vetésed,
+
+lesz még örömteljes, boldog aratásod!
+
+_Oláh Lajosné_
+
 **HIRDETÉSEK KRISZTUS TESTÉNEK ÉS VÉRÉNEK FŐÜNNEPÉN - 2021. június 6-13.**
 
 Hétfőn és csütörtökön 18 óra 30 perckor a Szent Egyed közösség imaórája lesz templomunkban.
@@ -20,127 +80,127 @@ A Pécsi Püspöki Hittudományi Főiskola felvételeit hirdet képzéseire. Bő
 Babits Mihály Úrnapi Éneke
 
 Dicsérd, Sion, a Megváltót,  
- dicsérd a vezért, a pásztort,
+dicsérd a vezért, a pásztort,
 
 | --- | --- |
 |  | zengj himnuszt, zengj éneket! |
 
 Ahogy bírod, akként merjed:  
- nagyobb Ő mint a dicséret,
+nagyobb Ő mint a dicséret,
 
 | --- | --- |
 |  | méltón nem dicsérheted. |
 
 S a dicséret külön tárgya  
- ma hogy a Kenyeret áldja,
+ma hogy a Kenyeret áldja,
 
 | --- | --- |
 |  | mely éltet és eleven, |
 
 s hogy végvacsoráján kapta  
- a Tizenkettők csapatja,
+a Tizenkettők csapatja,
 
 | --- | --- |
 |  | nem kétséges semmiben. |
 
 Legyen teljes, legyen zengő,  
- legyen vidám és illendő
+legyen vidám és illendő
 
 | --- | --- |
 |  | szivünk ujjongása ma: |
 
 mert azt a napot jelzi ünnepünk,  
- melyen először adatott nekünk
+melyen először adatott nekünk
 
 | --- | --- |
 |  | ez a lelki lakoma |
 
 Új királynak asztalára  
- új törvénynek szállt páskája:
+új törvénynek szállt páskája:
 
 | --- | --- |
 |  | elavult a régi már. |
 
 Fut az ujtól ami agg,  
- igazságtól ami vak;
+igazságtól ami vak;
 
 | --- | --- |
 |  | fut a fénytől a homály. |
 
 Amit Krisztus tett ez estén,  
- hagyta hogy rá emlékezvén
+hagyta hogy rá emlékezvén
 
 | --- | --- |
 |  | cselekedjük mi is azt. |
 
 Okultunk szent törvényéből:  
- így lesz borból és kenyérből
+így lesz borból és kenyérből
 
 | --- | --- |
 |  | üdvösséges áldozat. |
 
 Más és más - de nem lényegben,  
- csak jel szerint más - szinekben
+csak jel szerint más - szinekben
 
 | --- | --- |
 |  | égi jók lappanganak. |
 
 A vér ital, a hús étel:  
- mégis Krisztus, lényegével,
+mégis Krisztus, lényegével,
 
 | --- | --- |
 |  | teljes mindkét szín alatt. |
 
 Oly kenyér, melyet meg nem tör,  
- aki vesz miként étekből,
+aki vesz miként étekből,
 
 | --- | --- |
 |  | s el se vág, és meg se szel. |
 
 Veszi egy és veszik ezren:  
- annyit egy; amennyit ezren;
+annyit egy; amennyit ezren;
 
 | --- | --- |
 |  | fogyasztják és nem fogy el. |
 
 Veszik jók és veszik rosszak:  
- csakhogy különböző sorsnak
+csakhogy különböző sorsnak
 
 | --- | --- |
 |  | részesei ők vele. |
 
 Rossznak halál, jónak élet:  
- ilyen az egyforma étek
+ilyen az egyforma étek
 
 | --- | --- |
 |  | különböző ereje. |
 
 Im az angyalok kenyere,  
- utonjárók eledele,  
- édesfiaknak étele,
+utonjárók eledele,  
+édesfiaknak étele,
 
 | --- | --- |
 |  | nem ebek számára szánt, |
 
 melynek előképe már a  
- husvéti bárány halála,  
- valamint Izsák oltára,
+husvéti bárány halála,  
+valamint Izsák oltára,
 
 | --- | --- |
 |  | s hogy az égből manna szállt. |
 
 Óh igaz Kenyér, jó Pásztor,  
- Jézus, óvj az elbukástól,  
- te táplálj és te palástolj  
- s add hogy a feltámadáskor
+Jézus, óvj az elbukástól,  
+te táplálj és te palástolj  
+s add hogy a feltámadáskor
 
 | --- | --- |
 |  | üdvnek látói legyünk. |
 
 Te, ki mindent bírsz és értesz,  
- s e földön táplálsz és éltetsz,  
- tedd, hogy szent népeddel, ékes  
- asztalodnál majd az édes
+s e földön táplálsz és éltetsz,  
+tedd, hogy szent népeddel, ékes  
+asztalodnál majd az édes
 
 | --- | --- |
 |  | örökségben résztvegyünk! |
