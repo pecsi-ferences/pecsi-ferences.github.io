@@ -17,23 +17,31 @@ title: Hittan
 
 Kedves Szülők!
 
-2021\. szeptember hónapban szervezzük, mint a korábbi évben is, az óvodai hittant, amely majd **okt. 1-jétől** kezdődik el heti egy alkalommal.   
- **Csonka Laura** új hitoktatónk nagy szeretettel és sok tapasztalattal várja a gyermekeket   
- 30 perces foglalkozásokra, ahol játékos formában megismerhetik hitünk alapjait. Ezek az alkalmak előkészítik az iskolai hitoktatást és segítik az otthoni hitre való nevelést.
+2021\. szeptember hónapban szervezzük, mint a korábbi évben is, az óvodai hittant, amely majd **okt. 1-jétől** kezdődik el heti egy alkalommal.  
+**Csonka Laura** új hitoktatónk nagy szeretettel és sok tapasztalattal várja a gyermekeket  
+30 perces foglalkozásokra, ahol játékos formában megismerhetik hitünk alapjait. Ezek az alkalmak előkészítik az iskolai hitoktatást és segítik az otthoni hitre való nevelést.
 
-Szent Ferenc Plébániához területileg tartozó óvodák, ahonnan szeretettel várjuk a jelentkezést:   
-   
- Városközponti Óvoda Bornemissza Gergely Utcai Tagóvodája   
- 7624 Pécs Bornemissza Gergely utca 3.   
-   
- Városközponti Óvoda József Attila Utcai Tagóvodája   
- 7623 Pécs, József Attila utca 20. 3.
+Szent Ferenc Plébániához területileg tartozó óvodák, ahonnan szeretettel várjuk a jelentkezést:
 
-Nyugati Városrészi Óvoda   
- 7623 Pécs Mezőszél utca 2.
+Városközponti Óvoda Bornemissza Gergely Utcai Tagóvodája  
+7624 Pécs Bornemissza Gergely utca 3.
 
-Nyugati Városrészi Óvoda Nagy Jenő Utcai Tagóvodája   
- 7624 Pécs, Nagy Jenő utca 38.
+Városközponti Óvoda József Attila Utcai Tagóvodája  
+7623 Pécs, József Attila utca 20. 3.
+
+Nyugati Városrészi Óvoda  
+7623 Pécs Mezőszél utca 2.
+
+Nyugati Városrészi Óvoda Nagy Jenő Utcai Tagóvodája  
+7624 Pécs, Nagy Jenő utca 38.
+
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.JÚNIUS 20.**
+
+**547** Jézus a maga szavait számos "erővel, csodával és jellel" kísérte (ApCsel 2,22), melyek mutatják, hogy az Ország Őbenne jelen van. Ezek bizonyítják, hogy Jézus a megígért Messiás.
+
+**548** A Jézus által végbevitt jelek bizonyítják, hogy őt az Atya küldte. Arra hívnak, hogy higgyenek Őbenne. Azoknak, akik hittel fordulnak feléje, Jézus megadja, amit kérnek. Akkor a csodák megerősítik a hitet Abban, aki az Atya cselekedeteit teszi: bizonyítják, hogy ő Isten Fia. A csodák ugyanakkor botrányt is okozhatnak. Ugyanis nem kíváncsiságot és mágikus kívánságokat akarnak kielégíteni. Jézust oly nyilvánvaló csodái ellenére is egyesek elutasították; sőt azzal vádolták, hogy az ördögök segítségével cselekszik.
+
+**549** Amikor Jézus embereket a földi éhségtől,igazságtalanságtól,betegségtől és haláltól megszabadít, messiási jeleket ad. De nem azért jött, hogy a földön minden bajt megszüntessen, hanem hogy az embereket a lehető legrosszabb rabszolgaságból, a bűn szolgaságából kiszabadítsa, mely hatálytalanítja istengyermeki hivatásukat és oka mindenfajta emberi rabszolgaságnak.
 
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. JÚNIUS 13.**
 
