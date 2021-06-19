@@ -3,6 +3,54 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 12. VASÁRNAP-2021. JÚNIUS 20-27.**
+
+Ma 11 órakor a Szent Egyed közösség szentmiséje lesz templomunkban.
+
+Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkban.
+
+Július 1-4. között (Csütörtöktől vasárnapig) lesz a 39. Máriagyűdi Ifjúsági Találkozó, További információk és jelentkezés az azonos nevű Facebook-esemény leírásában.
+
+Regisztrálni csak 16-35 év közöttiek tudnak a találkozó egészére,
+
+AZONBAN az ELŐADÁSOKRA ÉS A SZENTMISÉKRE MINDENKIT VÁRUNK!!!
+
+\-Július 1-én 19:00 órakor a nyitó szentmisét Berecz Tibor tartja.
+
+**-Július 2-án pénteken 16:30-18:00 között dr. Fodor Réka missziós orvos tart előadást,**
+
+**-majd 19:00 órától Kerényi Lajos atya tart szentmisét.**
+
+**-Július 3-án szombaton 10:00-11:30 között Kerényi Lajos atya tart előaást, -este, 19:00 órakor pedig Felföldi László püspök atya misézik.**
+
+\-Július 4-én vasárnap 10:00 órakor a záró szentmisét Kovács József atya tartja.
+
+A programok **a szabadtéri oltárnál** lesznek.
+
+\- Július 1. csütörtök késődélután **érkezik a NEK Missziós keresztje és a találkozó alatt szombat délutánig ott lesz.**
+
+A TENGER LECSENDESÍTÉSE
+
+Vihar tombol, zúg a szél,  
+ A hajósnép jaj, de fél!  
+ Rettegnek a haláltól,  
+ Költik Jézust álmából.
+
+– Ébredj, Mester, elveszünk!  
+ Így törődsz Te mivelünk?  
+ Látod, nagy bajban vagyunk,  
+ Süllyed már a csónakunk!
+
+– Ne féljetek, itt vagyok,  
+ veszni senkit nem hagyok.  
+ Szavamra a szél megáll,  
+ Csendesül a tengerár.
+
+– Ugyan, ki ez, hogy így szól,  
+ Szélnek, víznek parancsol?  
+ – Nem tesz ilyet senki más,  
+ Ő az Úr, a Messiás!
+
 **HIRDETÉSEK ÉVKÖZI 11. VASÁRNAP- 2021. június 13-20.**
 
 Ma - mivel a hónap második vasárnapja van – 16 órától szentségimádási órát tartunk templomunkban.
