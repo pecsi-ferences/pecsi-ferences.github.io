@@ -35,6 +35,20 @@ Nyugati Városrészi Óvoda
 Nyugati Városrészi Óvoda Nagy Jenő Utcai Tagóvodája  
 7624 Pécs, Nagy Jenő utca 38.
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2021.JÚNIUS 27.**
+
+**992** A halottak föltámadását Isten fokozatosan nyilatkoztatta ki népének. A halottak testi föltámadásába vetett remény úgy bontakozott ki, mint az egész ember, a lélek és a test Teremtőjébe, Istenbe vetett hit logikus következménye. Az égnek és a földnek Teremtője ugyanaz, mint aki hűségesen tartja az Ábrahámmal és utódaival kötött Szövetségét. A föltámadás hite ebben a kettős távlatban kezdett megmutatkozni. A Makkabeus vértanúk megkínoztatásuk közepette vallották:
+
+"A világ Királya minket, akik az Ő törvényeiért halunk meg, föl fog támasztani az élet örök föltámadására" (2Mak 7,9). "Jobb nekünk, akiket emberek halálra adnak, várni Istentől a reményt, hogy újra életre támaszt minket" (7,14).
+
+**993** A farizeusok és az Úr sok kortársa várta a föltámadást. Jézus a föltámadást határozottan tanítja. A szadduceusoknak, akik tagadják, így válaszol: "Nem azért tévedtek-e, mert nem ismeritek sem az Írásokat, sem Isten hatalmát?" (Mk 12,24). A föltámadás hite abba az Istenbe vetett hitre támaszkodik, aki "nem a holtak Istene, hanem az élőké" (Mk 12,27).
+
+**994** Sőt: Jézus a föltámadásba vetett hitet összekapcsolja saját személyével: "Én vagyok a föltámadás és az élet" (Jn 11,25). Maga Jézus fogja föltámasztani az utolsó napon azokat, akik Benne hittek, s akik ették az Ő testét és itták az Ő vérét. Ennek már most jelét és zálogát adja azzal, hogy néhány halottnak visszaadja az életet, így jövendölvén a föltámadását, bár az más létrendbe tartozik. Erről a teljesen egyedülálló eseményről úgy beszél, mint Jónás jeléről, mint a Templom jeléről: megjövendöli föltámadását a megölése utáni harmadnapon.
+
+**995** Krisztus tanújának lenni nem más, mint "az ő föltámadása tanújának lenni" (ApCsel 1,22), miután ettek és ittak "vele együtt föltámadása után" (10,41). A föltámadás keresztény reményét teljesen megpecsételik a föltámadt Krisztussal történt találkozások. Föl fogunk támadni, mint Ő, Ővele és Őáltala.
+
+**996** A föltámadás keresztény hite kezdettől fogva értetlenségekkel és ellenkezésekkel találkozott. "Egyetlen dologban sem mondanak ellent a keresztény hitnek oly hevesen, konokul, minden erővel, perlekedve, mint a test föltámadásának." Azt általában elfogadják az emberek, hogy az emberi személy élete a halál után szellemi módon folytatódik. De hogyan lehet azt elhinni, hogy ez az oly nyilvánvalóan halandó test képes lesz föltámadni az örök életre?
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021.JÚNIUS 20.**
 
 **547** Jézus a maga szavait számos "erővel, csodával és jellel" kísérte (ApCsel 2,22), melyek mutatják, hogy az Ország Őbenne jelen van. Ezek bizonyítják, hogy Jézus a megígért Messiás.
