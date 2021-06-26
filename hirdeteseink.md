@@ -3,6 +3,33 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP - 2021. JÚNIUS 27-JÚLIUS 4.**
+
+Ma 16 órakor horvát nyelvű szentmise lesz templomunkban. A plébániai szentmise- a szokott időben- 17 órakor kezdődik.
+
+Kedden lesz Szent Péter és Szent Pál apostolok főünnepe egyházunkban. Pécs városában ezen a napon este csak a Székesegyházban lesz szentmise. A Főpásztor a 18 órakor kezdődő szentmisére vár mindenkit! A mi templomunk kedden zárva lesz. Megértésüket köszönjük!
+
+Pénteken lesz július hónap első péntekje.
+
+Jövő vasárnap Péter-fillér gyűjtés lesz az ország katolikus templomaiban.
+
+JAIRUS LEÁNYA
+
+Szenved Jairus leánya.  
+ Atyja Jézust kéri, várja:  
+ “Jaj, már haldoklik az ágyon,  
+ Mester, gyógyítsd meg a lányom!”
+
+Jézus a küszöbön átlép.  
+ “Késő – jajgatja a háznép. –  
+ Meghalt, a szíve se’ dobban!  
+ Mért is nem siettél jobban?”
+
+Jézus szól nagy szeretettel:  
+ “Lányka, néked mondom, kelj fel!”  
+ És a gyermek ül is nyomban,  
+ Mert e szóban hatalom van.
+
 **HIRDETÉSEINK ÉVKÖZI 12. VASÁRNAP-2021. JÚNIUS 20-27.**
 
 Ma 11 órakor a Szent Egyed közösség szentmiséje lesz templomunkban.
@@ -32,24 +59,24 @@ A programok **a szabadtéri oltárnál** lesznek.
 A TENGER LECSENDESÍTÉSE
 
 Vihar tombol, zúg a szél,  
- A hajósnép jaj, de fél!  
- Rettegnek a haláltól,  
- Költik Jézust álmából.
+A hajósnép jaj, de fél!  
+Rettegnek a haláltól,  
+Költik Jézust álmából.
 
 – Ébredj, Mester, elveszünk!  
- Így törődsz Te mivelünk?  
- Látod, nagy bajban vagyunk,  
- Süllyed már a csónakunk!
+Így törődsz Te mivelünk?  
+Látod, nagy bajban vagyunk,  
+Süllyed már a csónakunk!
 
 – Ne féljetek, itt vagyok,  
- veszni senkit nem hagyok.  
- Szavamra a szél megáll,  
- Csendesül a tengerár.
+veszni senkit nem hagyok.  
+Szavamra a szél megáll,  
+Csendesül a tengerár.
 
 – Ugyan, ki ez, hogy így szól,  
- Szélnek, víznek parancsol?  
- – Nem tesz ilyet senki más,  
- Ő az Úr, a Messiás!
+Szélnek, víznek parancsol?  
+– Nem tesz ilyet senki más,  
+Ő az Úr, a Messiás!
 
 **HIRDETÉSEK ÉVKÖZI 11. VASÁRNAP- 2021. június 13-20.**
 
