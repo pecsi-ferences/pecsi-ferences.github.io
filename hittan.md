@@ -35,6 +35,14 @@ Nyugati Városrészi Óvoda
 Nyugati Városrészi Óvoda Nagy Jenő Utcai Tagóvodája  
 7624 Pécs, Nagy Jenő utca 38.
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. JÚLIUS 4.**
+
+**2089** A hitetlenség a kinyilatkoztatott igazság elhanyagolása vagy elfogadásának szándékos megtagadása. "Eretnekségnek mondjuk, ha valamely isteni és katolikus hittel elfogadandó igazságnak makacs tagadása vagy makacs kétségbevonása a keresztség fölvétele után; aposztáziának, ha a keresztény hit teljes elutasítása; és skizmának, ha a Pápának való alárendeltség vagy a neki alárendelt egyháztagokkal való közösség megtagadása."
+
+**678** Jézus a próféták és Keresztelő János után prédikációjában meghirdette az utolsó nap ítéletét. Akkor napvilágra kerül majd minden egyes ember élete és a szívek titkai. Akkor elítéltetik a bűnös hitetlenség, mely semmibe vette az Istentől fölajánlott kegyelmet. A felebarátok iránti magatartás fogja megmutatni a kegyelem és az isteni szeretet elfogadását vagy elutasítását. Az utolsó napon Jézus fogja mondani: "Amikor egynek a legkisebb testvéreim közül megtettétek, nekem tettétek meg" (Mt 25,40).
+
+**1851** Épp a szenvedésben, amelyben Krisztus irgalmassága le fogja győzni, mutatja meg a bűn leginkább a maga erőszakosságát és bonyolult összetettségét: a hitetlenséget, a halálos gyűlöletet, a nép és vezetői gúnyolódó elutasítását, Pilátus gyávaságát és a szolgák kegyetlenségét, Júdás -- Jézus számára oly keserű -- árulását, Péter tagadását és a tanítványok megfutamodását. Mindazonáltal épp a sötétség és e világ fejedelmének órájában vált Krisztus áldozata titokzatosan azzá a forrássá, amelyből kiapadhatatlanul árad bűneink bocsánata.
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL- 2021.JÚNIUS 27.**
 
 **992** A halottak föltámadását Isten fokozatosan nyilatkoztatta ki népének. A halottak testi föltámadásába vetett remény úgy bontakozott ki, mint az egész ember, a lélek és a test Teremtőjébe, Istenbe vetett hit logikus következménye. Az égnek és a földnek Teremtője ugyanaz, mint aki hűségesen tartja az Ábrahámmal és utódaival kötött Szövetségét. A föltámadás hite ebben a kettős távlatban kezdett megmutatkozni. A Makkabeus vértanúk megkínoztatásuk közepette vallották:
