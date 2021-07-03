@@ -3,6 +3,34 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 14. VASÁRNAP - 2021.JÚLIUS 4-11.**
+
+Ma Péter-fillér gyűjtés van az ország katolikus templomaiban.
+
+Jövő vasárnap-mivel a hónap második vasárnapja lesz- 16 órától szentségimádási órát tartunk templomunkban.
+
+Reményik Sándor
+
+A lelki szegénység dicsérete
+
+Hálát adok, hogy a világból  
+ Oly kevés dolgot ismerek,  
+ Hálát, hogy Párist sohse láttam,  
+ S nem vonzanak a tengerek.  
+ Hogy nem jártam a Rivierán,  
+ És járni már alig fogok,  
+ Hogy becsukódtak én előttem  
+ Idejében a távolok.
+
+Ó láttam így is, éltem így is,  
+ Így is kínlódtam eleget.  
+ A benyomások szertevitték,  
+ S vissza nem hozták lelkemet,  
+ Ugyan mit értem volna véle,  
+ Ha még több darabra török?  
+ S előlem milliónyi részlet  
+ Födi el azt, ami örök.
+
 **HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP - 2021. JÚNIUS 27-JÚLIUS 4.**
 
 Ma 16 órakor horvát nyelvű szentmise lesz templomunkban. A plébániai szentmise- a szokott időben- 17 órakor kezdődik.
@@ -16,19 +44,19 @@ Jövő vasárnap Péter-fillér gyűjtés lesz az ország katolikus templomaiban
 JAIRUS LEÁNYA
 
 Szenved Jairus leánya.  
- Atyja Jézust kéri, várja:  
- “Jaj, már haldoklik az ágyon,  
- Mester, gyógyítsd meg a lányom!”
+Atyja Jézust kéri, várja:  
+“Jaj, már haldoklik az ágyon,  
+Mester, gyógyítsd meg a lányom!”
 
 Jézus a küszöbön átlép.  
- “Késő – jajgatja a háznép. –  
- Meghalt, a szíve se’ dobban!  
- Mért is nem siettél jobban?”
+“Késő – jajgatja a háznép. –  
+Meghalt, a szíve se’ dobban!  
+Mért is nem siettél jobban?”
 
 Jézus szól nagy szeretettel:  
- “Lányka, néked mondom, kelj fel!”  
- És a gyermek ül is nyomban,  
- Mert e szóban hatalom van.
+“Lányka, néked mondom, kelj fel!”  
+És a gyermek ül is nyomban,  
+Mert e szóban hatalom van.
 
 **HIRDETÉSEINK ÉVKÖZI 12. VASÁRNAP-2021. JÚNIUS 20-27.**
 
