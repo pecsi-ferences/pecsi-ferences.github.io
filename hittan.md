@@ -35,6 +35,10 @@ Nyugati Városrészi Óvoda
 Nyugati Városrészi Óvoda Nagy Jenő Utcai Tagóvodája  
 7624 Pécs, Nagy Jenő utca 38.
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. július 11.**
+
+**322** Krisztus arra hív minket, hogy gyermeki bizalommal hagyatkozzunk rá mennyei Atyánk gondviselésére, és Szent Péter apostol megismétli: "Minden gondotokat bízzátok Őrá, mert neki gondja van rátok" (1Pt 5,7).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. JÚLIUS 4.**
 
 **2089** A hitetlenség a kinyilatkoztatott igazság elhanyagolása vagy elfogadásának szándékos megtagadása. "Eretnekségnek mondjuk, ha valamely isteni és katolikus hittel elfogadandó igazságnak makacs tagadása vagy makacs kétségbevonása a keresztség fölvétele után; aposztáziának, ha a keresztény hit teljes elutasítása; és skizmának, ha a Pápának való alárendeltség vagy a neki alárendelt egyháztagokkal való közösség megtagadása."
