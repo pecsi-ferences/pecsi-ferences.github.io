@@ -3,6 +3,45 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 15. VASÁRNAP - 2021.JÚLIUS 11-18.**
+
+Ma - mivel a hónap második vasárnapja van- 16 órától szentségimádási órát tartunk templomunkban.
+
+Csütörtökönként a szentmise előtt rózsafüzér imádságot tartunk a templomban. Mindenkit szeretettel várunk a közös imádságra!
+
+Jövő szombaton nem lesz német mise templomunkban.
+
+Múlt vasárnap volt a Péter-fillér gyűjtés egyházunkban. Templomunkban 93 145 forint gyűlt össze a Szentszék megsegítésére.
+
+NÉZZ VISSZA
+
+Nézz vissza és láss, látó szemmel,  
+ mennyi bajból mentett Istened.  
+ Lásd, munkálkodik életedben,  
+ megsegít, hordoz és felemel.
+
+Kezében van az ember sorsa,  
+ benne rejlik, létbiztonsága.  
+ Tőle függ jövőjének útja,  
+ híveit nem hagyja magára.
+
+Nélküle zsákutcába vezet,  
+ az életút, s reménytelen,  
+ ha magára marad az ember,  
+ ha az Úr kezét nem fogja meg.
+
+Mit épít önmagában bízva,  
+ percek alatt, összeomolhat,  
+ De azok, kik az Úrban bíznak,  
+ erejükben megújulnak.
+
+Ő a Mindenség kormányzója  
+ Őrá bízzad, életutadat.  
+ a legkisebbre is van gondja,  
+ bölcsen irányítja, sorsodat.
+
+_Schvalm Rózsa_
+
 **HIRDETÉSEINK ÉVKÖZI 14. VASÁRNAP - 2021.JÚLIUS 4-11.**
 
 Ma Péter-fillér gyűjtés van az ország katolikus templomaiban.
@@ -14,22 +53,22 @@ Reményik Sándor
 A lelki szegénység dicsérete
 
 Hálát adok, hogy a világból  
- Oly kevés dolgot ismerek,  
- Hálát, hogy Párist sohse láttam,  
- S nem vonzanak a tengerek.  
- Hogy nem jártam a Rivierán,  
- És járni már alig fogok,  
- Hogy becsukódtak én előttem  
- Idejében a távolok.
+Oly kevés dolgot ismerek,  
+Hálát, hogy Párist sohse láttam,  
+S nem vonzanak a tengerek.  
+Hogy nem jártam a Rivierán,  
+És járni már alig fogok,  
+Hogy becsukódtak én előttem  
+Idejében a távolok.
 
 Ó láttam így is, éltem így is,  
- Így is kínlódtam eleget.  
- A benyomások szertevitték,  
- S vissza nem hozták lelkemet,  
- Ugyan mit értem volna véle,  
- Ha még több darabra török?  
- S előlem milliónyi részlet  
- Födi el azt, ami örök.
+Így is kínlódtam eleget.  
+A benyomások szertevitték,  
+S vissza nem hozták lelkemet,  
+Ugyan mit értem volna véle,  
+Ha még több darabra török?  
+S előlem milliónyi részlet  
+Födi el azt, ami örök.
 
 **HIRDETÉSEINK ÉVKÖZI 13. VASÁRNAP - 2021. JÚNIUS 27-JÚLIUS 4.**
 
