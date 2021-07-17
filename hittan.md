@@ -35,6 +35,10 @@ Nyugati Városrészi Óvoda
 Nyugati Városrészi Óvoda Nagy Jenő Utcai Tagóvodája  
 7624 Pécs, Nagy Jenő utca 38.
 
+**A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-                    2021. JÚLIUS 18.**
+
+**858** Jézust az Atya küldötte. Szolgálatának kezdetétől fogva "magához hívta azokat, akiket Ő maga akart (...). És megalkotta a Tizenkettőt, hogy vele legyenek, és hogy elküldje őket prédikálni" (Mk 3,13--14). Ettől kezdve ők az Ő "küldöttei" (a görög aposztoloi szó ezt jelenti). Ő bennük hajtja végre saját küldetését: "Miként engem küldött az Atya, én is küldelek titeket" (Jn 20,21).Szolgálatuk tehát az Ő küldetésének folytatása: "Aki titeket befogad, engem fogad be" -- mondja Ő maga a Tizenkettőnek (Mt 10,40).
+
 **A KATOLIKUS EGYHÁZ KATEKIZMUSÁBÓL-2021. július 11.**
 
 **322** Krisztus arra hív minket, hogy gyermeki bizalommal hagyatkozzunk rá mennyei Atyánk gondviselésére, és Szent Péter apostol megismétli: "Minden gondotokat bízzátok Őrá, mert neki gondja van rátok" (1Pt 5,7).
