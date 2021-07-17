@@ -3,6 +3,48 @@ layout: default
 title: Hirdetéseink
 
 ---
+**HIRDETÉSEINK ÉVKÖZI 16. VASÁRNAP - 2021.JÚLIUS 18-25.**
+
+Csütörtökönként a szentmise előtt rózsafüzér imádságot tartunk a templomban. Mindenkit szeretettel várunk a közös imádságra!
+
+Jövő vasárnap- a Pécsi Egyházmegyében- templomi gyűjtés lesz az Ormánsági viharkár károsultjainak megsegítésre.
+
+Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkba
+
+Jövő vasárnap lesz a Nagyszülők és Idősek Világnapja egyházunkban. A 8 órai és a 17 órai szentmise keretében kiszolgáltatjuk a betegek szentségét azoknak, akik ezt kérik.
+
+Túrmezei Erzsébet Nem mondott fel nekem
+
+Szolgálatára angyalok sietnek,  
+ Parancsol viharoknak és szeleknek.  
+ Megérteni, felfogni nem lehet,  
+ Hogy meglátott, parányi porszemet,  
+ És szolgálatába vett.
+
+Szívemben ujjongva dalol a hála.  
+ Kerek világon nincs jobb gazda Nála!  
+ Mikor szolgálatába fogadott,  
+ Nem csak munkát, drága feladatot,  
+ Erőt is Ő adott.
+
+Szent lelkét adta, segítsen, vezessen,  
+ Sürgessen: soha ne időzzek resten.  
+ Tekintete rajtam volt szüntelen,  
+ Mindenre elég volt a kegyelem.  
+ maga járt velem!
+
+Talált volna annyi hűségesebbet,  
+ Parancsainak engedelmesebbet...  
+ Csoda irgalmát áldja énekem,  
+ Hogy szolgálhattam hosszú éveken,  
+ És nem mondott fel nekem.
+
+Pedig annyiszor megtehette volna!  
+ S én szegény, gyenge, engedetlen szolga  
+ Türelmét, irgalmát dicsérhetem...  
+ Mert ezután sem mond fel... sohasem!  
+ Övé az életem!
+
 **HIRDETÉSEINK ÉVKÖZI 15. VASÁRNAP - 2021.JÚLIUS 11-18.**
 
 Ma - mivel a hónap második vasárnapja van- 16 órától szentségimádási órát tartunk templomunkban.
@@ -16,29 +58,29 @@ Múlt vasárnap volt a Péter-fillér gyűjtés egyházunkban. Templomunkban 93 
 NÉZZ VISSZA
 
 Nézz vissza és láss, látó szemmel,  
- mennyi bajból mentett Istened.  
- Lásd, munkálkodik életedben,  
- megsegít, hordoz és felemel.
+mennyi bajból mentett Istened.  
+Lásd, munkálkodik életedben,  
+megsegít, hordoz és felemel.
 
 Kezében van az ember sorsa,  
- benne rejlik, létbiztonsága.  
- Tőle függ jövőjének útja,  
- híveit nem hagyja magára.
+benne rejlik, létbiztonsága.  
+Tőle függ jövőjének útja,  
+híveit nem hagyja magára.
 
 Nélküle zsákutcába vezet,  
- az életút, s reménytelen,  
- ha magára marad az ember,  
- ha az Úr kezét nem fogja meg.
+az életút, s reménytelen,  
+ha magára marad az ember,  
+ha az Úr kezét nem fogja meg.
 
 Mit épít önmagában bízva,  
- percek alatt, összeomolhat,  
- De azok, kik az Úrban bíznak,  
- erejükben megújulnak.
+percek alatt, összeomolhat,  
+De azok, kik az Úrban bíznak,  
+erejükben megújulnak.
 
 Ő a Mindenség kormányzója  
- Őrá bízzad, életutadat.  
- a legkisebbre is van gondja,  
- bölcsen irányítja, sorsodat.
+Őrá bízzad, életutadat.  
+a legkisebbre is van gondja,  
+bölcsen irányítja, sorsodat.
 
 _Schvalm Rózsa_
 
