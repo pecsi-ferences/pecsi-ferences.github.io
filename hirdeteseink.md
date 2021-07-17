@@ -9,41 +9,41 @@ Csütörtökönként a szentmise előtt rózsafüzér imádságot tartunk a temp
 
 Jövő vasárnap- a Pécsi Egyházmegyében- templomi gyűjtés lesz az Ormánsági viharkár károsultjainak megsegítésre.
 
-Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkba
+Jövő vasárnap 16 órakor horvát nyelvű szentmise lesz templomunkban.
 
 Jövő vasárnap lesz a Nagyszülők és Idősek Világnapja egyházunkban. A 8 órai és a 17 órai szentmise keretében kiszolgáltatjuk a betegek szentségét azoknak, akik ezt kérik.
 
 Túrmezei Erzsébet Nem mondott fel nekem
 
 Szolgálatára angyalok sietnek,  
- Parancsol viharoknak és szeleknek.  
- Megérteni, felfogni nem lehet,  
- Hogy meglátott, parányi porszemet,  
- És szolgálatába vett.
+Parancsol viharoknak és szeleknek.  
+Megérteni, felfogni nem lehet,  
+Hogy meglátott, parányi porszemet,  
+És szolgálatába vett.
 
 Szívemben ujjongva dalol a hála.  
- Kerek világon nincs jobb gazda Nála!  
- Mikor szolgálatába fogadott,  
- Nem csak munkát, drága feladatot,  
- Erőt is Ő adott.
+Kerek világon nincs jobb gazda Nála!  
+Mikor szolgálatába fogadott,  
+Nem csak munkát, drága feladatot,  
+Erőt is Ő adott.
 
 Szent lelkét adta, segítsen, vezessen,  
- Sürgessen: soha ne időzzek resten.  
- Tekintete rajtam volt szüntelen,  
- Mindenre elég volt a kegyelem.  
- maga járt velem!
+Sürgessen: soha ne időzzek resten.  
+Tekintete rajtam volt szüntelen,  
+Mindenre elég volt a kegyelem.  
+maga járt velem!
 
 Talált volna annyi hűségesebbet,  
- Parancsainak engedelmesebbet...  
- Csoda irgalmát áldja énekem,  
- Hogy szolgálhattam hosszú éveken,  
- És nem mondott fel nekem.
+Parancsainak engedelmesebbet...  
+Csoda irgalmát áldja énekem,  
+Hogy szolgálhattam hosszú éveken,  
+És nem mondott fel nekem.
 
 Pedig annyiszor megtehette volna!  
- S én szegény, gyenge, engedetlen szolga  
- Türelmét, irgalmát dicsérhetem...  
- Mert ezután sem mond fel... sohasem!  
- Övé az életem!
+S én szegény, gyenge, engedetlen szolga  
+Türelmét, irgalmát dicsérhetem...  
+Mert ezután sem mond fel... sohasem!  
+Övé az életem!
 
 **HIRDETÉSEINK ÉVKÖZI 15. VASÁRNAP - 2021.JÚLIUS 11-18.**
 
